@@ -1,3 +1,7 @@
+#### 20210209 Moon dog photographed at Hug Point Falls on the Oregon coast, USA (© Ben Coffman/Tandem Stills + Motion)
+
+![](20210209_MoonDogs_1920x1080.jpg)
+
 #### 20210208 Scène hivernale dans les montagnes et soleil couchant, France (© Michal Balada/iStock/Getty Images Plus)
 
 ![](20210208_SnowyTrees_1920x1080.jpg)

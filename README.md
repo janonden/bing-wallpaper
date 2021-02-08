@@ -1,3 +1,7 @@
+#### 20210209 Moon dog photographed at Hug Point Falls on the Oregon coast, USA (© Ben Coffman/Tandem Stills + Motion)
+
+![](images/2021-02/20210209_MoonDogs_1920x1080.jpg)
+
 #### 20210208 Scène hivernale dans les montagnes et soleil couchant, France (© Michal Balada/iStock/Getty Images Plus)
 
 ![](images/2021-02/20210208_SnowyTrees_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20210202 ｢セツブンソウ｣広島県 (© Tamotsu Ito/Shutterstock.com)
 
 ![](images/2021-02/20210202_SetsubunGrass_1920x1080.jpg)
-
-#### 20210202 Marmot with the peak of Grossglockner in the background, Austria (© SeppFriedhuber/Getty Images)
-
-![](images/2021-02/20210202_RainbowMarmot_1920x1080.jpg)
 
 
 
