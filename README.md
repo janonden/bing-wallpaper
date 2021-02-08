@@ -6,6 +6,14 @@
 
 ![](images/2021-02/20210208_IceWalking_1920x1080.jpg)
 
+#### 20210208 John Lewis hero mural by Sean Schwab in the Sweet Auburn district of Atlanta, Georgia (© Ilene Perlman/Alamy)
+
+![](images/2021-02/20210208_HeroMural_1920x1080.jpg)
+
+#### 20210208 Winter Skyline featuring the Château Frontenac tower, Quebec City (© NicolasMcComber/Getty Images)
+
+![](images/2021-02/20210208_FrontenacWinter_1920x1080.jpg)
+
 #### 20210207 Great gray owls in Montreal, Canada (© rollandgelly/Getty Images)
 
 ![](images/2021-02/20210207_SuperbOwl_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20210202 Marmot with the peak of Grossglockner in the background, Austria (© SeppFriedhuber/Getty Images)
 
 ![](images/2021-02/20210202_RainbowMarmot_1920x1080.jpg)
-
-#### 20210201 Panoramic view of the city of Toledo after sunset, Spain (© Frank Fischbach/Alamy)
-
-![](images/2021-02/20210201_ToledoIldefonso_1920x1080.jpg)
-
-#### 20210201 Spirit Island during winter season, Maligne Lake, Jasper National Park, Alberta (© Natapong Supalertsophon/Getty Images)
-
-![](images/2021-02/20210201_MaligneWinter_1920x1080.jpg)
 
 
 

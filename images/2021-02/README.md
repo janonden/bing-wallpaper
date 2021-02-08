@@ -6,6 +6,14 @@
 
 ![](20210208_IceWalking_1920x1080.jpg)
 
+#### 20210208 John Lewis hero mural by Sean Schwab in the Sweet Auburn district of Atlanta, Georgia (© Ilene Perlman/Alamy)
+
+![](20210208_HeroMural_1920x1080.jpg)
+
+#### 20210208 Winter Skyline featuring the Château Frontenac tower, Quebec City (© NicolasMcComber/Getty Images)
+
+![](20210208_FrontenacWinter_1920x1080.jpg)
+
 #### 20210207 Great gray owls in Montreal, Canada (© rollandgelly/Getty Images)
 
 ![](20210207_SuperbOwl_1920x1080.jpg)
