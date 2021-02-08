@@ -126,8 +126,16 @@ def update_main_readme():
             last_year = month[0:4]
             md_content += '\n\n'
             md_content += '- ' + last_year
-        md_content += '&emsp;&emsp;[' + month[5:7] + '](' + base_dir + '/' + month + '/README.md)'
+        md_content += '&emsp;&emsp;[' + month[5:7] + '](' + base_dir + '/' + month + '/README.md) '
     md_content += '\n\n'
+    for old_year in range(int(last_year) - 1, 2009, -1):
+        md_content += '- ' + str(old_year)
+        for old_month in range(12, 0, -1):
+            old_month_str = '{0:02d}'.format(old_month)
+            old_url = 'https://github.com/janonden/bing-wallpaper/blob/{0}/images/{0}-{1}/README.md' \
+                .format(old_year, old_month_str)
+            md_content += '&emsp;&emsp;[' + str(old_month_str) + '](' + old_url + ') '
+        md_content += '\n\n'
     with codecs.open('README.md', "w", "UTF-8") as out_file:
         print('update README.md')
         out_file.write(md_content)
