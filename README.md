@@ -1,3 +1,7 @@
+#### 20210210 Nieve penitente ice formations seen on Agua Negra Pass in the Coquimbo Region of the Andes, Chile (© Art Wolfe/Danita Delimont)
+
+![](images/2021-02/20210210_PenitentSnow_1920x1080.jpg)
+
 #### 20210209 Moon dog photographed at Hug Point Falls on the Oregon coast (© Ben Coffman/Tandem Stills + Motion)
 
 ![](images/2021-02/20210209_MoonDogs_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20210203 Colossal limestone statues on Mount Nemrut, Adıyaman, Turkey (© Peerakit JIrachetthakun/Getty Images)
 
 ![](images/2021-02/20210203_MountNemrut_1920x1080.jpg)
-
-#### 20210202 ｢セツブンソウ｣広島県 (© Tamotsu Ito/Shutterstock.com)
-
-![](images/2021-02/20210202_SetsubunGrass_1920x1080.jpg)
 
 
 

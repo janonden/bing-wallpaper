@@ -1,3 +1,7 @@
+#### 20210210 Nieve penitente ice formations seen on Agua Negra Pass in the Coquimbo Region of the Andes, Chile (© Art Wolfe/Danita Delimont)
+
+![](20210210_PenitentSnow_1920x1080.jpg)
+
 #### 20210209 Moon dog photographed at Hug Point Falls on the Oregon coast (© Ben Coffman/Tandem Stills + Motion)
 
 ![](20210209_MoonDogs_1920x1080.jpg)
