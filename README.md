@@ -1,3 +1,11 @@
+#### 20210211 【今日除夕】（© DANNY HU）
+
+![](images/2021-02/20210211_Lunarnewyeareve_1920x1080.jpg)
+
+#### 20210211 Almond blossoms surround a red barn in California's Central Valley, USA (© Jeffrey Lewis/Tandem Stills + Motion)
+
+![](images/2021-02/20210211_CentralCaliBlossoms_1920x1080.jpg)
+
 #### 20210210 Nieve penitente ice formations seen on Agua Negra Pass in the Coquimbo Region of the Andes, Chile (© Art Wolfe/Danita Delimont)
 
 ![](images/2021-02/20210210_PenitentSnow_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20210204 Onkaparinga River, Port Noarlunga, South Australia (© plainpicture/AWL/Marco Bottigelli)
 
 ![](images/2021-02/20210204_OnkaparingaRiver_1920x1080.jpg)
-
-#### 20210203 ｢白梅とメジロ｣東京都 (© Takao Onozato/Aflo)
-
-![](images/2021-02/20210203_WhitePlum_1920x1080.jpg)
-
-#### 20210203 Colossal limestone statues on Mount Nemrut, Adıyaman, Turkey (© Peerakit JIrachetthakun/Getty Images)
-
-![](images/2021-02/20210203_MountNemrut_1920x1080.jpg)
 
 
 
