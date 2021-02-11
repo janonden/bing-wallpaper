@@ -2,6 +2,10 @@
 
 ![](20210211_Lunarnewyeareve_1920x1080.jpg)
 
+#### 20210211 Die Insel Christlieger im Königssee, Bayern (© Dariusz Slowik/EyeEm/Getty Images)
+
+![](20210211_KoenigsseeWinter_1920x1080.jpg)
+
 #### 20210211 Almond blossoms surround a red barn in California's Central Valley, USA (© Jeffrey Lewis/Tandem Stills + Motion)
 
 ![](20210211_CentralCaliBlossoms_1920x1080.jpg)

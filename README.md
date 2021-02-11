@@ -2,6 +2,10 @@
 
 ![](images/2021-02/20210211_Lunarnewyeareve_1920x1080.jpg)
 
+#### 20210211 Die Insel Christlieger im Königssee, Bayern (© Dariusz Slowik/EyeEm/Getty Images)
+
+![](images/2021-02/20210211_KoenigsseeWinter_1920x1080.jpg)
+
 #### 20210211 Almond blossoms surround a red barn in California's Central Valley, USA (© Jeffrey Lewis/Tandem Stills + Motion)
 
 ![](images/2021-02/20210211_CentralCaliBlossoms_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20210204 Strand der Insel Sylt, Schleswig-Holstein, im Winter (© RelaxFoto.de/iStock/Getty Images Plus)
 
 ![](images/2021-02/20210204_SyltWinter_1920x1080.jpg)
-
-#### 20210204 Onkaparinga River, Port Noarlunga, South Australia (© plainpicture/AWL/Marco Bottigelli)
-
-![](images/2021-02/20210204_OnkaparingaRiver_1920x1080.jpg)
 
 
 
