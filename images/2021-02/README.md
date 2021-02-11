@@ -6,7 +6,7 @@
 
 ![](20210211_KoenigsseeWinter_1920x1080.jpg)
 
-#### 20210211 Almond blossoms surround a red barn in California's Central Valley, USA (© Jeffrey Lewis/Tandem Stills + Motion)
+#### 20210211 Flowering almond trees in California's Central Valley (© Jeffrey Lewis/Tandem Stills + Motion)
 
 ![](20210211_CentralCaliBlossoms_1920x1080.jpg)
 
