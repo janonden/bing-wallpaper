@@ -1,4 +1,4 @@
-#### 20210212 Muskox with newborn in the central Arctic coastal plain of Alaska, USA (© Steven Kazlowski/Danita Delimont)
+#### 20210212 Muskox with newborn in the central Arctic coastal plain of Alaska (© Steven Kazlowski/Danita Delimont)
 
 ![](20210212_YearoftheOx_1920x1080.jpg)
 
