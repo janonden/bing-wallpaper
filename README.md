@@ -1,3 +1,11 @@
+#### 20210213 Porto, Portugal (© Kanuman/Shutterstock)
+
+![](images/2021-02/20210213_Porto_1920x1080.jpg)
+
+#### 20210213 四只东蓝鸲，北卡罗莱纳州夏洛特 (© Elizabeth W. Kearley/Getty Images)
+
+![](images/2021-02/20210213_BluebirdsEastern_1920x1080.jpg)
+
 #### 20210212 Muskox with newborn in the central Arctic coastal plain of Alaska (© Steven Kazlowski/Danita Delimont)
 
 ![](images/2021-02/20210212_YearoftheOx_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20210207 Great gray owls in Montreal, Canada (© rollandgelly/Getty Images)
 
 ![](images/2021-02/20210207_SuperbOwl_1920x1080.jpg)
-
-#### 20210207 Dusk over a marina in Sandy Bay, Hobart, Tasmania (© Jochen Schlenker/Masterfile)
-
-![](images/2021-02/20210207_SandyBayMarina_1920x1080.jpg)
-
-#### 20210206 Mount Sefton in Aoraki/Mount Cook National Park, South Island, New Zealand (© AWL Images/Danita Delimont)
-
-![](images/2021-02/20210206_MountSefton_1920x1080.jpg)
 
 
 
