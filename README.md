@@ -2,7 +2,11 @@
 
 ![](images/2021-02/20210213_Porto_1920x1080.jpg)
 
-#### 20210213 四只东蓝鸲，北卡罗莱纳州夏洛特 (© Elizabeth W. Kearley/Getty Images)
+#### 20210213 Canada Jay (Perisoreus canadensis) in light snowfall, Ontario (© Alan Murphy/Minden Pictures)
+
+![](images/2021-02/20210213_CanadaJaySnow_1920x1080.jpg)
+
+#### 20210213 Eastern bluebirds in Charlotte, North Carolina (© Elizabeth W. Kearley/Getty Images)
 
 ![](images/2021-02/20210213_BluebirdsEastern_1920x1080.jpg)
 
@@ -53,10 +57,6 @@
 #### 20210208 Winter Skyline featuring the Château Frontenac tower, Quebec City (© NicolasMcComber/Getty Images)
 
 ![](images/2021-02/20210208_FrontenacWinter_1920x1080.jpg)
-
-#### 20210207 Great gray owls in Montreal, Canada (© rollandgelly/Getty Images)
-
-![](images/2021-02/20210207_SuperbOwl_1920x1080.jpg)
 
 
 

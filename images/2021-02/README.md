@@ -2,7 +2,11 @@
 
 ![](20210213_Porto_1920x1080.jpg)
 
-#### 20210213 四只东蓝鸲，北卡罗莱纳州夏洛特 (© Elizabeth W. Kearley/Getty Images)
+#### 20210213 Canada Jay (Perisoreus canadensis) in light snowfall, Ontario (© Alan Murphy/Minden Pictures)
+
+![](20210213_CanadaJaySnow_1920x1080.jpg)
+
+#### 20210213 Eastern bluebirds in Charlotte, North Carolina (© Elizabeth W. Kearley/Getty Images)
 
 ![](20210213_BluebirdsEastern_1920x1080.jpg)
 
