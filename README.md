@@ -1,3 +1,7 @@
+#### 20210214 海浪冲击着悉尼海岸的一个心形岩石岛，澳大利亚 (© Kristian Bell/Getty Images)
+
+![](images/2021-02/20210214_OceanHeart_1920x1080.jpg)
+
 #### 20210213 Porto, Portugal (© Kanuman/Shutterstock)
 
 ![](images/2021-02/20210213_Porto_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20210208 John Lewis hero mural by Sean Schwab in the Sweet Auburn district of Atlanta, Georgia (© Ilene Perlman/Alamy)
 
 ![](images/2021-02/20210208_HeroMural_1920x1080.jpg)
-
-#### 20210208 Winter Skyline featuring the Château Frontenac tower, Quebec City (© NicolasMcComber/Getty Images)
-
-![](images/2021-02/20210208_FrontenacWinter_1920x1080.jpg)
 
 
 
