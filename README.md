@@ -1,3 +1,7 @@
+#### 20210215 安加白令嘉河与诺朗加港，南澳大利亚州 (© plainpicture/AWL/Marco Bottigelli)
+
+![](images/2021-02/20210215_OnkaparingaRiver_1920x1080.jpg)
+
 #### 20210214 Ocean waves crashing over a heart-shaped rock island off the coast of Sydney, Australia (© Kristian Bell/Getty Images)
 
 ![](images/2021-02/20210214_OceanHeart_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20210208 勃朗峰高山冰川上的徒步者，法国夏慕尼 (© agustavop/Getty Images)
 
 ![](images/2021-02/20210208_IceWalking_1920x1080.jpg)
-
-#### 20210208 John Lewis hero mural by Sean Schwab in the Sweet Auburn district of Atlanta, Georgia (© Ilene Perlman/Alamy)
-
-![](images/2021-02/20210208_HeroMural_1920x1080.jpg)
 
 
 
