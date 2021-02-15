@@ -2,9 +2,17 @@
 
 ![](images/2021-02/20210215_WinterLake_1920x1080.jpg)
 
+#### 20210215 Ski lifts in Whistler, B.C. (© Ben Girardi/Cavan Images)
+
+![](images/2021-02/20210215_WhisterLifts_1920x1080.jpg)
+
 #### 20210215 安加白令嘉河与诺朗加港，南澳大利亚州 (© plainpicture/AWL/Marco Bottigelli)
 
 ![](images/2021-02/20210215_OnkaparingaRiver_1920x1080.jpg)
+
+#### 20210215 Lincoln Memorial in Washington, DC (© White House Photo/Alamy)
+
+![](images/2021-02/20210215_Lincoln_1920x1080.jpg)
 
 #### 20210214 Ocean waves crashing over a heart-shaped rock island off the coast of Sydney, Australia (© Kristian Bell/Getty Images)
 
@@ -49,14 +57,6 @@
 #### 20210210 Nieve penitente ice formations seen on Agua Negra Pass in the Coquimbo Region of the Andes, Chile (© Art Wolfe/Danita Delimont)
 
 ![](images/2021-02/20210210_PenitentSnow_1920x1080.jpg)
-
-#### 20210209 Moon dog photographed at Hug Point Falls on the Oregon coast (© Ben Coffman/Tandem Stills + Motion)
-
-![](images/2021-02/20210209_MoonDogs_1920x1080.jpg)
-
-#### 20210208 Scène hivernale dans les montagnes et soleil couchant, France (© Michal Balada/iStock/Getty Images Plus)
-
-![](images/2021-02/20210208_SnowyTrees_1920x1080.jpg)
 
 
 
