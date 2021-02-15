@@ -1,3 +1,7 @@
+#### 20210216 屋前的鲜花和铁艺围栏，路易斯安那州新奥尔良 (© Lauren Mitchell/Offset by Shutterstock)
+
+![](20210216_PurpleFlowers_1920x1080.jpg)
+
 #### 20210215 Le lac de Longemer dans les Vosges, Lorraine, France. (© art4stock/Shutterstock)
 
 ![](20210215_WinterLake_1920x1080.jpg)

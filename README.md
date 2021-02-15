@@ -1,3 +1,7 @@
+#### 20210216 屋前的鲜花和铁艺围栏，路易斯安那州新奥尔良 (© Lauren Mitchell/Offset by Shutterstock)
+
+![](images/2021-02/20210216_PurpleFlowers_1920x1080.jpg)
+
 #### 20210215 Le lac de Longemer dans les Vosges, Lorraine, France. (© art4stock/Shutterstock)
 
 ![](images/2021-02/20210215_WinterLake_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20210211 Flowering almond trees in California's Central Valley (© Jeffrey Lewis/Tandem Stills + Motion)
 
 ![](images/2021-02/20210211_CentralCaliBlossoms_1920x1080.jpg)
-
-#### 20210210 Nieve penitente ice formations seen on Agua Negra Pass in the Coquimbo Region of the Andes, Chile (© Art Wolfe/Danita Delimont)
-
-![](images/2021-02/20210210_PenitentSnow_1920x1080.jpg)
 
 
 
