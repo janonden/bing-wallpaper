@@ -1,3 +1,7 @@
+#### 20210215 Le lac de Longemer dans les Vosges, Lorraine, France. (© art4stock/Shutterstock)
+
+![](20210215_WinterLake_1920x1080.jpg)
+
 #### 20210215 安加白令嘉河与诺朗加港，南澳大利亚州 (© plainpicture/AWL/Marco Bottigelli)
 
 ![](20210215_OnkaparingaRiver_1920x1080.jpg)
