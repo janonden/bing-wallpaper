@@ -2,6 +2,10 @@
 
 ![](images/2021-02/20210216_PurpleFlowers_1920x1080.jpg)
 
+#### 20210216 Eingeschneite Arberkapelle am Großen Arber, Niederbayern, Bayern (© Cornelia Dörr/Huber/eStock Photo)
+
+![](images/2021-02/20210216_GrosserArberWinter_1920x1080.jpg)
+
 #### 20210215 Le lac de Longemer dans les Vosges, Lorraine, France. (© art4stock/Shutterstock)
 
 ![](images/2021-02/20210215_WinterLake_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20210211 Die Insel Christlieger im Königssee, Bayern (© Dariusz Slowik/EyeEm/Getty Images)
 
 ![](images/2021-02/20210211_KoenigsseeWinter_1920x1080.jpg)
-
-#### 20210211 Flowering almond trees in California's Central Valley (© Jeffrey Lewis/Tandem Stills + Motion)
-
-![](images/2021-02/20210211_CentralCaliBlossoms_1920x1080.jpg)
 
 
 

@@ -2,6 +2,10 @@
 
 ![](20210216_PurpleFlowers_1920x1080.jpg)
 
+#### 20210216 Eingeschneite Arberkapelle am Großen Arber, Niederbayern, Bayern (© Cornelia Dörr/Huber/eStock Photo)
+
+![](20210216_GrosserArberWinter_1920x1080.jpg)
+
 #### 20210215 Le lac de Longemer dans les Vosges, Lorraine, France. (© art4stock/Shutterstock)
 
 ![](20210215_WinterLake_1920x1080.jpg)
