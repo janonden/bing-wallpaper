@@ -1,3 +1,7 @@
+#### 20210218 拉韦尔泰佐附近一条河里的石头，瑞士塞斯卡山谷 (© Robert Seitz/Offset by Shutterstock)
+
+![](20210218_VerzascaValley_1920x1080.jpg)
+
 #### 20210217 Perito Moreno Glacier in Patagonia's Los Glaciares National Park, Argentina (© Juergen Schonnop/Getty Images)
 
 ![](20210217_PeritoMorenoArgentina_1920x1080.jpg)

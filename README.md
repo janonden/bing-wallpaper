@@ -1,3 +1,7 @@
+#### 20210218 拉韦尔泰佐附近一条河里的石头，瑞士塞斯卡山谷 (© Robert Seitz/Offset by Shutterstock)
+
+![](images/2021-02/20210218_VerzascaValley_1920x1080.jpg)
+
 #### 20210217 Perito Moreno Glacier in Patagonia's Los Glaciares National Park, Argentina (© Juergen Schonnop/Getty Images)
 
 ![](images/2021-02/20210217_PeritoMorenoArgentina_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20210212 ｢ジャイアントパンダ｣中国, 四川省 (© Lynn M. Stone/Minden Pictures)
 
 ![](images/2021-02/20210212_WolongPanda_1920x1080.jpg)
-
-#### 20210212 【新年快乐】 （ © Kilito Chan ）
-
-![](images/2021-02/20210212_Lunarnewyear_1920x1080.jpg)
 
 
 
