@@ -1,3 +1,7 @@
+#### 20210219 东内格罗斯省沿海的鹦嘴鱼，菲律宾 (© Tim Fitzharris/Minden Pictures)
+
+![](20210219_Parrotfish_1920x1080.jpg)
+
 #### 20210218 Rocks in the Verzasca River near the hamlet of Lavertezzo in the Valle Verzasca of Switzerland (© Robert Seitz/Offset by Shutterstock)
 
 ![](20210218_VerzascaValley_1920x1080.jpg)

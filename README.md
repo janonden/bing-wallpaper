@@ -1,3 +1,7 @@
+#### 20210219 东内格罗斯省沿海的鹦嘴鱼，菲律宾 (© Tim Fitzharris/Minden Pictures)
+
+![](images/2021-02/20210219_Parrotfish_1920x1080.jpg)
+
 #### 20210218 Rocks in the Verzasca River near the hamlet of Lavertezzo in the Valle Verzasca of Switzerland (© Robert Seitz/Offset by Shutterstock)
 
 ![](images/2021-02/20210218_VerzascaValley_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20210212 Muskox with newborn in the central Arctic coastal plain of Alaska (© Steven Kazlowski/Danita Delimont)
 
 ![](images/2021-02/20210212_YearoftheOx_1920x1080.jpg)
-
-#### 20210212 ｢ジャイアントパンダ｣中国, 四川省 (© Lynn M. Stone/Minden Pictures)
-
-![](images/2021-02/20210212_WolongPanda_1920x1080.jpg)
 
 
 
