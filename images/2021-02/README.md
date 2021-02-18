@@ -1,4 +1,4 @@
-#### 20210218 拉韦尔泰佐附近一条河里的石头，瑞士塞斯卡山谷 (© Robert Seitz/Offset by Shutterstock)
+#### 20210218 Rocks in the Verzasca River near the hamlet of Lavertezzo in the Valle Verzasca of Switzerland (© Robert Seitz/Offset by Shutterstock)
 
 ![](20210218_VerzascaValley_1920x1080.jpg)
 
