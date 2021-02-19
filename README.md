@@ -1,4 +1,4 @@
-#### 20210219 东内格罗斯省沿海的鹦嘴鱼，菲律宾 (© Tim Fitzharris/Minden Pictures)
+#### 20210219 Parrotfish off the coast of Negros Oriental province in the Philippines (© Tim Fitzharris/Minden Pictures)
 
 ![](images/2021-02/20210219_Parrotfish_1920x1080.jpg)
 
