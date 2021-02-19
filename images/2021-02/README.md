@@ -1,3 +1,7 @@
+#### 20210220 暴风雪散去，加利福尼亚优胜美地国家公园 (© Jeff Lewis/Tandem Stills + Motion)
+
+![](20210220_AABday_1920x1080.jpg)
+
 #### 20210219 Parrotfish off the coast of Negros Oriental province in the Philippines (© Tim Fitzharris/Minden Pictures)
 
 ![](20210219_Parrotfish_1920x1080.jpg)
