@@ -1,3 +1,7 @@
+#### 20210220 Krauskopfpelikane im Winter, Kerkini-See, Griechenland (© Guy Edwardes/Minden Pictures)
+
+![](images/2021-02/20210220_DalmatianPelicans_1920x1080.jpg)
+
 #### 20210220 暴风雪散去，加利福尼亚优胜美地国家公园 (© Jeff Lewis/Tandem Stills + Motion)
 
 ![](images/2021-02/20210220_AABday_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20210213 Canada Jay (Perisoreus canadensis) in light snowfall, Ontario (© Alan Murphy/Minden Pictures)
 
 ![](images/2021-02/20210213_CanadaJaySnow_1920x1080.jpg)
-
-#### 20210213 Eastern bluebirds in Charlotte, North Carolina (© Elizabeth W. Kearley/Getty Images)
-
-![](images/2021-02/20210213_BluebirdsEastern_1920x1080.jpg)
 
 
 
