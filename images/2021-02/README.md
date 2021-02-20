@@ -2,7 +2,7 @@
 
 ![](20210220_DalmatianPelicans_1920x1080.jpg)
 
-#### 20210220 暴风雪散去，加利福尼亚优胜美地国家公园 (© Jeff Lewis/Tandem Stills + Motion)
+#### 20210220 Clearing snowstorm, Yosemite National Park, California (© Jeff Lewis/Tandem Stills + Motion)
 
 ![](20210220_AABday_1920x1080.jpg)
 
