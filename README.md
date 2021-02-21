@@ -1,3 +1,7 @@
+#### 20210222 莱姆里杰斯的Cobb防波堤，英格兰多塞特 (© Ross Hoddinott/Offset by Shutterstock)
+
+![](images/2021-02/20210222_TheCobb_1920x1080.jpg)
+
 #### 20210220 Krauskopfpelikane im Winter, Kerkini-See, Griechenland (© Guy Edwardes/Minden Pictures)
 
 ![](images/2021-02/20210220_DalmatianPelicans_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20210213 Porto, Portugal (© Kanuman/Shutterstock)
 
 ![](images/2021-02/20210213_Porto_1920x1080.jpg)
-
-#### 20210213 Canada Jay (Perisoreus canadensis) in light snowfall, Ontario (© Alan Murphy/Minden Pictures)
-
-![](images/2021-02/20210213_CanadaJaySnow_1920x1080.jpg)
 
 
 
