@@ -6,6 +6,10 @@
 
 ![](20210222_Nideck_1920x1080.jpg)
 
+#### 20210222 'Invisible Man,' a memorial to Ralph Ellison in Riverside Park, New York City (© Randy Duchaine/Alamy)
+
+![](20210222_InvisibleMan_1920x1080.jpg)
+
 #### 20210220 Krauskopfpelikane im Winter, Kerkini-See, Griechenland (© Guy Edwardes/Minden Pictures)
 
 ![](20210220_DalmatianPelicans_1920x1080.jpg)

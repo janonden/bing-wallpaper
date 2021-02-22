@@ -6,6 +6,10 @@
 
 ![](images/2021-02/20210222_Nideck_1920x1080.jpg)
 
+#### 20210222 'Invisible Man,' a memorial to Ralph Ellison in Riverside Park, New York City (© Randy Duchaine/Alamy)
+
+![](images/2021-02/20210222_InvisibleMan_1920x1080.jpg)
+
 #### 20210220 Krauskopfpelikane im Winter, Kerkini-See, Griechenland (© Guy Edwardes/Minden Pictures)
 
 ![](images/2021-02/20210220_DalmatianPelicans_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20210215 Lincoln Memorial in Washington, DC (© White House Photo/Alamy)
 
 ![](images/2021-02/20210215_Lincoln_1920x1080.jpg)
-
-#### 20210214 Ocean waves crashing over a heart-shaped rock island off the coast of Sydney, Australia (© Kristian Bell/Getty Images)
-
-![](images/2021-02/20210214_OceanHeart_1920x1080.jpg)
 
 
 
