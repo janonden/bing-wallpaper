@@ -1,3 +1,7 @@
+#### 20210223 ｢皇居外苑｣東京都, 千代田区 (© Sean Pavone/Shutter.com)
+
+![](20210223_KoukyoGaien_1920x1080.jpg)
+
 #### 20210222 莱姆里杰斯的Cobb防波堤，英格兰多塞特 (© Ross Hoddinott/Offset by Shutterstock)
 
 ![](20210222_TheCobb_1920x1080.jpg)
