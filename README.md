@@ -2,6 +2,10 @@
 
 ![](images/2021-02/20210222_TheCobb_1920x1080.jpg)
 
+#### 20210222 Cascade du Nideck gelée, Oberhaslach, Alsace (© Philippe Sainte-Laudy Photography/Getty Images)
+
+![](images/2021-02/20210222_Nideck_1920x1080.jpg)
+
 #### 20210220 Krauskopfpelikane im Winter, Kerkini-See, Griechenland (© Guy Edwardes/Minden Pictures)
 
 ![](images/2021-02/20210220_DalmatianPelicans_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20210214 Ocean waves crashing over a heart-shaped rock island off the coast of Sydney, Australia (© Kristian Bell/Getty Images)
 
 ![](images/2021-02/20210214_OceanHeart_1920x1080.jpg)
-
-#### 20210213 Porto, Portugal (© Kanuman/Shutterstock)
-
-![](images/2021-02/20210213_Porto_1920x1080.jpg)
 
 
 

@@ -2,6 +2,10 @@
 
 ![](20210222_TheCobb_1920x1080.jpg)
 
+#### 20210222 Cascade du Nideck gelée, Oberhaslach, Alsace (© Philippe Sainte-Laudy Photography/Getty Images)
+
+![](20210222_Nideck_1920x1080.jpg)
+
 #### 20210220 Krauskopfpelikane im Winter, Kerkini-See, Griechenland (© Guy Edwardes/Minden Pictures)
 
 ![](20210220_DalmatianPelicans_1920x1080.jpg)
