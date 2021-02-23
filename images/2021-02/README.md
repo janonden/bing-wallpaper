@@ -18,7 +18,7 @@
 
 ![](20210222_InvisibleMan_1920x1080.jpg)
 
-#### 20210220 Krauskopfpelikane im Winter, Kerkini-See, Griechenland (© Guy Edwardes/Minden Pictures)
+#### 20210220 Dalmatian pelicans on ice, Lake Kerkini, Greece (© Guy Edwardes/Minden Pictures)
 
 ![](20210220_DalmatianPelicans_1920x1080.jpg)
 
