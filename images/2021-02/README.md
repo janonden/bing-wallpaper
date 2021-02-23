@@ -2,6 +2,10 @@
 
 ![](20210223_KoukyoGaien_1920x1080.jpg)
 
+#### 20210223 Winterliche Morgenstimmung am Kloster Andechs in Bayern mit Blick auf den Ammersee (© Reinhard Schmid/Huber/eStock Photo)
+
+![](20210223_KlosterAndechsWinter_1920x1080.jpg)
+
 #### 20210222 莱姆里杰斯的Cobb防波堤，英格兰多塞特 (© Ross Hoddinott/Offset by Shutterstock)
 
 ![](20210222_TheCobb_1920x1080.jpg)
