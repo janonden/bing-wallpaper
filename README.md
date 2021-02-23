@@ -1,3 +1,7 @@
+#### 20210224 莫纳布拉班特山，毛里求斯 (© Hemis/Alamy)
+
+![](images/2021-02/20210224_LeMorneBrabant_1920x1080.jpg)
+
 #### 20210223 ｢皇居外苑｣東京都, 千代田区 (© Sean Pavone/Shutter.com)
 
 ![](images/2021-02/20210223_KoukyoGaien_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20210215 Le lac de Longemer dans les Vosges, Lorraine, France. (© art4stock/Shutterstock)
 
 ![](images/2021-02/20210215_WinterLake_1920x1080.jpg)
-
-#### 20210215 Ski lifts in Whistler, B.C. (© Ben Girardi/Cavan Images)
-
-![](images/2021-02/20210215_WhisterLifts_1920x1080.jpg)
 
 
 
