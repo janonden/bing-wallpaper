@@ -1,4 +1,4 @@
-#### 20210224 莫纳布拉班特山，毛里求斯 (© Hemis/Alamy)
+#### 20210224 Le Morne Brabant, Mauritius (© Hemis/Alamy)
 
 ![](images/2021-02/20210224_LeMorneBrabant_1920x1080.jpg)
 
