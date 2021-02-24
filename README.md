@@ -26,6 +26,10 @@
 
 ![](images/2021-02/20210222_InvisibleMan_1920x1080.jpg)
 
+#### 20210221 Porto, Portugal (© Kanuman/Shutterstock)
+
+![](images/2021-02/20210221_Porto_1920x1080.jpg)
+
 #### 20210220 Dalmatian pelicans on ice, Lake Kerkini, Greece (© Guy Edwardes/Minden Pictures)
 
 ![](images/2021-02/20210220_DalmatianPelicans_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20210216 Flowers and an ironwork fence in front of a house in New Orleans, Louisiana (© Lauren Mitchell/Offset by Shutterstock)
 
 ![](images/2021-02/20210216_PurpleFlowers_1920x1080.jpg)
-
-#### 20210216 Eingeschneite Arberkapelle am Großen Arber, Niederbayern, Bayern (© Cornelia Dörr/Huber/eStock Photo)
-
-![](images/2021-02/20210216_GrosserArberWinter_1920x1080.jpg)
 
 
 
