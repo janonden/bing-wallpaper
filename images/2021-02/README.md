@@ -1,4 +1,4 @@
-#### 20210225 俯瞰着特雷维的扁桃花，意大利佩鲁贾 (© Maurizio Rellini/eStock Photo)
+#### 20210225 Almond blossoms overlooking Trevi, Umbria, Italy (© Maurizio Rellini/eStock Photo)
 
 ![](20210225_Trevi_1920x1080.jpg)
 
