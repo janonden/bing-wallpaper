@@ -1,3 +1,7 @@
+#### 20210226 挂在锦里街上的红灯笼，中国成都 (© Philippe LEJEANVRE/Getty Images)
+
+![](images/2021-02/20210226_JinliStreet_1920x1080.jpg)
+
 #### 20210225 Almond blossoms overlooking Trevi, Umbria, Italy (© Maurizio Rellini/eStock Photo)
 
 ![](images/2021-02/20210225_Trevi_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20210217 ｢三十槌の氷柱｣埼玉県, 秩父市 (©  Mommyphoto/Shutter.com)
 
 ![](images/2021-02/20210217_MisotsuchiIcicle_1920x1080.jpg)
-
-#### 20210216 Flowers and an ironwork fence in front of a house in New Orleans, Louisiana (© Lauren Mitchell/Offset by Shutterstock)
-
-![](images/2021-02/20210216_PurpleFlowers_1920x1080.jpg)
 
 
 
