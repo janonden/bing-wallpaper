@@ -1,3 +1,11 @@
+#### 20210227 ｢ワプスク国立公園のホッキョクグマの赤ちゃん｣カナダ, マニトバ州 (© AF archive/Alamy)
+
+![](images/2021-02/20210227_TwinsDenning_1920x1080.jpg)
+
+#### 20210227 鸟瞰施内贝格山脉-奥克森峰，德国 (© Felix Meyer/Adobe Stock)
+
+![](images/2021-02/20210227_SchneebergOchsenkopf_1920x1080.jpg)
+
 #### 20210226 Red lanterns hanging in Jinli Street, Chengdu, China (© Philippe LEJEANVRE/Getty Images)
 
 ![](images/2021-02/20210226_JinliStreet_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20210218 Rocks in the Verzasca River near the hamlet of Lavertezzo in the Valle Verzasca of Switzerland (© Robert Seitz/Offset by Shutterstock)
 
 ![](images/2021-02/20210218_VerzascaValley_1920x1080.jpg)
-
-#### 20210217 Perito Moreno Glacier in Patagonia's Los Glaciares National Park, Argentina (© Juergen Schonnop/Getty Images)
-
-![](images/2021-02/20210217_PeritoMorenoArgentina_1920x1080.jpg)
-
-#### 20210217 ｢三十槌の氷柱｣埼玉県, 秩父市 (©  Mommyphoto/Shutter.com)
-
-![](images/2021-02/20210217_MisotsuchiIcicle_1920x1080.jpg)
 
 
 
