@@ -1,4 +1,4 @@
-#### 20210227 ｢ワプスク国立公園のホッキョクグマの赤ちゃん｣カナダ, マニトバ州 (© AF archive/Alamy)
+#### 20210227 Twin polar bear cubs asleep in a snow den in Wapusk National Park, Manitoba, Canada (© AF archive/Alamy)
 
 ![](20210227_TwinsDenning_1920x1080.jpg)
 
