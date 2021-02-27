@@ -1,3 +1,7 @@
+#### 20210228 斯卡夫塔山中的传统农舍，冰岛瓦特纳冰川国家公园 (© Jarcosa/Getty Images)
+
+![](20210228_TurfHouse_1920x1080.jpg)
+
 #### 20210227 Twin polar bear cubs asleep in a snow den in Wapusk National Park, Manitoba, Canada (© AF archive/Alamy)
 
 ![](20210227_TwinsDenning_1920x1080.jpg)

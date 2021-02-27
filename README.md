@@ -1,3 +1,7 @@
+#### 20210228 斯卡夫塔山中的传统农舍，冰岛瓦特纳冰川国家公园 (© Jarcosa/Getty Images)
+
+![](images/2021-02/20210228_TurfHouse_1920x1080.jpg)
+
 #### 20210227 Twin polar bear cubs asleep in a snow den in Wapusk National Park, Manitoba, Canada (© AF archive/Alamy)
 
 ![](images/2021-02/20210227_TwinsDenning_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20210219 Parrotfish off the coast of Negros Oriental province in the Philippines (© Tim Fitzharris/Minden Pictures)
 
 ![](images/2021-02/20210219_Parrotfish_1920x1080.jpg)
-
-#### 20210218 Rocks in the Verzasca River near the hamlet of Lavertezzo in the Valle Verzasca of Switzerland (© Robert Seitz/Offset by Shutterstock)
-
-![](images/2021-02/20210218_VerzascaValley_1920x1080.jpg)
 
 
 
