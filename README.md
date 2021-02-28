@@ -1,4 +1,4 @@
-#### 20210228 斯卡夫塔山中的传统农舍，冰岛瓦特纳冰川国家公园 (© Jarcosa/Getty Images)
+#### 20210228 Turf farmhouses at Skaftafell, Vatnajökull National Park, Iceland (© Jarcosa/Getty Images)
 
 ![](images/2021-02/20210228_TurfHouse_1920x1080.jpg)
 
