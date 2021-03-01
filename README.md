@@ -1,3 +1,7 @@
+#### 20210301 Couple d’albatros royal jouant sur l’île Campbell, Nouvelle-Zélande (© Mike Potts/Minden)
+
+![](images/2021-03/20210301_ComplimentsDay_1920x1080.jpg)
+
 #### 20210301 威尔士中部水仙花中的蓝山雀 (© Philip Jones/Alamy)
 
 ![](images/2021-03/20210301_BlueTitDaffs_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20210220 Dalmatian pelicans on ice, Lake Kerkini, Greece (© Guy Edwardes/Minden Pictures)
 
 ![](images/2021-02/20210220_DalmatianPelicans_1920x1080.jpg)
-
-#### 20210220 Clearing snowstorm, Yosemite National Park, California (© Jeff Lewis/Tandem Stills + Motion)
-
-![](images/2021-02/20210220_AABday_1920x1080.jpg)
 
 
 
