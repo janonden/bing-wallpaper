@@ -1,4 +1,4 @@
-#### 20210302 亚伊马火山与前景中的智利南洋杉，智利孔吉利奥国家公园 (© Fotografías Jorge León Cabello/Getty Images)
+#### 20210302 Volcano Llaima with Araucaria trees in the foreground, Conguillío National Park, Chile (© Fotografías Jorge León Cabello/Getty Images)
 
 ![](images/2021-03/20210302_VolcanoLlaima_1920x1080.jpg)
 
