@@ -1,4 +1,4 @@
-#### 20210303 纳库鲁湖周围森林中的两只母狮子，肯尼亚    (© Scott Davis/Tandem Stills + Motion)
+#### 20210303 Female lions in the forest surrounding Lake Nakuru, Kenya (© Scott Davis/Tandem Stills + Motion)
 
 ![](20210303_WWDLions_1920x1080.jpg)
 
