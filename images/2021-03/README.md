@@ -1,3 +1,7 @@
+#### 20210305 力拓河中含矿物质的水，西班牙里奥廷托矿区 (© David Santiago Garcia/Getty Images)
+
+![](20210305_MinasdeRioTinto_1920x1080.jpg)
+
 #### 20210304 Aerial image of Mount Logan rising above the clouds in Kluane National Park, Yukon (© plainpicture/Design Pics/Robert Postma)
 
 ![](20210304_LoganClouds_1920x1080.jpg)

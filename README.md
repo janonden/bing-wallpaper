@@ -1,3 +1,7 @@
+#### 20210305 力拓河中含矿物质的水，西班牙里奥廷托矿区 (© David Santiago Garcia/Getty Images)
+
+![](images/2021-03/20210305_MinasdeRioTinto_1920x1080.jpg)
+
 #### 20210304 Aerial image of Mount Logan rising above the clouds in Kluane National Park, Yukon (© plainpicture/Design Pics/Robert Postma)
 
 ![](images/2021-03/20210304_LoganClouds_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20210224 Le Morne Brabant, Mauritius (© Hemis/Alamy)
 
 ![](images/2021-02/20210224_LeMorneBrabant_1920x1080.jpg)
-
-#### 20210223 ｢皇居外苑｣東京都, 千代田区 (© Sean Pavone/Shutter.com)
-
-![](images/2021-02/20210223_KoukyoGaien_1920x1080.jpg)
 
 
 
