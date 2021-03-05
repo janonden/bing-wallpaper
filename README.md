@@ -1,4 +1,4 @@
-#### 20210305 力拓河中含矿物质的水，西班牙里奥廷托矿区 (© David Santiago Garcia/Getty Images)
+#### 20210305 Mineral-laden water in the Rio Tinto, Minas de Riotinto mining area, Huelva province, Andalusia, Spain (© David Santiago Garcia/Getty Images)
 
 ![](images/2021-03/20210305_MinasdeRioTinto_1920x1080.jpg)
 
