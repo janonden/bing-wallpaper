@@ -2,7 +2,7 @@
 
 ![](images/2021-03/20210306_PurpleFlowers_1920x1080.jpg)
 
-#### 20210306 弗洛勒斯岛上的纳闽巴霍，印度尼西亚科莫多国家公园 (© Thrithot/Adobe Stock)
+#### 20210306 Komodo National Park, Indonesia (© Thrithot/Adobe Stock)
 
 ![](images/2021-03/20210306_PadarIsland_1920x1080.jpg)
 
