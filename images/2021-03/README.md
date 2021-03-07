@@ -2,6 +2,10 @@
 
 ![](20210307_Wakodahatchee_1920x1080.jpg)
 
+#### 20210307 Hutte en osier dans le potager du parc floral de la Source, Orléans (© Hervé Lenain/Alamy Stock Photo)
+
+![](20210307_GrannysDay_1920x1080.jpg)
+
 #### 20210306 Blumen in einem Vorgarten in New Orleans, Louisiana, USA (© Lauren Mitchell/Offset by Shutterstock)
 
 ![](20210306_PurpleFlowers_1920x1080.jpg)
