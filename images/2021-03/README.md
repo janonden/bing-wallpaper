@@ -1,3 +1,7 @@
+#### 20210308 ｢フリーダ・カーロの壁画｣メキシコ, メキシコシティ (© Jessica Sample/Gallery Stock)
+
+![](20210308_FridaMural_1920x1080.jpg)
+
 #### 20210307 Great blue herons in the Wakodahatchee Wetlands, Delray Beach, Florida (© Marie Hickman/Getty Images)
 
 ![](20210307_Wakodahatchee_1920x1080.jpg)

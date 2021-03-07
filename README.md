@@ -1,3 +1,7 @@
+#### 20210308 ｢フリーダ・カーロの壁画｣メキシコ, メキシコシティ (© Jessica Sample/Gallery Stock)
+
+![](images/2021-03/20210308_FridaMural_1920x1080.jpg)
+
 #### 20210307 Great blue herons in the Wakodahatchee Wetlands, Delray Beach, Florida (© Marie Hickman/Getty Images)
 
 ![](images/2021-03/20210307_Wakodahatchee_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20210228 Turf farmhouses at Skaftafell, Vatnajökull National Park, Iceland (© Jarcosa/Getty Images)
 
 ![](images/2021-02/20210228_TurfHouse_1920x1080.jpg)
-
-#### 20210227 Twin polar bear cubs asleep in a snow den in Wapusk National Park, Manitoba, Canada (© AF archive/Alamy)
-
-![](images/2021-02/20210227_TwinsDenning_1920x1080.jpg)
 
 
 
