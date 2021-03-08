@@ -1,3 +1,7 @@
+#### 20210308 View of the Notorious RBG mural by the street artist Elle in New York City (© lev radin/Alamy)
+
+![](20210308_NotoriousRBG_1920x1080.jpg)
+
 #### 20210308 ｢フリーダ・カーロの壁画｣メキシコ, メキシコシティ (© Jessica Sample/Gallery Stock)
 
 ![](20210308_FridaMural_1920x1080.jpg)

@@ -1,3 +1,7 @@
+#### 20210308 View of the Notorious RBG mural by the street artist Elle in New York City (© lev radin/Alamy)
+
+![](images/2021-03/20210308_NotoriousRBG_1920x1080.jpg)
+
 #### 20210308 ｢フリーダ・カーロの壁画｣メキシコ, メキシコシティ (© Jessica Sample/Gallery Stock)
 
 ![](images/2021-03/20210308_FridaMural_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20210301 威尔士中部水仙花中的蓝山雀 (© Philip Jones/Alamy)
 
 ![](images/2021-03/20210301_BlueTitDaffs_1920x1080.jpg)
-
-#### 20210228 Turf farmhouses at Skaftafell, Vatnajökull National Park, Iceland (© Jarcosa/Getty Images)
-
-![](images/2021-02/20210228_TurfHouse_1920x1080.jpg)
 
 
 
