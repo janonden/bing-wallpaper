@@ -1,4 +1,4 @@
-#### 20210309 圣何塞附近的代阿布洛岭山麓，加利福尼亚 (© Jeff Lewis/Tandem Stills + Motion)
+#### 20210309 Foothills of the Diablo Range in the East Bay region of Northern California (© Jeff Lewis/Tandem Stills + Motion)
 
 ![](images/2021-03/20210309_RollingHills_1920x1080.jpg)
 
