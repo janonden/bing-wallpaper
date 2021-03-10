@@ -1,6 +1,14 @@
+#### 20210310 Snow and ice along the shoreline of Lake Superior in winter; Thunder Bay, Ontario (© plainpicture/Design Pics/Susan Dykstra)
+
+![](20210310_SuperiorIce_1920x1080.jpg)
+
 #### 20210310 被阿尔卑斯山环抱的辛特湖，德国贝希特斯加登 (© Offset by Shutterstock)
 
 ![](20210310_HinterseeRamsau_1920x1080.jpg)
+
+#### 20210310 'Step on Board,' the Harriet Tubman Memorial, sculpted by Fern Cunningham, in Boston, Massachusetts (© Anthony Pleva/Alamy)
+
+![](20210310_HarrietTubman_1920x1080.jpg)
 
 #### 20210309 Foothills of the Diablo Range in the East Bay region of Northern California (© Jeff Lewis/Tandem Stills + Motion)
 

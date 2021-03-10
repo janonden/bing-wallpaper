@@ -1,6 +1,14 @@
+#### 20210310 Snow and ice along the shoreline of Lake Superior in winter; Thunder Bay, Ontario (© plainpicture/Design Pics/Susan Dykstra)
+
+![](images/2021-03/20210310_SuperiorIce_1920x1080.jpg)
+
 #### 20210310 被阿尔卑斯山环抱的辛特湖，德国贝希特斯加登 (© Offset by Shutterstock)
 
 ![](images/2021-03/20210310_HinterseeRamsau_1920x1080.jpg)
+
+#### 20210310 'Step on Board,' the Harriet Tubman Memorial, sculpted by Fern Cunningham, in Boston, Massachusetts (© Anthony Pleva/Alamy)
+
+![](images/2021-03/20210310_HarrietTubman_1920x1080.jpg)
 
 #### 20210309 Foothills of the Diablo Range in the East Bay region of Northern California (© Jeff Lewis/Tandem Stills + Motion)
 
@@ -49,14 +57,6 @@
 #### 20210303 「素盞鳴神社雛段飾りのつるし飾り」静岡県 (© Kosei Saito/Getty Images)
 
 ![](images/2021-03/20210303_Tsurushibina_1920x1080.jpg)
-
-#### 20210302 Volcano Llaima with Araucaria trees in the foreground, Conguillío National Park, Chile (© Fotografías Jorge León Cabello/Getty Images)
-
-![](images/2021-03/20210302_VolcanoLlaima_1920x1080.jpg)
-
-#### 20210301 A section of a large mosaic of Ida B. Wells displayed at Union Station in Washington, DC, in August 2020 (© Manuel Balce Ceneta/AP Photo)
-
-![](images/2021-03/20210301_IdaBWells_1920x1080.jpg)
 
 
 
