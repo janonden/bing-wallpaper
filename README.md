@@ -2,7 +2,7 @@
 
 ![](images/2021-03/20210311_EntsuIN_1920x1080.jpg)
 
-#### 20210311 俄勒冈海岸佩蓓角的雷神之井 (© Cavan Images/Offset by Shutterstock)
+#### 20210311 Thor's Well at Cape Perpetua on the Oregon coast (© Cavan Images/Offset by Shutterstock)
 
 ![](images/2021-03/20210311_CapePerpetua_1920x1080.jpg)
 
