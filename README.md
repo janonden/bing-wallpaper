@@ -6,6 +6,10 @@
 
 ![](images/2021-03/20210312_EibseeSpring_1920x1080.jpg)
 
+#### 20210312 Heißluftballon im Sonnenaufgang über der Sonnenpyramide, Teotihuacán, Mexiko (© Marco Ugarte/AP Photo)
+
+![](images/2021-03/20210312_AztecNewYear_1920x1080.jpg)
+
 #### 20210311 ｢円通院の三慧殿｣宮城県, 松島町 (© Mark Schwettmann/Shutterstock)
 
 ![](images/2021-03/20210311_EntsuIN_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20210306 Komodo National Park, Indonesia (© Thrithot/Adobe Stock)
 
 ![](images/2021-03/20210306_PadarIsland_1920x1080.jpg)
-
-#### 20210305 Mineral-laden water in the Rio Tinto, Minas de Riotinto mining area, Huelva province, Andalusia, Spain (© David Santiago Garcia/Getty Images)
-
-![](images/2021-03/20210305_MinasdeRioTinto_1920x1080.jpg)
 
 
 
