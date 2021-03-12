@@ -6,7 +6,7 @@
 
 ![](20210312_EibseeSpring_1920x1080.jpg)
 
-#### 20210312 Heißluftballon im Sonnenaufgang über der Sonnenpyramide, Teotihuacán, Mexiko (© Marco Ugarte/AP Photo)
+#### 20210312 A balloon flies over the Pyramid of the Sun at sunrise in Teotihuacan, Mexico (© Marco Ugarte/AP Photo)
 
 ![](20210312_AztecNewYear_1920x1080.jpg)
 
