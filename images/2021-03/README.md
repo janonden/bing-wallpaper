@@ -2,7 +2,7 @@
 
 ![](20210313_SpringOfPoets_1920x1080.jpg)
 
-#### 20210313 森佩尔森林公园中的黑海杜鹃，德国吕根岛 (© Sandra Bartocha/Minden Pictures)
+#### 20210313 Common rhododendrons in Semper Forest Park, Rügen, Germany (© Sandra Bartocha/Minden Pictures)
 
 ![](20210313_Rhododendron_1920x1080.jpg)
 
