@@ -2,7 +2,7 @@
 
 ![](images/2021-03/20210314_MassapequaOwl_1920x1080.jpg)
 
-#### 20210314 里昂天文钟，法国里昂 (© kyolshin/Alamy)
+#### 20210314 Astronomical clock, Lyon, France (© kyolshin/Alamy)
 
 ![](images/2021-03/20210314_LyonAstronomical_1920x1080.jpg)
 
