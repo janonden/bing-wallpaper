@@ -1,3 +1,7 @@
+#### 20210314 Ost-Kreischeule in einer Baumhöhle, Massapequa Preserve, Long Island, New York, USA (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)
+
+![](images/2021-03/20210314_MassapequaOwl_1920x1080.jpg)
+
 #### 20210314 里昂天文钟，法国里昂 (© kyolshin/Alamy)
 
 ![](images/2021-03/20210314_LyonAstronomical_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20210309 Aerial image of Mount Logan rising above the clouds in Kluane National Park and Reserve, Yukon, Canada (© Robert Postma/plainpicture)
 
 ![](images/2021-03/20210309_LoganClouds_1920x1080.jpg)
-
-#### 20210308 View of the Notorious RBG mural by the street artist Elle in New York City (© lev radin/Alamy)
-
-![](images/2021-03/20210308_NotoriousRBG_1920x1080.jpg)
 
 
 
