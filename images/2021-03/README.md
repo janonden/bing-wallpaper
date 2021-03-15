@@ -1,3 +1,7 @@
+#### 20210315 Regenbogen über dem Leuchtturm Westerheversand, Westerhever, Schleswig-Holstein (© Sandra Bartocha/Minden Pictures)
+
+![](20210315_WesterheverSH_1920x1080.jpg)
+
 #### 20210314 Ost-Kreischeule in einer Baumhöhle, Massapequa Preserve, Long Island, New York, USA (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)
 
 ![](20210314_MassapequaOwl_1920x1080.jpg)
