@@ -1,3 +1,7 @@
+#### 20240109 格兰德河上空的热气球，阿尔伯克基，新墨西哥州，美国 (© Jennifer MacCornack/Shutterstock)
+
+![](images/2024-01/20240109_BalloonDay_1920x1080.jpg)
+
 #### 20240108 Skier at Bernina Pass, Graubünden, Switzerland (© Francesco Bergamaschi/Getty Images)
 
 ![](images/2024-01/20240108_BerninaPass_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240102 Prayer flags in Phobjikha Valley, Bhutan (© John Warburton-Lee/DanitaDelimont.com)
 
 ![](images/2024-01/20240102_BhutanSolstice_1920x1080.jpg)
-
-#### 20240101 本栖湖から見る富士山の日の出, 山梨県 (© Sakarin Sawasdinaka/Shutterstock)
-
-![](images/2024-01/20240101_Sunrise_1920x1080.jpg)
 
 
 

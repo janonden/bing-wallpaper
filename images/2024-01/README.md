@@ -1,3 +1,7 @@
+#### 20240109 格兰德河上空的热气球，阿尔伯克基，新墨西哥州，美国 (© Jennifer MacCornack/Shutterstock)
+
+![](20240109_BalloonDay_1920x1080.jpg)
+
 #### 20240108 Skier at Bernina Pass, Graubünden, Switzerland (© Francesco Bergamaschi/Getty Images)
 
 ![](20240108_BerninaPass_1920x1080.jpg)
