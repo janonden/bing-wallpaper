@@ -1,0 +1,50 @@
+name: Download Bing.com wallpaper
+
+on:
+  workflow_dispatch:
+  schedule:
+    - cron:  '5 */4 * * *'
+
+jobs:
+  # This workflow contains a single job called "build"
+  build:
+    # The type of runner that the job will run on
+    runs-on: ubuntu-latest
+
+    # Steps represent a sequence of tasks that will be executed as part of the job
+    steps:
+      # Checks-out your repository under $GITHUB_WORKSPACE, so your job can access it
+      - uses: actions/checkout@v3
+      - name: Setup Python
+        uses: actions/setup-python@v4
+        with:
+          python-version: '3.x'
+      - name: Cache pip
+        uses: actions/cache@v3
+        with:
+          # This path is specific to Ubuntu
+          path: ~/.cache/pip
+          # Look to see if there is a cache hit for the corresponding requirements file
+          key: ${{ runner.os }}-pip-${{ hashFiles('requirements.txt') }}
+          restore-keys: |
+            ${{ runner.os }}-pip-
+            ${{ runner.os }}-
+      - name: Install dependencies
+        run: pip install -r requirements.txt
+      - name: Download image
+        run: |
+          python BingWallPaper.py
+      - name: Commit
+        run: |
+          git config user.name ${{ secrets.USER_NAME }}
+          git config user.email ${{ secrets.USER_EMAIL }}
+          gitstatus=`git status --porcelain`
+          [ -n "$gitstatus" ] && echo 'git add' && git add images/ README.md
+          [ -n "$gitstatus" ] && echo 'git comit' && git commit -m "auto commit from github actions"
+          [ -z "$gitstatus" ] && echo 'no update'
+          echo 'commit end'
+      - name: Push
+        uses: ad-m/github-push-action@master
+        with:
+          github_token: ${{ secrets.GITHUB_TOKEN }}
+          branch: main
