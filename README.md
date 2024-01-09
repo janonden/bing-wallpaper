@@ -1,4 +1,4 @@
-#### 20240109 格兰德河上空的热气球，阿尔伯克基，新墨西哥州，美国 (© Jennifer MacCornack/Shutterstock)
+#### 20240109 Hot air balloons over the Rio Grande, Albuquerque, New Mexico (© Jennifer MacCornack/Shutterstock)
 
 ![](images/2024-01/20240109_BalloonDay_1920x1080.jpg)
 
