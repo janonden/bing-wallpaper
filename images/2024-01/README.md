@@ -1,3 +1,7 @@
+#### 20240110 米罗伯塔莫斯海岸线上的楼梯，色萨利，希腊 (© Orestis Zoumpos/Amazing Aerial Agency)
+
+![](20240110_MilopotamosStairs_1920x1080.jpg)
+
 #### 20240109 Hot air balloons over the Rio Grande, Albuquerque, New Mexico (© Jennifer MacCornack/Shutterstock)
 
 ![](20240109_BalloonDay_1920x1080.jpg)

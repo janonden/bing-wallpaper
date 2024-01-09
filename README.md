@@ -1,3 +1,7 @@
+#### 20240110 米罗伯塔莫斯海岸线上的楼梯，色萨利，希腊 (© Orestis Zoumpos/Amazing Aerial Agency)
+
+![](images/2024-01/20240110_MilopotamosStairs_1920x1080.jpg)
+
 #### 20240109 Hot air balloons over the Rio Grande, Albuquerque, New Mexico (© Jennifer MacCornack/Shutterstock)
 
 ![](images/2024-01/20240109_BalloonDay_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240102 贾斯旺萨达陵墓和梅兰加尔古堡，焦特布尔，拉贾斯坦邦，印度 (© Twenty47studio/Getty images)
 
 ![](images/2024-01/20240102_MehrangarhJodhpur_1920x1080.jpg)
-
-#### 20240102 Prayer flags in Phobjikha Valley, Bhutan (© John Warburton-Lee/DanitaDelimont.com)
-
-![](images/2024-01/20240102_BhutanSolstice_1920x1080.jpg)
 
 
 
