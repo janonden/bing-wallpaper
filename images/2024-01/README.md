@@ -2,6 +2,10 @@
 
 ![](20240110_MilopotamosStairs_1920x1080.jpg)
 
+#### 20240110 Eurasischer Luchs im Schnee (© Jan Stria/Shutterstock)
+
+![](20240110_LynxSnow_1920x1080.jpg)
+
 #### 20240109 Hot air balloons over the Rio Grande, Albuquerque, New Mexico (© Jennifer MacCornack/Shutterstock)
 
 ![](20240109_BalloonDay_1920x1080.jpg)

@@ -2,6 +2,10 @@
 
 ![](images/2024-01/20240110_MilopotamosStairs_1920x1080.jpg)
 
+#### 20240110 Eurasischer Luchs im Schnee (© Jan Stria/Shutterstock)
+
+![](images/2024-01/20240110_LynxSnow_1920x1080.jpg)
+
 #### 20240109 Hot air balloons over the Rio Grande, Albuquerque, New Mexico (© Jennifer MacCornack/Shutterstock)
 
 ![](images/2024-01/20240109_BalloonDay_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240103 Bodleian Library, University of Oxford, England (© Andrew Holt/Getty Images)
 
 ![](images/2024-01/20240103_BodleianCeiling_1920x1080.jpg)
-
-#### 20240102 贾斯旺萨达陵墓和梅兰加尔古堡，焦特布尔，拉贾斯坦邦，印度 (© Twenty47studio/Getty images)
-
-![](images/2024-01/20240102_MehrangarhJodhpur_1920x1080.jpg)
 
 
 
