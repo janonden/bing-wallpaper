@@ -1,4 +1,4 @@
-#### 20240110 米罗伯塔莫斯海岸线上的楼梯，色萨利，希腊 (© Orestis Zoumpos/Amazing Aerial Agency)
+#### 20240110 Stairs on the shoreline at Mylopotamos Beach, Thessaly, Greece (© Orestis Zoumpos/Amazing Aerial Agency)
 
 ![](20240110_MilopotamosStairs_1920x1080.jpg)
 
