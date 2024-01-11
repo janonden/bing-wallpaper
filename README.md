@@ -1,3 +1,7 @@
+#### 20240111 Früchte-im-Frost-und-Eis-versteckt,-Göttingen (© Duncan Usher/Alamy Stock Foto)
+
+![](images/2024-01/20240111_OrnamentalAppleTree_1920x1080.jpg)
+
 #### 20240110 Stairs on the shoreline at Mylopotamos Beach, Thessaly, Greece (© Orestis Zoumpos/Amazing Aerial Agency)
 
 ![](images/2024-01/20240110_MilopotamosStairs_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240103 Coucher de soleil sur les lacs des Chéserys, Chamonix-Mont Blanc, France (© Smit/Shutterstock)
 
 ![](images/2024-01/20240103_Cheserys_1920x1080.jpg)
-
-#### 20240103 Bodleian Library, University of Oxford, England (© Andrew Holt/Getty Images)
-
-![](images/2024-01/20240103_BodleianCeiling_1920x1080.jpg)
 
 
 

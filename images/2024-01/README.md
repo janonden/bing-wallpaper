@@ -1,3 +1,7 @@
+#### 20240111 Früchte-im-Frost-und-Eis-versteckt,-Göttingen (© Duncan Usher/Alamy Stock Foto)
+
+![](20240111_OrnamentalAppleTree_1920x1080.jpg)
+
 #### 20240110 Stairs on the shoreline at Mylopotamos Beach, Thessaly, Greece (© Orestis Zoumpos/Amazing Aerial Agency)
 
 ![](20240110_MilopotamosStairs_1920x1080.jpg)
