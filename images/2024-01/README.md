@@ -6,7 +6,7 @@
 
 ![](20240110_MilopotamosStairs_1920x1080.jpg)
 
-#### 20240110 Eurasischer Luchs im Schnee (© Jan Stria/Shutterstock)
+#### 20240110 Eurasian lynx in the snow (© Jan Stria/Shutterstock)
 
 ![](20240110_LynxSnow_1920x1080.jpg)
 
