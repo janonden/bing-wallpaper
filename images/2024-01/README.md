@@ -1,3 +1,7 @@
+#### 20240112 北汉山国立公园，韩国 (© TRAVEL TAKE PHOTOS/Shutterstock)
+
+![](20240112_BukhansanSeoul_1920x1080.jpg)
+
 #### 20240111 Früchte-im-Frost-und-Eis-versteckt,-Göttingen (© Duncan Usher/Alamy Stock Foto)
 
 ![](20240111_OrnamentalAppleTree_1920x1080.jpg)
