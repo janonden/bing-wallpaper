@@ -1,3 +1,11 @@
+#### 20240113 哈纳之路，毛伊岛，夏威夷，美国 (© Matteo Colombo/Getty Images)
+
+![](images/2024-01/20240113_HanaHighway_1920x1080.jpg)
+
+#### 20240113 勝尾寺の勝ちダルマ, 大阪府 箕面市 (© feathercollector/Adobe Stock)
+
+![](images/2024-01/20240113_Daruma_1920x1080.jpg)
+
 #### 20240112 Bukhansan National Park, South Korea (© TRAVEL TAKE PHOTOS/Shutterstock)
 
 ![](images/2024-01/20240112_BukhansanSeoul_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20240104 Klosterkirche St. Peter auf dem Schwarzwald, Südschwarzwald, Baden-Württemberg (© Reinhard Schmid/Huber/eStock Photo)
 
 ![](images/2024-01/20240104_StPeterMonastery_1920x1080.jpg)
-
-#### 20240104 Golden Gate Bridge, San Francisco, California (© Jim Patterson/Tandem Stills + Motion)
-
-![](images/2024-01/20240104_GoldenGateLight_1920x1080.jpg)
-
-#### 20240103 明尼汪卡湖，阿尔伯塔省，加拿大 (© Ken Phung/500px/Getty Images)
-
-![](images/2024-01/20240103_MinnewankaLake_1920x1080.jpg)
 
 
 

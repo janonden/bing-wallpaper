@@ -1,3 +1,11 @@
+#### 20240113 哈纳之路，毛伊岛，夏威夷，美国 (© Matteo Colombo/Getty Images)
+
+![](20240113_HanaHighway_1920x1080.jpg)
+
+#### 20240113 勝尾寺の勝ちダルマ, 大阪府 箕面市 (© feathercollector/Adobe Stock)
+
+![](20240113_Daruma_1920x1080.jpg)
+
 #### 20240112 Bukhansan National Park, South Korea (© TRAVEL TAKE PHOTOS/Shutterstock)
 
 ![](20240112_BukhansanSeoul_1920x1080.jpg)
