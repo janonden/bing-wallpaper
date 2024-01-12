@@ -1,4 +1,4 @@
-#### 20240112 北汉山国立公园，韩国 (© TRAVEL TAKE PHOTOS/Shutterstock)
+#### 20240112 Bukhansan National Park, South Korea (© TRAVEL TAKE PHOTOS/Shutterstock)
 
 ![](images/2024-01/20240112_BukhansanSeoul_1920x1080.jpg)
 
