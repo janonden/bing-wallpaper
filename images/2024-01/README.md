@@ -1,3 +1,7 @@
+#### 20240114 屈斜路湖的天鹅，日本 (© Darrell Gulin/DanitaDelimont.com)
+
+![](20240114_HokkaidoSwans_1920x1080.jpg)
+
 #### 20240113 Road to Hana, Maui, Hawaii (© Matteo Colombo/Getty Images)
 
 ![](20240113_HanaHighway_1920x1080.jpg)

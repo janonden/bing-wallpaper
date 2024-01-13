@@ -1,3 +1,7 @@
+#### 20240114 屈斜路湖的天鹅，日本 (© Darrell Gulin/DanitaDelimont.com)
+
+![](images/2024-01/20240114_HokkaidoSwans_1920x1080.jpg)
+
 #### 20240113 Road to Hana, Maui, Hawaii (© Matteo Colombo/Getty Images)
 
 ![](images/2024-01/20240113_HanaHighway_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240105 巴伐利亚阿尔卑斯山脉，德国 (© JFL Photography/Adobe Stock)
 
 ![](images/2024-01/20240105_AlpsReflecting_1920x1080.jpg)
-
-#### 20240104 Klosterkirche St. Peter auf dem Schwarzwald, Südschwarzwald, Baden-Württemberg (© Reinhard Schmid/Huber/eStock Photo)
-
-![](images/2024-01/20240104_StPeterMonastery_1920x1080.jpg)
 
 
 
