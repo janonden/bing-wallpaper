@@ -1,4 +1,4 @@
-#### 20240113 哈纳之路，毛伊岛，夏威夷，美国 (© Matteo Colombo/Getty Images)
+#### 20240113 Road to Hana, Maui, Hawaii (© Matteo Colombo/Getty Images)
 
 ![](20240113_HanaHighway_1920x1080.jpg)
 
