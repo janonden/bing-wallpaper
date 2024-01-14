@@ -1,3 +1,7 @@
+#### 20240115 瓦茨曼山脚下的冰教堂，巴伐利亚，德国 (© Christian Bäck/eStock Photo)
+
+![](20240115_IceChapel_1920x1080.jpg)
+
 #### 20240114 Whooper swans in Lake Kussharo, Japan (© Darrell Gulin/DanitaDelimont.com)
 
 ![](20240114_HokkaidoSwans_1920x1080.jpg)

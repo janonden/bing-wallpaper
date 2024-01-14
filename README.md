@@ -1,3 +1,7 @@
+#### 20240115 瓦茨曼山脚下的冰教堂，巴伐利亚，德国 (© Christian Bäck/eStock Photo)
+
+![](images/2024-01/20240115_IceChapel_1920x1080.jpg)
+
 #### 20240114 Whooper swans in Lake Kussharo, Japan (© Darrell Gulin/DanitaDelimont.com)
 
 ![](images/2024-01/20240114_HokkaidoSwans_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240105 International Ice and Snow Sculpture Festival, Harbin, China (© WANG ZHAO/AFP/Getty Images)
 
 ![](images/2024-01/20240105_HarbinFestival_1920x1080.jpg)
-
-#### 20240105 巴伐利亚阿尔卑斯山脉，德国 (© JFL Photography/Adobe Stock)
-
-![](images/2024-01/20240105_AlpsReflecting_1920x1080.jpg)
 
 
 
