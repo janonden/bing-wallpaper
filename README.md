@@ -1,4 +1,4 @@
-#### 20240114 屈斜路湖的天鹅，日本 (© Darrell Gulin/DanitaDelimont.com)
+#### 20240114 Whooper swans in Lake Kussharo, Japan (© Darrell Gulin/DanitaDelimont.com)
 
 ![](images/2024-01/20240114_HokkaidoSwans_1920x1080.jpg)
 
