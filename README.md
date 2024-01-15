@@ -1,3 +1,7 @@
+#### 20240115 Chevaux comtois, Jura, Bourgogne-Franche-Comté, France (© Philippe Saire Photography/Getty Images)
+
+![](images/2024-01/20240115_SnowHorses_1920x1080.jpg)
+
 #### 20240115 瓦茨曼山脚下的冰教堂，巴伐利亚，德国 (© Christian Bäck/eStock Photo)
 
 ![](images/2024-01/20240115_IceChapel_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240106 Male chaffinch perched on a crab apple tree in winter (© Mark Hamblin/2020VISION/Minden Pictures)
 
 ![](images/2024-01/20240106_CrabappleChaffinch_1920x1080.jpg)
-
-#### 20240105 International Ice and Snow Sculpture Festival, Harbin, China (© WANG ZHAO/AFP/Getty Images)
-
-![](images/2024-01/20240105_HarbinFestival_1920x1080.jpg)
 
 
 
