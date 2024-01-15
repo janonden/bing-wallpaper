@@ -2,9 +2,17 @@
 
 ![](images/2024-01/20240115_SnowHorses_1920x1080.jpg)
 
+#### 20240115 Martin Luther King Jr. Memorial, Washington, DC (© kropic1/Shutterstock)
+
+![](images/2024-01/20240115_MLKMemorialDC_1920x1080.jpg)
+
 #### 20240115 瓦茨曼山脚下的冰教堂，巴伐利亚，德国 (© Christian Bäck/eStock Photo)
 
 ![](images/2024-01/20240115_IceChapel_1920x1080.jpg)
+
+#### 20240115 Geomagnetic storm at night, Penticton, British Columbia, Canada (© DEEPOL by plainpicture/Preserved Light Photography)
+
+![](images/2024-01/20240115_AuroraBritishColumbia_1920x1080.jpg)
 
 #### 20240114 Whooper swans in Lake Kussharo, Japan (© Darrell Gulin/DanitaDelimont.com)
 
@@ -49,14 +57,6 @@
 #### 20240106 Vermilion Lakes, Banff, Canada (© Carlos Fernandez/Moment/Getty Images)
 
 ![](images/2024-01/20240106_VermilionLakesCA_1920x1080.jpg)
-
-#### 20240106 Antilles françaises, Guadeloupe, brume sur le volcan de la Soufrière (© Walter Bibikow/Getty Images)
-
-![](images/2024-01/20240106_GuadeloupeCarnival_1920x1080.jpg)
-
-#### 20240106 Male chaffinch perched on a crab apple tree in winter (© Mark Hamblin/2020VISION/Minden Pictures)
-
-![](images/2024-01/20240106_CrabappleChaffinch_1920x1080.jpg)
 
 
 
