@@ -1,3 +1,7 @@
+#### 20240116 路易斯湖，班夫国家公园，阿尔伯塔省，加拿大 (© Mr. Simon Paul/Shutterstock)
+
+![](20240116_LakeLouise_1920x1080.jpg)
+
 #### 20240115 Chevaux comtois, Jura, Bourgogne-Franche-Comté, France (© Philippe Saire Photography/Getty Images)
 
 ![](20240115_SnowHorses_1920x1080.jpg)

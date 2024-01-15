@@ -1,3 +1,7 @@
+#### 20240116 路易斯湖，班夫国家公园，阿尔伯塔省，加拿大 (© Mr. Simon Paul/Shutterstock)
+
+![](images/2024-01/20240116_LakeLouise_1920x1080.jpg)
+
 #### 20240115 Chevaux comtois, Jura, Bourgogne-Franche-Comté, France (© Philippe Saire Photography/Getty Images)
 
 ![](images/2024-01/20240115_SnowHorses_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240107 Karlu Karlu/Devils Marbles Conservation Reserve, Australia (© Yva Momatiuk and John Eastcott/Minden Pictures)
 
 ![](images/2024-01/20240107_DevilsMarbles_1920x1080.jpg)
-
-#### 20240106 Vermilion Lakes, Banff, Canada (© Carlos Fernandez/Moment/Getty Images)
-
-![](images/2024-01/20240106_VermilionLakesCA_1920x1080.jpg)
 
 
 
