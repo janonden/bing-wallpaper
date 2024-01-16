@@ -1,3 +1,7 @@
+#### 20240117 巴伐利亚森林国家公园里睡觉的狼，德国 (© Raimund Linke/Getty Images)
+
+![](20240117_SleepyWolf_1920x1080.jpg)
+
 #### 20240116 Lake Louise, Banff National Park, Alberta, Canada (© Mr. Simon Paul/Shutterstock)
 
 ![](20240116_LakeLouise_1920x1080.jpg)

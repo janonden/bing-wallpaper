@@ -1,3 +1,7 @@
+#### 20240117 巴伐利亚森林国家公园里睡觉的狼，德国 (© Raimund Linke/Getty Images)
+
+![](images/2024-01/20240117_SleepyWolf_1920x1080.jpg)
+
 #### 20240116 Lake Louise, Banff National Park, Alberta, Canada (© Mr. Simon Paul/Shutterstock)
 
 ![](images/2024-01/20240116_LakeLouise_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240108 Skier at Bernina Pass, Graubünden, Switzerland (© Francesco Bergamaschi/Getty Images)
 
 ![](images/2024-01/20240108_BerninaPass_1920x1080.jpg)
-
-#### 20240107 Karlu Karlu/Devils Marbles Conservation Reserve, Australia (© Yva Momatiuk and John Eastcott/Minden Pictures)
-
-![](images/2024-01/20240107_DevilsMarbles_1920x1080.jpg)
 
 
 
