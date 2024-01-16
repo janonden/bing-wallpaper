@@ -1,4 +1,4 @@
-#### 20240116 路易斯湖，班夫国家公园，阿尔伯塔省，加拿大 (© Mr. Simon Paul/Shutterstock)
+#### 20240116 Lake Louise, Banff National Park, Alberta, Canada (© Mr. Simon Paul/Shutterstock)
 
 ![](20240116_LakeLouise_1920x1080.jpg)
 
