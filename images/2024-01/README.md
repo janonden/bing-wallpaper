@@ -1,4 +1,4 @@
-#### 20240117 巴伐利亚森林国家公园里睡觉的狼，德国 (© Raimund Linke/Getty Images)
+#### 20240117 Sleeping wolf in Bavarian Forest National Park, Germany (© Raimund Linke/Getty Images)
 
 ![](20240117_SleepyWolf_1920x1080.jpg)
 
