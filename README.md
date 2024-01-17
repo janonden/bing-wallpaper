@@ -1,3 +1,7 @@
+#### 20240118 黄昏时分的亚历山大三世桥，巴黎，法国 (© Sizun Eye/Getty Images)
+
+![](images/2024-01/20240118_ParisBridge_1920x1080.jpg)
+
 #### 20240117 Sleeping wolf in Bavarian Forest National Park, Germany (© Raimund Linke/Getty Images)
 
 ![](images/2024-01/20240117_SleepyWolf_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240109 Hot air balloons over the Rio Grande, Albuquerque, New Mexico (© Jennifer MacCornack/Shutterstock)
 
 ![](images/2024-01/20240109_BalloonDay_1920x1080.jpg)
-
-#### 20240108 Skier at Bernina Pass, Graubünden, Switzerland (© Francesco Bergamaschi/Getty Images)
-
-![](images/2024-01/20240108_BerninaPass_1920x1080.jpg)
 
 
 
