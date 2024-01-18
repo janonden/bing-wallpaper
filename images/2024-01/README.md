@@ -1,4 +1,4 @@
-#### 20240118 黄昏时分的亚历山大三世桥，巴黎，法国 (© Sizun Eye/Getty Images)
+#### 20240118 Pont Alexandre III at twilight, Paris, France (© Sizun Eye/Getty Images)
 
 ![](20240118_ParisBridge_1920x1080.jpg)
 
