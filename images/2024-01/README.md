@@ -1,3 +1,7 @@
+#### 20240119 十六湖国家公园，克罗地亚 (© Massimo_S8/Getty Images)
+
+![](20240119_PlitviceWinter_1920x1080.jpg)
+
 #### 20240118 Pont Alexandre III at twilight, Paris, France (© Sizun Eye/Getty Images)
 
 ![](20240118_ParisBridge_1920x1080.jpg)

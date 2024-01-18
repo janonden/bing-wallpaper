@@ -1,3 +1,7 @@
+#### 20240119 十六湖国家公园，克罗地亚 (© Massimo_S8/Getty Images)
+
+![](images/2024-01/20240119_PlitviceWinter_1920x1080.jpg)
+
 #### 20240118 Pont Alexandre III at twilight, Paris, France (© Sizun Eye/Getty Images)
 
 ![](images/2024-01/20240118_ParisBridge_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240110 Eurasian lynx in the snow (© Jan Stria/Shutterstock)
 
 ![](images/2024-01/20240110_LynxSnow_1920x1080.jpg)
-
-#### 20240109 Hot air balloons over the Rio Grande, Albuquerque, New Mexico (© Jennifer MacCornack/Shutterstock)
-
-![](images/2024-01/20240109_BalloonDay_1920x1080.jpg)
 
 
 
