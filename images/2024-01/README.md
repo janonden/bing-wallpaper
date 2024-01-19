@@ -1,3 +1,11 @@
+#### 20240120 马可罗尼企鹅，德雷克海峡，智利 (© Paul Souders/Getty Images)
+
+![](20240120_MacaroniPenguins_1920x1080.jpg)
+
+#### 20240120 音羽橋から見る川霧に佇むタンチョウ, 北海道 阿寒郡 (© Natapong Supalertsophon/Getty Images)
+
+![](20240120_Daikan_1920x1080.jpg)
+
 #### 20240119 Frozen waterfalls in Plitvice Lakes National Park, Croatia (© Massimo_S8/Getty Images)
 
 ![](20240119_PlitviceWinter_1920x1080.jpg)
