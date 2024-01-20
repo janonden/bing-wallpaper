@@ -1,3 +1,7 @@
+#### 20240121 欧亚红松鼠，荷兰 (© Ernst Dirksen/Minden Pictures)
+
+![](20240121_SquirrelNetherlands_1920x1080.jpg)
+
 #### 20240120 Macaroni penguins, Drake Passage, Chile (© Paul Souders/Getty Images)
 
 ![](20240120_MacaroniPenguins_1920x1080.jpg)

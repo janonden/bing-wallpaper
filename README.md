@@ -1,3 +1,7 @@
+#### 20240121 欧亚红松鼠，荷兰 (© Ernst Dirksen/Minden Pictures)
+
+![](images/2024-01/20240121_SquirrelNetherlands_1920x1080.jpg)
+
 #### 20240120 Macaroni penguins, Drake Passage, Chile (© Paul Souders/Getty Images)
 
 ![](images/2024-01/20240120_MacaroniPenguins_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240113 勝尾寺の勝ちダルマ, 大阪府 箕面市 (© feathercollector/Adobe Stock)
 
 ![](images/2024-01/20240113_Daruma_1920x1080.jpg)
-
-#### 20240112 Bukhansan National Park, South Korea (© TRAVEL TAKE PHOTOS/Shutterstock)
-
-![](images/2024-01/20240112_BukhansanSeoul_1920x1080.jpg)
 
 
 
