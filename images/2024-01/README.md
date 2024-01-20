@@ -6,6 +6,10 @@
 
 ![](20240120_Daikan_1920x1080.jpg)
 
+#### 20240120 Château de Castelnaud avant le lever du soleil, Dordogne, France (© Gareth Kirkland/Alamy Stock Photo)
+
+![](20240120_Castlenaud_1920x1080.jpg)
+
 #### 20240119 Frozen waterfalls in Plitvice Lakes National Park, Croatia (© Massimo_S8/Getty Images)
 
 ![](20240119_PlitviceWinter_1920x1080.jpg)

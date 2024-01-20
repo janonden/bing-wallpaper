@@ -6,6 +6,10 @@
 
 ![](images/2024-01/20240120_Daikan_1920x1080.jpg)
 
+#### 20240120 Château de Castelnaud avant le lever du soleil, Dordogne, France (© Gareth Kirkland/Alamy Stock Photo)
+
+![](images/2024-01/20240120_Castlenaud_1920x1080.jpg)
+
 #### 20240119 Frozen waterfalls in Plitvice Lakes National Park, Croatia (© Massimo_S8/Getty Images)
 
 ![](images/2024-01/20240119_PlitviceWinter_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240112 Bukhansan National Park, South Korea (© TRAVEL TAKE PHOTOS/Shutterstock)
 
 ![](images/2024-01/20240112_BukhansanSeoul_1920x1080.jpg)
-
-#### 20240111 Früchte-im-Frost-und-Eis-versteckt,-Göttingen (© Duncan Usher/Alamy Stock Foto)
-
-![](images/2024-01/20240111_OrnamentalAppleTree_1920x1080.jpg)
 
 
 
