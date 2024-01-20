@@ -1,4 +1,4 @@
-#### 20240120 马可罗尼企鹅，德雷克海峡，智利 (© Paul Souders/Getty Images)
+#### 20240120 Macaroni penguins, Drake Passage, Chile (© Paul Souders/Getty Images)
 
 ![](images/2024-01/20240120_MacaroniPenguins_1920x1080.jpg)
 
