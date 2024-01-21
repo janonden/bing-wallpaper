@@ -1,3 +1,7 @@
+#### 20240122 冬季日出，沃尔顿灯塔，圣克鲁斯, 加利福尼亚州, 美国 (© Jeff Lewis/Tandem Stills + Motion)
+
+![](20240122_SantaCruzSunrise_1920x1080.jpg)
+
 #### 20240121 Eurasian red squirrel, Netherlands (© Ernst Dirksen/Minden Pictures)
 
 ![](20240121_SquirrelNetherlands_1920x1080.jpg)

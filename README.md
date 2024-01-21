@@ -1,3 +1,7 @@
+#### 20240122 冬季日出，沃尔顿灯塔，圣克鲁斯, 加利福尼亚州, 美国 (© Jeff Lewis/Tandem Stills + Motion)
+
+![](images/2024-01/20240122_SantaCruzSunrise_1920x1080.jpg)
+
 #### 20240121 Eurasian red squirrel, Netherlands (© Ernst Dirksen/Minden Pictures)
 
 ![](images/2024-01/20240121_SquirrelNetherlands_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240113 Road to Hana, Maui, Hawaii (© Matteo Colombo/Getty Images)
 
 ![](images/2024-01/20240113_HanaHighway_1920x1080.jpg)
-
-#### 20240113 勝尾寺の勝ちダルマ, 大阪府 箕面市 (© feathercollector/Adobe Stock)
-
-![](images/2024-01/20240113_Daruma_1920x1080.jpg)
 
 
 
