@@ -1,4 +1,4 @@
-#### 20240121 欧亚红松鼠，荷兰 (© Ernst Dirksen/Minden Pictures)
+#### 20240121 Eurasian red squirrel, Netherlands (© Ernst Dirksen/Minden Pictures)
 
 ![](20240121_SquirrelNetherlands_1920x1080.jpg)
 
