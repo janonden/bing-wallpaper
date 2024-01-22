@@ -1,3 +1,7 @@
+#### 20240123 印度洋的环礁，马尔代夫 (© Amazing Aerial Premium/Shutterstock)
+
+![](images/2024-01/20240123_MaldivesAtolls_1920x1080.jpg)
+
 #### 20240122 Winter sunrise, Walton Lighthouse, Santa Cruz, California (© Jeff Lewis/Tandem Stills + Motion)
 
 ![](images/2024-01/20240122_SantaCruzSunrise_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240115 Geomagnetic storm at night, Penticton, British Columbia, Canada (© DEEPOL by plainpicture/Preserved Light Photography)
 
 ![](images/2024-01/20240115_AuroraBritishColumbia_1920x1080.jpg)
-
-#### 20240114 Whooper swans in Lake Kussharo, Japan (© Darrell Gulin/DanitaDelimont.com)
-
-![](images/2024-01/20240114_HokkaidoSwans_1920x1080.jpg)
 
 
 

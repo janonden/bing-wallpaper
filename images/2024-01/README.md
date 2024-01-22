@@ -1,3 +1,7 @@
+#### 20240123 印度洋的环礁，马尔代夫 (© Amazing Aerial Premium/Shutterstock)
+
+![](20240123_MaldivesAtolls_1920x1080.jpg)
+
 #### 20240122 Winter sunrise, Walton Lighthouse, Santa Cruz, California (© Jeff Lewis/Tandem Stills + Motion)
 
 ![](20240122_SantaCruzSunrise_1920x1080.jpg)
