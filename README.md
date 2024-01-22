@@ -1,4 +1,4 @@
-#### 20240122 冬季日出，沃尔顿灯塔，圣克鲁斯, 加利福尼亚州, 美国 (© Jeff Lewis/Tandem Stills + Motion)
+#### 20240122 Winter sunrise, Walton Lighthouse, Santa Cruz, California (© Jeff Lewis/Tandem Stills + Motion)
 
 ![](images/2024-01/20240122_SantaCruzSunrise_1920x1080.jpg)
 
