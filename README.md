@@ -2,6 +2,10 @@
 
 ![](images/2024-01/20240122_SantaCruzSunrise_1920x1080.jpg)
 
+#### 20240122 Beatus-Rhenanus-Brücke über den Rhein, zwischen Straßburg und Kehl, Straßburg, Frankreich (© mauritius images GmbH/Alamy)
+
+![](images/2024-01/20240122_RenanusBridge_1920x1080.jpg)
+
 #### 20240121 Eurasian red squirrel, Netherlands (© Ernst Dirksen/Minden Pictures)
 
 ![](images/2024-01/20240121_SquirrelNetherlands_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240114 Whooper swans in Lake Kussharo, Japan (© Darrell Gulin/DanitaDelimont.com)
 
 ![](images/2024-01/20240114_HokkaidoSwans_1920x1080.jpg)
-
-#### 20240113 Road to Hana, Maui, Hawaii (© Matteo Colombo/Getty Images)
-
-![](images/2024-01/20240113_HanaHighway_1920x1080.jpg)
 
 
 

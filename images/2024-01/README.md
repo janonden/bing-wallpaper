@@ -2,6 +2,10 @@
 
 ![](20240122_SantaCruzSunrise_1920x1080.jpg)
 
+#### 20240122 Beatus-Rhenanus-Brücke über den Rhein, zwischen Straßburg und Kehl, Straßburg, Frankreich (© mauritius images GmbH/Alamy)
+
+![](20240122_RenanusBridge_1920x1080.jpg)
+
 #### 20240121 Eurasian red squirrel, Netherlands (© Ernst Dirksen/Minden Pictures)
 
 ![](20240121_SquirrelNetherlands_1920x1080.jpg)
