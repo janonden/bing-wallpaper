@@ -1,4 +1,4 @@
-#### 20240123 印度洋的环礁，马尔代夫 (© Amazing Aerial Premium/Shutterstock)
+#### 20240123 Atolls in Indian Ocean, Maldives (© Amazing Aerial Premium/Shutterstock)
 
 ![](20240123_MaldivesAtolls_1920x1080.jpg)
 
