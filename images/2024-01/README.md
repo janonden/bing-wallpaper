@@ -1,3 +1,7 @@
+#### 20240124 钻石冰沙滩，冰岛 (© Rachid Dahnoun/Tandem Stills + Motion)
+
+![](20240124_IcelandBeach_1920x1080.jpg)
+
 #### 20240123 Atolls in Indian Ocean, Maldives (© Amazing Aerial Premium/Shutterstock)
 
 ![](20240123_MaldivesAtolls_1920x1080.jpg)
