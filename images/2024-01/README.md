@@ -1,3 +1,7 @@
+#### 20240125 圣德温教堂的废墟，莫纳岛，威尔士，英国 (© Photos by R A Kearton/Getty Images)
+
+![](20240125_DwynwensDay_1920x1080.jpg)
+
 #### 20240124 Diamond Beach, Iceland (© Rachid Dahnoun/Tandem Stills + Motion)
 
 ![](20240124_IcelandBeach_1920x1080.jpg)

@@ -1,3 +1,7 @@
+#### 20240125 圣德温教堂的废墟，莫纳岛，威尔士，英国 (© Photos by R A Kearton/Getty Images)
+
+![](images/2024-01/20240125_DwynwensDay_1920x1080.jpg)
+
 #### 20240124 Diamond Beach, Iceland (© Rachid Dahnoun/Tandem Stills + Motion)
 
 ![](images/2024-01/20240124_IcelandBeach_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240115 Martin Luther King Jr. Memorial, Washington, DC (© kropic1/Shutterstock)
 
 ![](images/2024-01/20240115_MLKMemorialDC_1920x1080.jpg)
-
-#### 20240115 瓦茨曼山脚下的冰教堂，巴伐利亚，德国 (© Christian Bäck/eStock Photo)
-
-![](images/2024-01/20240115_IceChapel_1920x1080.jpg)
 
 
 
