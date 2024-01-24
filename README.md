@@ -1,4 +1,4 @@
-#### 20240124 钻石冰沙滩，冰岛 (© Rachid Dahnoun/Tandem Stills + Motion)
+#### 20240124 Diamond Beach, Iceland (© Rachid Dahnoun/Tandem Stills + Motion)
 
 ![](images/2024-01/20240124_IcelandBeach_1920x1080.jpg)
 
