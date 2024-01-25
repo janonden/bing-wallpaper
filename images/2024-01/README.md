@@ -1,4 +1,8 @@
-#### 20240125 圣德温教堂的废墟，莫纳岛，威尔士，英国 (© Photos by R A Kearton/Getty Images)
+#### 20240125 A snowy owl on the icy field, Quebec City, Canada (© Marco Pozzi Photographer/Moment/Getty Images)
+
+![](20240125_SnowyOwlQuebec_1920x1080.jpg)
+
+#### 20240125 Ruins of St. Dwynwen's Church, Ynys Llanddwyn, Wales (© Photos by R A Kearton/Getty Images)
 
 ![](20240125_DwynwensDay_1920x1080.jpg)
 
