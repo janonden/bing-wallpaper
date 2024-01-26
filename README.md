@@ -1,3 +1,11 @@
+#### 20240127 氷の宮殿, 米国 ミネソタ州 (© Joe Mamer Photography/Alamy)
+
+![](images/2024-01/20240127_WinterCarnival_1920x1080.jpg)
+
+#### 20240127 点嘴小巨嘴鸟，大西洋森林，巴西 (© aaprophoto/Getty Images)
+
+![](images/2024-01/20240127_ToucanetEmpoleirado_1920x1080.jpg)
+
 #### 20240126 Northern hawk-owl (© Remo Savisaar/Alamy)
 
 ![](images/2024-01/20240126_HawkOwl_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20240118 Pont Alexandre III at twilight, Paris, France (© Sizun Eye/Getty Images)
 
 ![](images/2024-01/20240118_ParisBridge_1920x1080.jpg)
-
-#### 20240117 Sleeping wolf in Bavarian Forest National Park, Germany (© Raimund Linke/Getty Images)
-
-![](images/2024-01/20240117_SleepyWolf_1920x1080.jpg)
-
-#### 20240116 Lake Louise, Banff National Park, Alberta, Canada (© Mr. Simon Paul/Shutterstock)
-
-![](images/2024-01/20240116_LakeLouise_1920x1080.jpg)
 
 
 

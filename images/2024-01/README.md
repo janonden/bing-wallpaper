@@ -1,3 +1,11 @@
+#### 20240127 氷の宮殿, 米国 ミネソタ州 (© Joe Mamer Photography/Alamy)
+
+![](20240127_WinterCarnival_1920x1080.jpg)
+
+#### 20240127 点嘴小巨嘴鸟，大西洋森林，巴西 (© aaprophoto/Getty Images)
+
+![](20240127_ToucanetEmpoleirado_1920x1080.jpg)
+
 #### 20240126 Northern hawk-owl (© Remo Savisaar/Alamy)
 
 ![](20240126_HawkOwl_1920x1080.jpg)
