@@ -1,4 +1,4 @@
-#### 20240126 北鹰鸮 (© Remo Savisaar/Alamy Stock Photo)
+#### 20240126 Northern hawk-owl (© Remo Savisaar/Alamy)
 
 ![](20240126_HawkOwl_1920x1080.jpg)
 
