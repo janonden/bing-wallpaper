@@ -1,4 +1,4 @@
-#### 20240127 氷の宮殿, 米国 ミネソタ州 (© Joe Mamer Photography/Alamy)
+#### 20240127 Ice palace at the St. Paul Winter Carnival, Minnesota (© Joe Mamer Photography/Alamy)
 
 ![](images/2024-01/20240127_WinterCarnival_1920x1080.jpg)
 
