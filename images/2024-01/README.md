@@ -1,3 +1,7 @@
+#### 20240128 昆士兰州内陆海峡地区，澳大利亚 (© Southern Lightscapes-Australia/Getty Images)
+
+![](20240128_ChannelOutback_1920x1080.jpg)
+
 #### 20240127 Ice palace at the St. Paul Winter Carnival, Minnesota (© Joe Mamer Photography/Alamy)
 
 ![](20240127_WinterCarnival_1920x1080.jpg)

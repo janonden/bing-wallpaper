@@ -1,3 +1,7 @@
+#### 20240128 昆士兰州内陆海峡地区，澳大利亚 (© Southern Lightscapes-Australia/Getty Images)
+
+![](images/2024-01/20240128_ChannelOutback_1920x1080.jpg)
+
 #### 20240127 Ice palace at the St. Paul Winter Carnival, Minnesota (© Joe Mamer Photography/Alamy)
 
 ![](images/2024-01/20240127_WinterCarnival_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240119 Frozen waterfalls in Plitvice Lakes National Park, Croatia (© Massimo_S8/Getty Images)
 
 ![](images/2024-01/20240119_PlitviceWinter_1920x1080.jpg)
-
-#### 20240118 Pont Alexandre III at twilight, Paris, France (© Sizun Eye/Getty Images)
-
-![](images/2024-01/20240118_ParisBridge_1920x1080.jpg)
 
 
 
