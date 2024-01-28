@@ -1,3 +1,7 @@
+#### 20240129 戈林格瀑布，泰嫩高，萨尔茨堡，奥地利 (© Frank Fischbach/Alamy Stock Photo)
+
+![](images/2024-01/20240129_GollingerFalls_1920x1080.jpg)
+
 #### 20240128 Renard roux, Lac des Truites, Soultzeren, Alsace, France (© gmo-pixel/500px/Getty Images)
 
 ![](images/2024-01/20240128_SnowFox_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240120 音羽橋から見る川霧に佇むタンチョウ, 北海道 阿寒郡 (© Natapong Supalertsophon/Getty Images)
 
 ![](images/2024-01/20240120_Daikan_1920x1080.jpg)
-
-#### 20240120 Château de Castelnaud avant le lever du soleil, Dordogne, France (© Gareth Kirkland/Alamy Stock Photo)
-
-![](images/2024-01/20240120_Castlenaud_1920x1080.jpg)
 
 
 

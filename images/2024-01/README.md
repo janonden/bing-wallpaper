@@ -1,3 +1,7 @@
+#### 20240129 戈林格瀑布，泰嫩高，萨尔茨堡，奥地利 (© Frank Fischbach/Alamy Stock Photo)
+
+![](20240129_GollingerFalls_1920x1080.jpg)
+
 #### 20240128 Renard roux, Lac des Truites, Soultzeren, Alsace, France (© gmo-pixel/500px/Getty Images)
 
 ![](20240128_SnowFox_1920x1080.jpg)
