@@ -1,3 +1,7 @@
+#### 20240128 Renard roux, Lac des Truites, Soultzeren, Alsace, France (© gmo-pixel/500px/Getty Images)
+
+![](images/2024-01/20240128_SnowFox_1920x1080.jpg)
+
 #### 20240128 昆士兰州内陆海峡地区，澳大利亚 (© Southern Lightscapes-Australia/Getty Images)
 
 ![](images/2024-01/20240128_ChannelOutback_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240120 Château de Castelnaud avant le lever du soleil, Dordogne, France (© Gareth Kirkland/Alamy Stock Photo)
 
 ![](images/2024-01/20240120_Castlenaud_1920x1080.jpg)
-
-#### 20240119 Frozen waterfalls in Plitvice Lakes National Park, Croatia (© Massimo_S8/Getty Images)
-
-![](images/2024-01/20240119_PlitviceWinter_1920x1080.jpg)
 
 
 
