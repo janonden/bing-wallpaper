@@ -2,7 +2,7 @@
 
 ![](20240128_SnowFox_1920x1080.jpg)
 
-#### 20240128 昆士兰州内陆海峡地区，澳大利亚 (© Southern Lightscapes-Australia/Getty Images)
+#### 20240128 Channel Country, Outback Queensland, Australia (© Southern Lightscapes-Australia/Getty Images)
 
 ![](20240128_ChannelOutback_1920x1080.jpg)
 
