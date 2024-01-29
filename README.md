@@ -1,4 +1,4 @@
-#### 20240129 戈林格瀑布，泰嫩高，萨尔茨堡，奥地利 (© Frank Fischbach/Alamy Stock Photo)
+#### 20240129 Golling Waterfall, Tennengau, Salzburg, Austria (© Frank Fischbach/Alamy)
 
 ![](images/2024-01/20240129_GollingerFalls_1920x1080.jpg)
 
