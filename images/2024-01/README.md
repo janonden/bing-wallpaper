@@ -1,3 +1,7 @@
+#### 20240130 艾纳, 塞古拉山脉, 阿尔瓦塞特, 西班牙 (© Juan Maria Coy Vergara/Getty Images)
+
+![](20240130_AlbaceteSpain_1920x1080.jpg)
+
 #### 20240129 Golling Waterfall, Tennengau, Salzburg, Austria (© Frank Fischbach/Alamy)
 
 ![](20240129_GollingerFalls_1920x1080.jpg)

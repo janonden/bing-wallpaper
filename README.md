@@ -1,3 +1,7 @@
+#### 20240130 艾纳, 塞古拉山脉, 阿尔瓦塞特, 西班牙 (© Juan Maria Coy Vergara/Getty Images)
+
+![](images/2024-01/20240130_AlbaceteSpain_1920x1080.jpg)
+
 #### 20240129 Golling Waterfall, Tennengau, Salzburg, Austria (© Frank Fischbach/Alamy)
 
 ![](images/2024-01/20240129_GollingerFalls_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240120 Macaroni penguins, Drake Passage, Chile (© Paul Souders/Getty Images)
 
 ![](images/2024-01/20240120_MacaroniPenguins_1920x1080.jpg)
-
-#### 20240120 音羽橋から見る川霧に佇むタンチョウ, 北海道 阿寒郡 (© Natapong Supalertsophon/Getty Images)
-
-![](images/2024-01/20240120_Daikan_1920x1080.jpg)
 
 
 
