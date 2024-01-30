@@ -1,3 +1,7 @@
+#### 20240131 布氏斑马妈妈和小马驹，里特弗雷自然保护区，南非 (© Richard Du Toit/Minden Pictures)
+
+![](20240131_ZebraMother_1920x1080.jpg)
+
 #### 20240130 Aýna, Sierra del Segura, Albacete, Spain (© Juan Maria Coy Vergara/Getty Images)
 
 ![](20240130_AlbaceteSpain_1920x1080.jpg)

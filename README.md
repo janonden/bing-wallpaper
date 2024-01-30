@@ -1,3 +1,7 @@
+#### 20240131 布氏斑马妈妈和小马驹，里特弗雷自然保护区，南非 (© Richard Du Toit/Minden Pictures)
+
+![](images/2024-01/20240131_ZebraMother_1920x1080.jpg)
+
 #### 20240130 Aýna, Sierra del Segura, Albacete, Spain (© Juan Maria Coy Vergara/Getty Images)
 
 ![](images/2024-01/20240130_AlbaceteSpain_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240121 Eurasian red squirrel, Netherlands (© Ernst Dirksen/Minden Pictures)
 
 ![](images/2024-01/20240121_SquirrelNetherlands_1920x1080.jpg)
-
-#### 20240120 Macaroni penguins, Drake Passage, Chile (© Paul Souders/Getty Images)
-
-![](images/2024-01/20240120_MacaroniPenguins_1920x1080.jpg)
 
 
 
