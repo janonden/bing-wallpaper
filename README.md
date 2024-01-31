@@ -1,3 +1,11 @@
+#### 20240201 吕根岛的萨斯尼茨灯塔，德国 (© Christian Back/eStock)
+
+![](images/2024-02/20240201_HalbinselJasmund_1920x1080.jpg)
+
+#### 20240201 デヴェタシュカ洞窟, ブルガリア (© Jasmine_K/Shutterstock)
+
+![](images/2024-02/20240201_DevetashkaCave_1920x1080.jpg)
+
 #### 20240131 Burchell's zebra mother and foal, Rietvlei Nature Reserve, South Africa (© Richard Du Toit/Minden Pictures)
 
 ![](images/2024-01/20240131_ZebraMother_1920x1080.jpg)
@@ -50,14 +58,6 @@
 
 ![](images/2024-01/20240122_SantaCruzSunrise_1920x1080.jpg)
 
-#### 20240122 Beatus-Rhenanus-Brücke über den Rhein, zwischen Straßburg und Kehl, Straßburg, Frankreich (© mauritius images GmbH/Alamy)
-
-![](images/2024-01/20240122_RenanusBridge_1920x1080.jpg)
-
-#### 20240121 Eurasian red squirrel, Netherlands (© Ernst Dirksen/Minden Pictures)
-
-![](images/2024-01/20240121_SquirrelNetherlands_1920x1080.jpg)
-
 
 
 
@@ -66,7 +66,7 @@
 
 
 
-- 2024&emsp;&emsp;[01](images/2024-01/README.md) 
+- 2024&emsp;&emsp;[02](images/2024-02/README.md) &emsp;&emsp;[01](images/2024-01/README.md) 
 
 - 2023&emsp;&emsp;[12](https://github.com/janonden/bing-wallpaper/blob/2023/images/2023-12/README.md) &emsp;&emsp;[11](https://github.com/janonden/bing-wallpaper/blob/2023/images/2023-11/README.md) &emsp;&emsp;[10](https://github.com/janonden/bing-wallpaper/blob/2023/images/2023-10/README.md) &emsp;&emsp;[09](https://github.com/janonden/bing-wallpaper/blob/2023/images/2023-09/README.md) &emsp;&emsp;[08](https://github.com/janonden/bing-wallpaper/blob/2023/images/2023-08/README.md) &emsp;&emsp;[07](https://github.com/janonden/bing-wallpaper/blob/2023/images/2023-07/README.md) &emsp;&emsp;[06](https://github.com/janonden/bing-wallpaper/blob/2023/images/2023-06/README.md) &emsp;&emsp;[05](https://github.com/janonden/bing-wallpaper/blob/2023/images/2023-05/README.md) &emsp;&emsp;[04](https://github.com/janonden/bing-wallpaper/blob/2023/images/2023-04/README.md) &emsp;&emsp;[03](https://github.com/janonden/bing-wallpaper/blob/2023/images/2023-03/README.md) &emsp;&emsp;[02](https://github.com/janonden/bing-wallpaper/blob/2023/images/2023-02/README.md) &emsp;&emsp;[01](https://github.com/janonden/bing-wallpaper/blob/2023/images/2023-01/README.md) 
 
