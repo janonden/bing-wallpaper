@@ -1,6 +1,14 @@
+#### 20240201 Polar bear resting in rocky landscape, Churchill, Manitoba, Canada (© Warwick Sloss/NPL/Minden Pictures)
+
+![](20240201_PolarBearResting_1920x1080.jpg)
+
 #### 20240201 吕根岛的萨斯尼茨灯塔，德国 (© Christian Back/eStock)
 
 ![](20240201_HalbinselJasmund_1920x1080.jpg)
+
+#### 20240201 Dizzy Gillespie in 1990 at the 32nd Monterey Jazz Festival, California (© Craig Lovell/Eagle Visions Photography/Alamy)
+
+![](20240201_DizzyGillespie_1920x1080.jpg)
 
 #### 20240201 デヴェタシュカ洞窟, ブルガリア (© Jasmine_K/Shutterstock)
 

@@ -1,6 +1,14 @@
+#### 20240201 Polar bear resting in rocky landscape, Churchill, Manitoba, Canada (© Warwick Sloss/NPL/Minden Pictures)
+
+![](images/2024-02/20240201_PolarBearResting_1920x1080.jpg)
+
 #### 20240201 吕根岛的萨斯尼茨灯塔，德国 (© Christian Back/eStock)
 
 ![](images/2024-02/20240201_HalbinselJasmund_1920x1080.jpg)
+
+#### 20240201 Dizzy Gillespie in 1990 at the 32nd Monterey Jazz Festival, California (© Craig Lovell/Eagle Visions Photography/Alamy)
+
+![](images/2024-02/20240201_DizzyGillespie_1920x1080.jpg)
 
 #### 20240201 デヴェタシュカ洞窟, ブルガリア (© Jasmine_K/Shutterstock)
 
@@ -49,14 +57,6 @@
 #### 20240124 Diamond Beach, Iceland (© Rachid Dahnoun/Tandem Stills + Motion)
 
 ![](images/2024-01/20240124_IcelandBeach_1920x1080.jpg)
-
-#### 20240123 Atolls in Indian Ocean, Maldives (© Amazing Aerial Premium/Shutterstock)
-
-![](images/2024-01/20240123_MaldivesAtolls_1920x1080.jpg)
-
-#### 20240122 Winter sunrise, Walton Lighthouse, Santa Cruz, California (© Jeff Lewis/Tandem Stills + Motion)
-
-![](images/2024-01/20240122_SantaCruzSunrise_1920x1080.jpg)
 
 
 
