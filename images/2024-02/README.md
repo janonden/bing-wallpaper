@@ -1,3 +1,7 @@
+#### 20240202 从洞穴中探出头的土拨鼠 (© Scacciamosche/Getty Images)
+
+![](20240202_AlpineMarmot_1920x1080.jpg)
+
 #### 20240201 Polar bear resting in rocky landscape, Churchill, Manitoba, Canada (© Warwick Sloss/NPL/Minden Pictures)
 
 ![](20240201_PolarBearResting_1920x1080.jpg)

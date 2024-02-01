@@ -1,3 +1,7 @@
+#### 20240202 从洞穴中探出头的土拨鼠 (© Scacciamosche/Getty Images)
+
+![](images/2024-02/20240202_AlpineMarmot_1920x1080.jpg)
+
 #### 20240201 Polar bear resting in rocky landscape, Churchill, Manitoba, Canada (© Warwick Sloss/NPL/Minden Pictures)
 
 ![](images/2024-02/20240201_PolarBearResting_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240125 Ruins of St. Dwynwen's Church, Ynys Llanddwyn, Wales (© Photos by R A Kearton/Getty Images)
 
 ![](images/2024-01/20240125_DwynwensDay_1920x1080.jpg)
-
-#### 20240124 Diamond Beach, Iceland (© Rachid Dahnoun/Tandem Stills + Motion)
-
-![](images/2024-01/20240124_IcelandBeach_1920x1080.jpg)
 
 
 
