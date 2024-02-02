@@ -2,7 +2,7 @@
 
 ![](images/2024-02/20240202_Chandeleur_1920x1080.jpg)
 
-#### 20240202 从洞穴中探出头的土拨鼠 (© Scacciamosche/Getty Images)
+#### 20240202 Marmot peeking out of its burrow (© Scacciamosche/Getty Images)
 
 ![](images/2024-02/20240202_AlpineMarmot_1920x1080.jpg)
 
