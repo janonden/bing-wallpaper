@@ -1,3 +1,7 @@
+#### 20240202 L’arche de Port-Blanc, Saint-Pierre-Quiberon, France (© DaLiu/Getty Images)
+
+![](images/2024-02/20240202_Chandeleur_1920x1080.jpg)
+
 #### 20240202 从洞穴中探出头的土拨鼠 (© Scacciamosche/Getty Images)
 
 ![](images/2024-02/20240202_AlpineMarmot_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240125 A snowy owl on the icy field, Quebec City, Canada (© Marco Pozzi Photographer/Moment/Getty Images)
 
 ![](images/2024-01/20240125_SnowyOwlQuebec_1920x1080.jpg)
-
-#### 20240125 Ruins of St. Dwynwen's Church, Ynys Llanddwyn, Wales (© Photos by R A Kearton/Getty Images)
-
-![](images/2024-01/20240125_DwynwensDay_1920x1080.jpg)
 
 
 

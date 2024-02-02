@@ -1,3 +1,7 @@
+#### 20240202 L’arche de Port-Blanc, Saint-Pierre-Quiberon, France (© DaLiu/Getty Images)
+
+![](20240202_Chandeleur_1920x1080.jpg)
+
 #### 20240202 从洞穴中探出头的土拨鼠 (© Scacciamosche/Getty Images)
 
 ![](20240202_AlpineMarmot_1920x1080.jpg)
