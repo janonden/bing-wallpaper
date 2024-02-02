@@ -1,3 +1,11 @@
+#### 20240203 大运河与安康圣母大教堂，威尼斯，意大利 (© Rudy Balasko/Getty Images)
+
+![](images/2024-02/20240203_VeniceCarnival_1920x1080.jpg)
+
+#### 20240203 函館山から見る夜景, 北海道 函館市 (© Hiro1775/Getty Images)
+
+![](images/2024-02/20240203_Hakodate_1920x1080.jpg)
+
 #### 20240202 L’arche de Port-Blanc, Saint-Pierre-Quiberon, France (© DaLiu/Getty Images)
 
 ![](images/2024-02/20240202_Chandeleur_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20240127 点嘴小巨嘴鸟，大西洋森林，巴西 (© aaprophoto/Getty Images)
 
 ![](images/2024-01/20240127_ToucanetEmpoleirado_1920x1080.jpg)
-
-#### 20240126 Northern hawk-owl (© Remo Savisaar/Alamy)
-
-![](images/2024-01/20240126_HawkOwl_1920x1080.jpg)
-
-#### 20240125 A snowy owl on the icy field, Quebec City, Canada (© Marco Pozzi Photographer/Moment/Getty Images)
-
-![](images/2024-01/20240125_SnowyOwlQuebec_1920x1080.jpg)
 
 
 

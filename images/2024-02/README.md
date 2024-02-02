@@ -1,3 +1,11 @@
+#### 20240203 大运河与安康圣母大教堂，威尼斯，意大利 (© Rudy Balasko/Getty Images)
+
+![](20240203_VeniceCarnival_1920x1080.jpg)
+
+#### 20240203 函館山から見る夜景, 北海道 函館市 (© Hiro1775/Getty Images)
+
+![](20240203_Hakodate_1920x1080.jpg)
+
 #### 20240202 L’arche de Port-Blanc, Saint-Pierre-Quiberon, France (© DaLiu/Getty Images)
 
 ![](20240202_Chandeleur_1920x1080.jpg)
