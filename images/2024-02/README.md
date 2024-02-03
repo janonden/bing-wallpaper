@@ -1,4 +1,4 @@
-#### 20240203 大运河与安康圣母大教堂，威尼斯，意大利 (© Rudy Balasko/Getty Images)
+#### 20240203 Grand Canal with Santa Maria della Salute Basilica, Venice, Italy (© RudyBalasko/Getty Images)
 
 ![](20240203_VeniceCarnival_1920x1080.jpg)
 
