@@ -1,3 +1,7 @@
+#### 20240204 梅の枝に止まるメジロ  (© pheeby/Adobe Stock)
+
+![](20240204_Risshun_1920x1080.jpg)
+
 #### 20240203 Grand Canal with Santa Maria della Salute Basilica, Venice, Italy (© RudyBalasko/Getty Images)
 
 ![](20240203_VeniceCarnival_1920x1080.jpg)

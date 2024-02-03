@@ -1,3 +1,7 @@
+#### 20240204 梅の枝に止まるメジロ  (© pheeby/Adobe Stock)
+
+![](images/2024-02/20240204_Risshun_1920x1080.jpg)
+
 #### 20240203 Grand Canal with Santa Maria della Salute Basilica, Venice, Italy (© RudyBalasko/Getty Images)
 
 ![](images/2024-02/20240203_VeniceCarnival_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240127 Ice palace at the St. Paul Winter Carnival, Minnesota (© Joe Mamer Photography/Alamy)
 
 ![](images/2024-01/20240127_WinterCarnival_1920x1080.jpg)
-
-#### 20240127 点嘴小巨嘴鸟，大西洋森林，巴西 (© aaprophoto/Getty Images)
-
-![](images/2024-01/20240127_ToucanetEmpoleirado_1920x1080.jpg)
 
 
 
