@@ -1,3 +1,11 @@
+#### 20240205 テイデ国立公園, スペイン (© Javier Martínez Morán/Alamy)
+
+![](images/2024-02/20240205_TeideNational_1920x1080.jpg)
+
+#### 20240205 从奥索伊尼察观景点看日出时的布莱德湖，斯洛文尼亚 (© Rasica/Getty Images)
+
+![](images/2024-02/20240205_LakeBledSunrise_1920x1080.jpg)
+
 #### 20240204 梅の枝に止まるメジロ  (© pheeby/Adobe Stock)
 
 ![](images/2024-02/20240204_Risshun_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20240128 Renard roux, Lac des Truites, Soultzeren, Alsace, France (© gmo-pixel/500px/Getty Images)
 
 ![](images/2024-01/20240128_SnowFox_1920x1080.jpg)
-
-#### 20240128 Channel Country, Outback Queensland, Australia (© Southern Lightscapes-Australia/Getty Images)
-
-![](images/2024-01/20240128_ChannelOutback_1920x1080.jpg)
-
-#### 20240127 Ice palace at the St. Paul Winter Carnival, Minnesota (© Joe Mamer Photography/Alamy)
-
-![](images/2024-01/20240127_WinterCarnival_1920x1080.jpg)
 
 
 

@@ -1,3 +1,11 @@
+#### 20240205 テイデ国立公園, スペイン (© Javier Martínez Morán/Alamy)
+
+![](20240205_TeideNational_1920x1080.jpg)
+
+#### 20240205 从奥索伊尼察观景点看日出时的布莱德湖，斯洛文尼亚 (© Rasica/Getty Images)
+
+![](20240205_LakeBledSunrise_1920x1080.jpg)
+
 #### 20240204 梅の枝に止まるメジロ  (© pheeby/Adobe Stock)
 
 ![](20240204_Risshun_1920x1080.jpg)
