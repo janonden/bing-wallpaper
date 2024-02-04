@@ -30,7 +30,7 @@
 
 ![](images/2024-02/20240201_DizzyGillespie_1920x1080.jpg)
 
-#### 20240201 デヴェタシュカ洞窟, ブルガリア (© Jasmine_K/Shutterstock)
+#### 20240201 Devetashka Cave, Devetaki, Bulgaria (© Jasmine_K/Shutterstock)
 
 ![](images/2024-02/20240201_DevetashkaCave_1920x1080.jpg)
 
