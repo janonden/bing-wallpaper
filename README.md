@@ -1,3 +1,7 @@
+#### 20240206 盆景岩，太浩湖，内华达州，美国 (© Jim Patterson/Tandem Stills + Motion)
+
+![](images/2024-02/20240206_LakeTahoeRock_1920x1080.jpg)
+
 #### 20240205 Monarch butterflies, Goleta, California (© Craig Rademacher/500px/Getty Images)
 
 ![](images/2024-02/20240205_WesternMonarchs_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240131 Burchell's zebra mother and foal, Rietvlei Nature Reserve, South Africa (© Richard Du Toit/Minden Pictures)
 
 ![](images/2024-01/20240131_ZebraMother_1920x1080.jpg)
-
-#### 20240130 Aýna, Sierra del Segura, Albacete, Spain (© Juan Maria Coy Vergara/Getty Images)
-
-![](images/2024-01/20240130_AlbaceteSpain_1920x1080.jpg)
 
 
 

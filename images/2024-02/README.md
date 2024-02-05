@@ -1,3 +1,7 @@
+#### 20240206 盆景岩，太浩湖，内华达州，美国 (© Jim Patterson/Tandem Stills + Motion)
+
+![](20240206_LakeTahoeRock_1920x1080.jpg)
+
 #### 20240205 Monarch butterflies, Goleta, California (© Craig Rademacher/500px/Getty Images)
 
 ![](20240205_WesternMonarchs_1920x1080.jpg)
