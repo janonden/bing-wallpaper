@@ -1,4 +1,4 @@
-#### 20240205 Papillons monarques, Goleta, Californie, États-Unis (© Craig Rademacher/500px/Getty Images)
+#### 20240205 Monarch butterflies, Goleta, California (© Craig Rademacher/500px/Getty Images)
 
 ![](20240205_WesternMonarchs_1920x1080.jpg)
 
