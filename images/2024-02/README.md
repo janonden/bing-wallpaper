@@ -1,4 +1,4 @@
-#### 20240206 盆景岩，太浩湖，内华达州，美国 (© Jim Patterson/Tandem Stills + Motion)
+#### 20240206 Bonsai Rock, Lake Tahoe, Nevada (© Jim Patterson/Tandem Stills + Motion)
 
 ![](20240206_LakeTahoeRock_1920x1080.jpg)
 
