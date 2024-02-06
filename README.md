@@ -1,3 +1,11 @@
+#### 20240207 圣詹姆斯潮汐池，开普敦，南非 (© AmazingAerialAgency/Adobe)
+
+![](images/2024-02/20240207_StJamesPool_1920x1080.jpg)
+
+#### 20240207 ヴェルドン峡谷, フランス (© Hemis/Alamy)
+
+![](images/2024-02/20240207_GrandCanyonVerdon_1920x1080.jpg)
+
 #### 20240206 Bonsai Rock, Lake Tahoe, Nevada (© Jim Patterson/Tandem Stills + Motion)
 
 ![](images/2024-02/20240206_LakeTahoeRock_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20240201 Dizzy Gillespie in 1990 at the 32nd Monterey Jazz Festival, California (© Craig Lovell/Eagle Visions Photography/Alamy)
 
 ![](images/2024-02/20240201_DizzyGillespie_1920x1080.jpg)
-
-#### 20240201 Devetashka Cave, Devetaki, Bulgaria (© Jasmine_K/Shutterstock)
-
-![](images/2024-02/20240201_DevetashkaCave_1920x1080.jpg)
-
-#### 20240131 Burchell's zebra mother and foal, Rietvlei Nature Reserve, South Africa (© Richard Du Toit/Minden Pictures)
-
-![](images/2024-01/20240131_ZebraMother_1920x1080.jpg)
 
 
 

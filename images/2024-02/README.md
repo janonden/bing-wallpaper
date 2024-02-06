@@ -1,3 +1,11 @@
+#### 20240207 圣詹姆斯潮汐池，开普敦，南非 (© AmazingAerialAgency/Adobe)
+
+![](20240207_StJamesPool_1920x1080.jpg)
+
+#### 20240207 ヴェルドン峡谷, フランス (© Hemis/Alamy)
+
+![](20240207_GrandCanyonVerdon_1920x1080.jpg)
+
 #### 20240206 Bonsai Rock, Lake Tahoe, Nevada (© Jim Patterson/Tandem Stills + Motion)
 
 ![](20240206_LakeTahoeRock_1920x1080.jpg)
