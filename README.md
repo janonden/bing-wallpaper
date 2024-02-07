@@ -1,4 +1,4 @@
-#### 20240207 圣詹姆斯潮汐池，开普敦，南非 (© AmazingAerialAgency/Adobe)
+#### 20240207 St. James Tidal Pool, Cape Town, South Africa (© AmazingAerialAgency/Adobe)
 
 ![](images/2024-02/20240207_StJamesPool_1920x1080.jpg)
 
