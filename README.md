@@ -1,3 +1,7 @@
+#### 20240208 胡德山，俄勒冈州，美国 (© Inigo Cia/Getty Images)
+
+![](images/2024-02/20240208_MtHoodOregon_1920x1080.jpg)
+
 #### 20240207 St. James Tidal Pool, Cape Town, South Africa (© AmazingAerialAgency/Adobe)
 
 ![](images/2024-02/20240207_StJamesPool_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240201 吕根岛的萨斯尼茨灯塔，德国 (© Christian Back/eStock)
 
 ![](images/2024-02/20240201_HalbinselJasmund_1920x1080.jpg)
-
-#### 20240201 Dizzy Gillespie in 1990 at the 32nd Monterey Jazz Festival, California (© Craig Lovell/Eagle Visions Photography/Alamy)
-
-![](images/2024-02/20240201_DizzyGillespie_1920x1080.jpg)
 
 
 

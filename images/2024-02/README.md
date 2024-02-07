@@ -1,3 +1,7 @@
+#### 20240208 胡德山，俄勒冈州，美国 (© Inigo Cia/Getty Images)
+
+![](20240208_MtHoodOregon_1920x1080.jpg)
+
 #### 20240207 St. James Tidal Pool, Cape Town, South Africa (© AmazingAerialAgency/Adobe)
 
 ![](20240207_StJamesPool_1920x1080.jpg)
