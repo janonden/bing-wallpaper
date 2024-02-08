@@ -1,4 +1,4 @@
-#### 20240208 胡德山，俄勒冈州，美国 (© Inigo Cia/Getty Images)
+#### 20240208 Mount Hood, Oregon (© Inigo Cia/Getty Images)
 
 ![](images/2024-02/20240208_MtHoodOregon_1920x1080.jpg)
 
