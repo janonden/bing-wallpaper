@@ -1,3 +1,11 @@
+#### 20240209 お城の雪像, 北海道 札幌市 (© Terry Donnelly/Alamy Stock Photo)
+
+![](20240209_SapporoSnowFest_1920x1080.jpg)
+
+#### 20240209 灯光秀点亮夜幕中的西安城墙，中国春节 (© Eastimages/Getty Images)
+
+![](20240209_ChineseNewYearEve_1920x1080.jpg)
+
 #### 20240208 Mount Hood, Oregon (© Inigo Cia/Getty Images)
 
 ![](20240208_MtHoodOregon_1920x1080.jpg)
