@@ -54,9 +54,9 @@
 
 ![](images/2024-02/20240204_Risshun_1920x1080.jpg)
 
-#### 20240203 Grand Canal with Santa Maria della Salute Basilica, Venice, Italy (© RudyBalasko/Getty Images)
+#### 20240204 Devetashka Cave, Devetaki, Bulgaria (© Jasmine_K/Shutterstock)
 
-![](images/2024-02/20240203_VeniceCarnival_1920x1080.jpg)
+![](images/2024-02/20240204_DevetashkaCave_1920x1080.jpg)
 
 
 
