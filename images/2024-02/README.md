@@ -1,3 +1,11 @@
+#### 20240210 中国舞狮，大年初一 (© SENEZ/Getty Images)
+
+![](20240210_SpringFestival_1920x1080.jpg)
+
+#### 20240210 華やかな龍舞, 中国 四川省 瀘州市 (© Liu Guoxing/VCG via Getty Images)
+
+![](20240210_ChinaDragon_1920x1080.jpg)
+
 #### 20240209 お城の雪像, 北海道 札幌市 (© Terry Donnelly/Alamy Stock Photo)
 
 ![](20240209_SapporoSnowFest_1920x1080.jpg)

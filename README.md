@@ -1,3 +1,11 @@
+#### 20240210 中国舞狮，大年初一 (© SENEZ/Getty Images)
+
+![](images/2024-02/20240210_SpringFestival_1920x1080.jpg)
+
+#### 20240210 華やかな龍舞, 中国 四川省 瀘州市 (© Liu Guoxing/VCG via Getty Images)
+
+![](images/2024-02/20240210_ChinaDragon_1920x1080.jpg)
+
 #### 20240209 お城の雪像, 北海道 札幌市 (© Terry Donnelly/Alamy Stock Photo)
 
 ![](images/2024-02/20240209_SapporoSnowFest_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20240203 Grand Canal with Santa Maria della Salute Basilica, Venice, Italy (© RudyBalasko/Getty Images)
 
 ![](images/2024-02/20240203_VeniceCarnival_1920x1080.jpg)
-
-#### 20240203 函館山から見る夜景, 北海道 函館市 (© Hiro1775/Getty Images)
-
-![](images/2024-02/20240203_Hakodate_1920x1080.jpg)
-
-#### 20240202 L’arche de Port-Blanc, Saint-Pierre-Quiberon, France (© DaLiu/Getty Images)
-
-![](images/2024-02/20240202_Chandeleur_1920x1080.jpg)
 
 
 
