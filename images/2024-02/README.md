@@ -2,6 +2,10 @@
 
 ![](20240209_SapporoSnowFest_1920x1080.jpg)
 
+#### 20240209 Pegadung-Felsen, Lampung, Sumatra, Indonesien (© CK NG/500px/Getty Images)
+
+![](20240209_PegadungRocks_1920x1080.jpg)
+
 #### 20240209 灯光秀点亮夜幕中的西安城墙，中国春节 (© Eastimages/Getty Images)
 
 ![](20240209_ChineseNewYearEve_1920x1080.jpg)

@@ -2,6 +2,10 @@
 
 ![](images/2024-02/20240209_SapporoSnowFest_1920x1080.jpg)
 
+#### 20240209 Pegadung-Felsen, Lampung, Sumatra, Indonesien (© CK NG/500px/Getty Images)
+
+![](images/2024-02/20240209_PegadungRocks_1920x1080.jpg)
+
 #### 20240209 灯光秀点亮夜幕中的西安城墙，中国春节 (© Eastimages/Getty Images)
 
 ![](images/2024-02/20240209_ChineseNewYearEve_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240202 L’arche de Port-Blanc, Saint-Pierre-Quiberon, France (© DaLiu/Getty Images)
 
 ![](images/2024-02/20240202_Chandeleur_1920x1080.jpg)
-
-#### 20240202 Marmot peeking out of its burrow (© Scacciamosche/Getty Images)
-
-![](images/2024-02/20240202_AlpineMarmot_1920x1080.jpg)
 
 
 
