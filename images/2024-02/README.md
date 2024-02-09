@@ -2,7 +2,7 @@
 
 ![](20240209_SapporoSnowFest_1920x1080.jpg)
 
-#### 20240209 Pegadung-Felsen, Lampung, Sumatra, Indonesien (© CK NG/500px/Getty Images)
+#### 20240209 Pegadung Rock, Lampung, Sumatra, Indonesia (© CK NG/500px/Getty Images)
 
 ![](20240209_PegadungRocks_1920x1080.jpg)
 
