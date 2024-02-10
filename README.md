@@ -2,6 +2,10 @@
 
 ![](images/2024-02/20240211_GiantAnteaterBR_1920x1080.jpg)
 
+#### 20240211 乔拉岛，福莱甘兹罗斯岛，基克拉泽斯群岛, 希腊 (© Francesco Riccardo Iacomino/Getty Images)
+
+![](images/2024-02/20240211_FolegandrosGreece_1920x1080.jpg)
+
 #### 20240210 中国舞狮，大年初一 (© SENEZ/Getty Images)
 
 ![](images/2024-02/20240210_SpringFestival_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240205 Innenansicht Münchner Nationaltheater Opernhaus, München, Bayern (© plainpicture/RelaxImages/WRIGHT)
 
 ![](images/2024-02/20240205_MunichOperaHouse_1920x1080.jpg)
-
-#### 20240205 从奥索伊尼察观景点看日出时的布莱德湖，斯洛文尼亚 (© Rasica/Getty Images)
-
-![](images/2024-02/20240205_LakeBledSunrise_1920x1080.jpg)
 
 
 

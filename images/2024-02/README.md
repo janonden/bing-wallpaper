@@ -2,6 +2,10 @@
 
 ![](20240211_GiantAnteaterBR_1920x1080.jpg)
 
+#### 20240211 乔拉岛，福莱甘兹罗斯岛，基克拉泽斯群岛, 希腊 (© Francesco Riccardo Iacomino/Getty Images)
+
+![](20240211_FolegandrosGreece_1920x1080.jpg)
+
 #### 20240210 中国舞狮，大年初一 (© SENEZ/Getty Images)
 
 ![](20240210_SpringFestival_1920x1080.jpg)
