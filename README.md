@@ -1,8 +1,16 @@
+#### 20240211 Giant anteater in the Pantanal, Brazil (© Pedro Ferreira do Amaral/Getty Images)
+
+![](images/2024-02/20240211_GiantAnteaterBR_1920x1080.jpg)
+
 #### 20240210 中国舞狮，大年初一 (© SENEZ/Getty Images)
 
 ![](images/2024-02/20240210_SpringFestival_1920x1080.jpg)
 
-#### 20240210 華やかな龍舞, 中国 四川省 瀘州市 (© Liu Guoxing/VCG via Getty Images)
+#### 20240210 Chinese New Year Parade, Vancouver, British Columbia, Canada (© Michael Wheatley/Alamy Stock Photo)
+
+![](images/2024-02/20240210_ChineseNYParade_1920x1080.jpg)
+
+#### 20240210 Artists performing the dragon dance for Chinese New Year, Luzhou, China (© Liu Guoxing/VCG via Getty Images)
 
 ![](images/2024-02/20240210_ChinaDragon_1920x1080.jpg)
 
@@ -49,14 +57,6 @@
 #### 20240205 从奥索伊尼察观景点看日出时的布莱德湖，斯洛文尼亚 (© Rasica/Getty Images)
 
 ![](images/2024-02/20240205_LakeBledSunrise_1920x1080.jpg)
-
-#### 20240204 梅の枝に止まるメジロ  (© pheeby/Adobe Stock)
-
-![](images/2024-02/20240204_Risshun_1920x1080.jpg)
-
-#### 20240204 Devetashka Cave, Devetaki, Bulgaria (© Jasmine_K/Shutterstock)
-
-![](images/2024-02/20240204_DevetashkaCave_1920x1080.jpg)
 
 
 
