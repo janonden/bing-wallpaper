@@ -1,3 +1,7 @@
+#### 20240212 阿尔塞多火山象龟, 伊莎贝拉岛, 加拉帕戈斯群岛，厄瓜多尔 (© Tui De Roy/Minden Pictures)
+
+![](images/2024-02/20240212_GiantTortoise_1920x1080.jpg)
+
 #### 20240211 Giant anteater in the Pantanal, Brazil (© Pedro Ferreira do Amaral/Getty Images)
 
 ![](images/2024-02/20240211_GiantAnteaterBR_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240205 テイデ国立公園, スペイン (© Javier Martínez Morán/Alamy)
 
 ![](images/2024-02/20240205_TeideNational_1920x1080.jpg)
-
-#### 20240205 Innenansicht Münchner Nationaltheater Opernhaus, München, Bayern (© plainpicture/RelaxImages/WRIGHT)
-
-![](images/2024-02/20240205_MunichOperaHouse_1920x1080.jpg)
 
 
 
