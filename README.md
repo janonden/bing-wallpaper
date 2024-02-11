@@ -2,7 +2,7 @@
 
 ![](images/2024-02/20240211_GiantAnteaterBR_1920x1080.jpg)
 
-#### 20240211 乔拉岛，福莱甘兹罗斯岛，基克拉泽斯群岛, 希腊 (© Francesco Riccardo Iacomino/Getty Images)
+#### 20240211 Chora, Folegandros Island, Cyclades, Greece (© Francesco Riccardo Iacomino/Getty Images)
 
 ![](images/2024-02/20240211_FolegandrosGreece_1920x1080.jpg)
 
