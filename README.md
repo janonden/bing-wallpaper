@@ -1,4 +1,4 @@
-#### 20240212 阿尔塞多火山象龟, 伊莎贝拉岛, 加拉帕戈斯群岛，厄瓜多尔 (© Tui De Roy/Minden Pictures)
+#### 20240212 Volcán Alcedo giant tortoises, Isabela Island, Galápagos, Ecuador (© Tui De Roy/Minden Pictures)
 
 ![](images/2024-02/20240212_GiantTortoise_1920x1080.jpg)
 
