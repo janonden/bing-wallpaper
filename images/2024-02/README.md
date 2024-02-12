@@ -1,3 +1,7 @@
+#### 20240213 马里尼的狂欢节彩珠，新奥尔良，美国 (© Erik Pronske Photography/Getty Images)
+
+![](20240213_MarignyBeads_1920x1080.jpg)
+
 #### 20240212 Volcán Alcedo giant tortoises, Isabela Island, Galápagos, Ecuador (© Tui De Roy/Minden Pictures)
 
 ![](20240212_GiantTortoise_1920x1080.jpg)

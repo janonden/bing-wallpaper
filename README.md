@@ -1,3 +1,7 @@
+#### 20240213 马里尼的狂欢节彩珠，新奥尔良，美国 (© Erik Pronske Photography/Getty Images)
+
+![](images/2024-02/20240213_MarignyBeads_1920x1080.jpg)
+
 #### 20240212 Volcán Alcedo giant tortoises, Isabela Island, Galápagos, Ecuador (© Tui De Roy/Minden Pictures)
 
 ![](images/2024-02/20240212_GiantTortoise_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240205 Monarch butterflies, Goleta, California (© Craig Rademacher/500px/Getty Images)
 
 ![](images/2024-02/20240205_WesternMonarchs_1920x1080.jpg)
-
-#### 20240205 テイデ国立公園, スペイン (© Javier Martínez Morán/Alamy)
-
-![](images/2024-02/20240205_TeideNational_1920x1080.jpg)
 
 
 
