@@ -2,6 +2,10 @@
 
 ![](20240214_Chandeleur_1920x1080.jpg)
 
+#### 20240214 丹顶鹤向伴侣鞠躬，北海道，日本 (© Steve Bloom Images/Alamy Stock Photo)
+
+![](20240214_BowingCrane_1920x1080.jpg)
+
 #### 20240213 Mardi Gras beads in the Marigny, New Orleans (© Erik Pronske Photography/Getty Images)
 
 ![](20240213_MarignyBeads_1920x1080.jpg)

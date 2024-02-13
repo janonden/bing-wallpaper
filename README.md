@@ -2,6 +2,10 @@
 
 ![](images/2024-02/20240214_Chandeleur_1920x1080.jpg)
 
+#### 20240214 丹顶鹤向伴侣鞠躬，北海道，日本 (© Steve Bloom Images/Alamy Stock Photo)
+
+![](images/2024-02/20240214_BowingCrane_1920x1080.jpg)
+
 #### 20240213 Mardi Gras beads in the Marigny, New Orleans (© Erik Pronske Photography/Getty Images)
 
 ![](images/2024-02/20240213_MarignyBeads_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240207 ヴェルドン峡谷, フランス (© Hemis/Alamy)
 
 ![](images/2024-02/20240207_GrandCanyonVerdon_1920x1080.jpg)
-
-#### 20240206 Bonsai Rock, Lake Tahoe, Nevada (© Jim Patterson/Tandem Stills + Motion)
-
-![](images/2024-02/20240206_LakeTahoeRock_1920x1080.jpg)
 
 
 
