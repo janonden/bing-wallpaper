@@ -1,4 +1,8 @@
-#### 20240213 马里尼的狂欢节彩珠，新奥尔良，美国 (© Erik Pronske Photography/Getty Images)
+#### 20240214 L’arche de Port-Blanc, Saint-Pierre-Quiberon, France (© DaLiu/Getty Images)
+
+![](images/2024-02/20240214_Chandeleur_1920x1080.jpg)
+
+#### 20240213 Mardi Gras beads in the Marigny, New Orleans (© Erik Pronske Photography/Getty Images)
 
 ![](images/2024-02/20240213_MarignyBeads_1920x1080.jpg)
 
@@ -53,10 +57,6 @@
 #### 20240206 Bonsai Rock, Lake Tahoe, Nevada (© Jim Patterson/Tandem Stills + Motion)
 
 ![](images/2024-02/20240206_LakeTahoeRock_1920x1080.jpg)
-
-#### 20240205 Monarch butterflies, Goleta, California (© Craig Rademacher/500px/Getty Images)
-
-![](images/2024-02/20240205_WesternMonarchs_1920x1080.jpg)
 
 
 
