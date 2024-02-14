@@ -2,7 +2,7 @@
 
 ![](images/2024-02/20240214_Chandeleur_1920x1080.jpg)
 
-#### 20240214 丹顶鹤向伴侣鞠躬，北海道，日本 (© Steve Bloom Images/Alamy Stock Photo)
+#### 20240214 Red-crowned crane bowing to his mate in Hokkaido, Japan (© Steve Bloom Images/Alamy)
 
 ![](images/2024-02/20240214_BowingCrane_1920x1080.jpg)
 
