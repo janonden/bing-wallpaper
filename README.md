@@ -1,3 +1,7 @@
+#### 20240215 河马妈妈和小河马，南卢安瓜国家公园，赞比亚 (© Nature Picture Library/Alamy Stock Photo)
+
+![](images/2024-02/20240215_HippopotamusDay_1920x1080.jpg)
+
 #### 20240214 L’arche de Port-Blanc, Saint-Pierre-Quiberon, France (© DaLiu/Getty Images)
 
 ![](images/2024-02/20240214_Chandeleur_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240207 St. James Tidal Pool, Cape Town, South Africa (© AmazingAerialAgency/Adobe)
 
 ![](images/2024-02/20240207_StJamesPool_1920x1080.jpg)
-
-#### 20240207 ヴェルドン峡谷, フランス (© Hemis/Alamy)
-
-![](images/2024-02/20240207_GrandCanyonVerdon_1920x1080.jpg)
 
 
 

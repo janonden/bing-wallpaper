@@ -1,3 +1,7 @@
+#### 20240215 河马妈妈和小河马，南卢安瓜国家公园，赞比亚 (© Nature Picture Library/Alamy Stock Photo)
+
+![](20240215_HippopotamusDay_1920x1080.jpg)
+
 #### 20240214 L’arche de Port-Blanc, Saint-Pierre-Quiberon, France (© DaLiu/Getty Images)
 
 ![](20240214_Chandeleur_1920x1080.jpg)
