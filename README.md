@@ -2,6 +2,10 @@
 
 ![](images/2024-02/20240215_HippopotamusDay_1920x1080.jpg)
 
+#### 20240215 Berlinale, roter Teppich am Potsdamer Platz, Berlin (© Cineberg/Getty Images)
+
+![](images/2024-02/20240215_BerlinalePalast_1920x1080.jpg)
+
 #### 20240214 L’arche de Port-Blanc, Saint-Pierre-Quiberon, France (© DaLiu/Getty Images)
 
 ![](images/2024-02/20240214_Chandeleur_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240208 Mount Hood, Oregon (© Inigo Cia/Getty Images)
 
 ![](images/2024-02/20240208_MtHoodOregon_1920x1080.jpg)
-
-#### 20240207 St. James Tidal Pool, Cape Town, South Africa (© AmazingAerialAgency/Adobe)
-
-![](images/2024-02/20240207_StJamesPool_1920x1080.jpg)
 
 
 

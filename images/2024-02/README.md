@@ -2,6 +2,10 @@
 
 ![](20240215_HippopotamusDay_1920x1080.jpg)
 
+#### 20240215 Berlinale, roter Teppich am Potsdamer Platz, Berlin (© Cineberg/Getty Images)
+
+![](20240215_BerlinalePalast_1920x1080.jpg)
+
 #### 20240214 L’arche de Port-Blanc, Saint-Pierre-Quiberon, France (© DaLiu/Getty Images)
 
 ![](20240214_Chandeleur_1920x1080.jpg)
