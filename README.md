@@ -1,4 +1,4 @@
-#### 20240215 河马妈妈和小河马，南卢安瓜国家公园，赞比亚 (© Nature Picture Library/Alamy Stock Photo)
+#### 20240215 Hippopotamus mother and calf, South Luangwa National Park, Zambia (© Nature Picture Library/Alamy)
 
 ![](images/2024-02/20240215_HippopotamusDay_1920x1080.jpg)
 
