@@ -1,3 +1,7 @@
+#### 20240216 一只雌性灰额主红雀栖息在德克萨斯州一株多刺仙人掌上，美国 (© outtakes/Getty Images)
+
+![](images/2024-02/20240216_BackyardBird_1920x1080.jpg)
+
 #### 20240215 Hippopotamus mother and calf, South Luangwa National Park, Zambia (© Nature Picture Library/Alamy)
 
 ![](images/2024-02/20240215_HippopotamusDay_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240209 灯光秀点亮夜幕中的西安城墙，中国春节 (© Eastimages/Getty Images)
 
 ![](images/2024-02/20240209_ChineseNewYearEve_1920x1080.jpg)
-
-#### 20240208 Mount Hood, Oregon (© Inigo Cia/Getty Images)
-
-![](images/2024-02/20240208_MtHoodOregon_1920x1080.jpg)
 
 
 
