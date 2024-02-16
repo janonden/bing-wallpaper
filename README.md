@@ -2,7 +2,7 @@
 
 ![](images/2024-02/20240216_SkiResort_1920x1080.jpg)
 
-#### 20240216 一只雌性灰额主红雀栖息在德克萨斯州一株多刺仙人掌上，美国 (© outtakes/Getty Images)
+#### 20240216 Female pyrrhuloxia perched on cactus plant, Texas (© outtakes/Getty Images)
 
 ![](images/2024-02/20240216_BackyardBird_1920x1080.jpg)
 
