@@ -1,3 +1,7 @@
+#### 20240217 多洛米蒂山的布莱耶斯湖，南蒂罗尔，意大利 (© Marco Bottigelli/Getty Images)
+
+![](images/2024-02/20240217_LakeDolomites_1920x1080.jpg)
+
 #### 20240216 Station de Saint-Jean-d'Arves, Savoie, France (© shutterstock)
 
 ![](images/2024-02/20240216_SkiResort_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240209 お城の雪像, 北海道 札幌市 (© Terry Donnelly/Alamy Stock Photo)
 
 ![](images/2024-02/20240209_SapporoSnowFest_1920x1080.jpg)
-
-#### 20240209 Pegadung Rock, Lampung, Sumatra, Indonesia (© CK NG/500px/Getty Images)
-
-![](images/2024-02/20240209_PegadungRocks_1920x1080.jpg)
 
 
 

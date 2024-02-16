@@ -1,3 +1,7 @@
+#### 20240217 多洛米蒂山的布莱耶斯湖，南蒂罗尔，意大利 (© Marco Bottigelli/Getty Images)
+
+![](20240217_LakeDolomites_1920x1080.jpg)
+
 #### 20240216 Station de Saint-Jean-d'Arves, Savoie, France (© shutterstock)
 
 ![](20240216_SkiResort_1920x1080.jpg)
