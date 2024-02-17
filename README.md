@@ -1,3 +1,7 @@
+#### 20240218 抹香鲸浮出水面，多米尼克 (© Franco Banfi/Minden Pictures)
+
+![](images/2024-02/20240218_DominicaWhales_1920x1080.jpg)
+
 #### 20240217 多洛米蒂山的布莱耶斯湖，南蒂罗尔，意大利 (© Marco Bottigelli/Getty Images)
 
 ![](images/2024-02/20240217_LakeDolomites_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240211 Chora, Folegandros Island, Cyclades, Greece (© Francesco Riccardo Iacomino/Getty Images)
 
 ![](images/2024-02/20240211_FolegandrosGreece_1920x1080.jpg)
-
-#### 20240210 中国舞狮，大年初一 (© SENEZ/Getty Images)
-
-![](images/2024-02/20240210_SpringFestival_1920x1080.jpg)
 
 
 
