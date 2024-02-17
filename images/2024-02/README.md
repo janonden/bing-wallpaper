@@ -2,6 +2,10 @@
 
 ![](20240217_LakeDolomites_1920x1080.jpg)
 
+#### 20240217 Cabines de bain, Brighton Beach, Melbourne, Victoria, Australie (© Prasit photo/Getty Images)
+
+![](20240217_BrightonBoxes_1920x1080.jpg)
+
 #### 20240216 Station de Saint-Jean-d'Arves, Savoie, France (© shutterstock)
 
 ![](20240216_SkiResort_1920x1080.jpg)

@@ -2,6 +2,10 @@
 
 ![](images/2024-02/20240217_LakeDolomites_1920x1080.jpg)
 
+#### 20240217 Cabines de bain, Brighton Beach, Melbourne, Victoria, Australie (© Prasit photo/Getty Images)
+
+![](images/2024-02/20240217_BrightonBoxes_1920x1080.jpg)
+
 #### 20240216 Station de Saint-Jean-d'Arves, Savoie, France (© shutterstock)
 
 ![](images/2024-02/20240216_SkiResort_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240210 Artists performing the dragon dance for Chinese New Year, Luzhou, China (© Liu Guoxing/VCG via Getty Images)
 
 ![](images/2024-02/20240210_ChinaDragon_1920x1080.jpg)
-
-#### 20240209 お城の雪像, 北海道 札幌市 (© Terry Donnelly/Alamy Stock Photo)
-
-![](images/2024-02/20240209_SapporoSnowFest_1920x1080.jpg)
 
 
 
