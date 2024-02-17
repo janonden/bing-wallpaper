@@ -2,9 +2,17 @@
 
 ![](images/2024-02/20240217_LakeDolomites_1920x1080.jpg)
 
+#### 20240217 Sassnitz lighthouse on Rügen island, Germany (© Christian Back/eStock)
+
+![](images/2024-02/20240217_HalbinselJasmund_1920x1080.jpg)
+
 #### 20240217 Cabines de bain, Brighton Beach, Melbourne, Victoria, Australie (© Prasit photo/Getty Images)
 
 ![](images/2024-02/20240217_BrightonBoxes_1920x1080.jpg)
+
+#### 20240217 The Alvin Ailey American Dance Theater rehearsing 'Uptown,' 2009, New York (© STAN HONDA/AFP via Getty Images)
+
+![](images/2024-02/20240217_AileyUptown_1920x1080.jpg)
 
 #### 20240216 Station de Saint-Jean-d'Arves, Savoie, France (© shutterstock)
 
@@ -49,14 +57,6 @@
 #### 20240210 中国舞狮，大年初一 (© SENEZ/Getty Images)
 
 ![](images/2024-02/20240210_SpringFestival_1920x1080.jpg)
-
-#### 20240210 Chinese New Year Parade, Vancouver, British Columbia, Canada (© Michael Wheatley/Alamy Stock Photo)
-
-![](images/2024-02/20240210_ChineseNYParade_1920x1080.jpg)
-
-#### 20240210 Artists performing the dragon dance for Chinese New Year, Luzhou, China (© Liu Guoxing/VCG via Getty Images)
-
-![](images/2024-02/20240210_ChinaDragon_1920x1080.jpg)
 
 
 

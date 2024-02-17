@@ -2,9 +2,17 @@
 
 ![](20240217_LakeDolomites_1920x1080.jpg)
 
+#### 20240217 Sassnitz lighthouse on Rügen island, Germany (© Christian Back/eStock)
+
+![](20240217_HalbinselJasmund_1920x1080.jpg)
+
 #### 20240217 Cabines de bain, Brighton Beach, Melbourne, Victoria, Australie (© Prasit photo/Getty Images)
 
 ![](20240217_BrightonBoxes_1920x1080.jpg)
+
+#### 20240217 The Alvin Ailey American Dance Theater rehearsing 'Uptown,' 2009, New York (© STAN HONDA/AFP via Getty Images)
+
+![](20240217_AileyUptown_1920x1080.jpg)
 
 #### 20240216 Station de Saint-Jean-d'Arves, Savoie, France (© shutterstock)
 
