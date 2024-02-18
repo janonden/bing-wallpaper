@@ -2,6 +2,10 @@
 
 ![](images/2024-02/20240218_DominicaWhales_1920x1080.jpg)
 
+#### 20240218 Maisons colorées, Puerto de la Cruz, Tenerife, Espagne (© Marco Bottigelli/Getty Images)
+
+![](images/2024-02/20240218_CarnavalTenerife_1920x1080.jpg)
+
 #### 20240217 多洛米蒂山的布莱耶斯湖，南蒂罗尔，意大利 (© Marco Bottigelli/Getty Images)
 
 ![](images/2024-02/20240217_LakeDolomites_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240211 Giant anteater in the Pantanal, Brazil (© Pedro Ferreira do Amaral/Getty Images)
 
 ![](images/2024-02/20240211_GiantAnteaterBR_1920x1080.jpg)
-
-#### 20240211 Chora, Folegandros Island, Cyclades, Greece (© Francesco Riccardo Iacomino/Getty Images)
-
-![](images/2024-02/20240211_FolegandrosGreece_1920x1080.jpg)
 
 
 

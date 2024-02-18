@@ -2,6 +2,10 @@
 
 ![](20240218_DominicaWhales_1920x1080.jpg)
 
+#### 20240218 Maisons colorées, Puerto de la Cruz, Tenerife, Espagne (© Marco Bottigelli/Getty Images)
+
+![](20240218_CarnavalTenerife_1920x1080.jpg)
+
 #### 20240217 多洛米蒂山的布莱耶斯湖，南蒂罗尔，意大利 (© Marco Bottigelli/Getty Images)
 
 ![](20240217_LakeDolomites_1920x1080.jpg)
