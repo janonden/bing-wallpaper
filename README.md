@@ -1,4 +1,4 @@
-#### 20240218 抹香鲸浮出水面，多米尼克 (© Franco Banfi/Minden Pictures)
+#### 20240218 Sperm whale pod surfacing, Dominica (© Franco Banfi/Minden Pictures)
 
 ![](images/2024-02/20240218_DominicaWhales_1920x1080.jpg)
 
