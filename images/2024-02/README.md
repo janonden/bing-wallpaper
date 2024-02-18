@@ -1,3 +1,7 @@
+#### 20240219 乱れて咲くしだれ梅の花, 京都府 京都市 (© EvergreenPlanet/Getty Images)
+
+![](20240219_Ume_1920x1080.jpg)
+
 #### 20240218 Sperm whale pod surfacing, Dominica (© Franco Banfi/Minden Pictures)
 
 ![](20240218_DominicaWhales_1920x1080.jpg)
