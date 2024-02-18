@@ -6,6 +6,10 @@
 
 ![](20240218_CarnavalTenerife_1920x1080.jpg)
 
+#### 20240217 ペガドゥン・ロック, インドネシア (© CK NG/500px/Getty Images)
+
+![](20240217_PegadungRocks_1920x1080.jpg)
+
 #### 20240217 多洛米蒂山的布莱耶斯湖，南蒂罗尔，意大利 (© Marco Bottigelli/Getty Images)
 
 ![](20240217_LakeDolomites_1920x1080.jpg)

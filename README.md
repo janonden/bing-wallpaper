@@ -6,6 +6,10 @@
 
 ![](images/2024-02/20240218_CarnavalTenerife_1920x1080.jpg)
 
+#### 20240217 ペガドゥン・ロック, インドネシア (© CK NG/500px/Getty Images)
+
+![](images/2024-02/20240217_PegadungRocks_1920x1080.jpg)
+
 #### 20240217 多洛米蒂山的布莱耶斯湖，南蒂罗尔，意大利 (© Marco Bottigelli/Getty Images)
 
 ![](images/2024-02/20240217_LakeDolomites_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240212 Volcán Alcedo giant tortoises, Isabela Island, Galápagos, Ecuador (© Tui De Roy/Minden Pictures)
 
 ![](images/2024-02/20240212_GiantTortoise_1920x1080.jpg)
-
-#### 20240211 Giant anteater in the Pantanal, Brazil (© Pedro Ferreira do Amaral/Getty Images)
-
-![](images/2024-02/20240211_GiantAnteaterBR_1920x1080.jpg)
 
 
 
