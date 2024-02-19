@@ -2,6 +2,14 @@
 
 ![](20240219_Ume_1920x1080.jpg)
 
+#### 20240219 Toledo, Spain (© Carlos Fernandez/Getty Images)
+
+![](20240219_TajoRiver_1920x1080.jpg)
+
+#### 20240219 Lincoln Memorial, Washington, DC (© Steve Whiston/Fallen Log Photography/Getty Images)
+
+![](20240219_LincolnSunset_1920x1080.jpg)
+
 #### 20240218 Sperm whale pod surfacing, Dominica (© Franco Banfi/Minden Pictures)
 
 ![](20240218_DominicaWhales_1920x1080.jpg)

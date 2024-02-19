@@ -2,6 +2,14 @@
 
 ![](images/2024-02/20240219_Ume_1920x1080.jpg)
 
+#### 20240219 Toledo, Spain (© Carlos Fernandez/Getty Images)
+
+![](images/2024-02/20240219_TajoRiver_1920x1080.jpg)
+
+#### 20240219 Lincoln Memorial, Washington, DC (© Steve Whiston/Fallen Log Photography/Getty Images)
+
+![](images/2024-02/20240219_LincolnSunset_1920x1080.jpg)
+
 #### 20240218 Sperm whale pod surfacing, Dominica (© Franco Banfi/Minden Pictures)
 
 ![](images/2024-02/20240218_DominicaWhales_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20240214 L’arche de Port-Blanc, Saint-Pierre-Quiberon, France (© DaLiu/Getty Images)
 
 ![](images/2024-02/20240214_Chandeleur_1920x1080.jpg)
-
-#### 20240214 Red-crowned crane bowing to his mate in Hokkaido, Japan (© Steve Bloom Images/Alamy)
-
-![](images/2024-02/20240214_BowingCrane_1920x1080.jpg)
-
-#### 20240213 Mardi Gras beads in the Marigny, New Orleans (© Erik Pronske Photography/Getty Images)
-
-![](images/2024-02/20240213_MarignyBeads_1920x1080.jpg)
 
 
 
