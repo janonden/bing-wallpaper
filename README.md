@@ -1,3 +1,7 @@
+#### 20240220 Kinder Scout，峰区国家公园，英国 (© john finney photography/Getty Images)
+
+![](images/2024-02/20240220_PeakDistrictNP_1920x1080.jpg)
+
 #### 20240219 乱れて咲くしだれ梅の花, 京都府 京都市 (© EvergreenPlanet/Getty Images)
 
 ![](images/2024-02/20240219_Ume_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240215 Berlinale, roter Teppich am Potsdamer Platz, Berlin (© Cineberg/Getty Images)
 
 ![](images/2024-02/20240215_BerlinalePalast_1920x1080.jpg)
-
-#### 20240214 L’arche de Port-Blanc, Saint-Pierre-Quiberon, France (© DaLiu/Getty Images)
-
-![](images/2024-02/20240214_Chandeleur_1920x1080.jpg)
 
 
 
