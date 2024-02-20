@@ -1,3 +1,7 @@
+#### 20240221 火瀑布，优胜美地国家公园，加利福尼亚州，美国 (© Gregory B Cuvelier/Shutterstock)
+
+![](images/2024-02/20240221_YosemiteFirefall_1920x1080.jpg)
+
 #### 20240220 Kinder Scout at sunrise, Peak District National Park, England (© john finney photography/Getty Images)
 
 ![](images/2024-02/20240220_PeakDistrictNP_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240215 Hippopotamus mother and calf, South Luangwa National Park, Zambia (© Nature Picture Library/Alamy)
 
 ![](images/2024-02/20240215_HippopotamusDay_1920x1080.jpg)
-
-#### 20240215 Berlinale, roter Teppich am Potsdamer Platz, Berlin (© Cineberg/Getty Images)
-
-![](images/2024-02/20240215_BerlinalePalast_1920x1080.jpg)
 
 
 

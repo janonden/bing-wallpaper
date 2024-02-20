@@ -1,3 +1,7 @@
+#### 20240221 火瀑布，优胜美地国家公园，加利福尼亚州，美国 (© Gregory B Cuvelier/Shutterstock)
+
+![](20240221_YosemiteFirefall_1920x1080.jpg)
+
 #### 20240220 Kinder Scout at sunrise, Peak District National Park, England (© john finney photography/Getty Images)
 
 ![](20240220_PeakDistrictNP_1920x1080.jpg)
