@@ -1,4 +1,4 @@
-#### 20240220 Kinder Scout，峰区国家公园，英国 (© john finney photography/Getty Images)
+#### 20240220 Kinder Scout at sunrise, Peak District National Park, England (© john finney photography/Getty Images)
 
 ![](images/2024-02/20240220_PeakDistrictNP_1920x1080.jpg)
 
