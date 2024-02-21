@@ -1,4 +1,4 @@
-#### 20240221 火瀑布，优胜美地国家公园，加利福尼亚州，美国 (© Gregory B Cuvelier/Shutterstock)
+#### 20240221 Firefall at Horsetail Fall, Yosemite National Park, California (© Gregory B Cuvelier/Shutterstock)
 
 ![](20240221_YosemiteFirefall_1920x1080.jpg)
 
