@@ -1,3 +1,11 @@
+#### 20240223 Haghartsin修道院，迪利扬国家公园，亚美尼亚 (© Alexey Kharitonov/Shutterstock)
+
+![](20240223_HaghartsinMonastery_1920x1080.jpg)
+
+#### 20240223 朝焼けに輝く富士山と山中湖, 山梨県 (© magicflute002/Getty Images)
+
+![](20240223_Fuji_1920x1080.jpg)
+
 #### 20240222 Vallée de Chamonix, Haute-Savoie, France (© Charlie Pics/Getty Images)
 
 ![](20240222_MontBlancChamonix_1920x1080.jpg)

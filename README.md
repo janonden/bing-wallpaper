@@ -1,3 +1,11 @@
+#### 20240223 Haghartsin修道院，迪利扬国家公园，亚美尼亚 (© Alexey Kharitonov/Shutterstock)
+
+![](images/2024-02/20240223_HaghartsinMonastery_1920x1080.jpg)
+
+#### 20240223 朝焼けに輝く富士山と山中湖, 山梨県 (© magicflute002/Getty Images)
+
+![](images/2024-02/20240223_Fuji_1920x1080.jpg)
+
 #### 20240222 Vallée de Chamonix, Haute-Savoie, France (© Charlie Pics/Getty Images)
 
 ![](images/2024-02/20240222_MontBlancChamonix_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20240217 Bathing boxes at Brighton Beach, Melbourne, Victoria, Australia (© Prasit photo/Getty Images)
 
 ![](images/2024-02/20240217_BrightonBoxes_1920x1080.jpg)
-
-#### 20240217 The Alvin Ailey American Dance Theater rehearsing 'Uptown,' 2009, New York (© STAN HONDA/AFP via Getty Images)
-
-![](images/2024-02/20240217_AileyUptown_1920x1080.jpg)
-
-#### 20240216 Station de Saint-Jean-d'Arves, Savoie, France (© shutterstock)
-
-![](images/2024-02/20240216_SkiResort_1920x1080.jpg)
 
 
 
