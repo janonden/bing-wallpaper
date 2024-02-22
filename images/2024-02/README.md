@@ -1,3 +1,11 @@
+#### 20240222 Vallée de Chamonix, Haute-Savoie, France (© Charlie Pics/Getty Images)
+
+![](20240222_MontBlancChamonix_1920x1080.jpg)
+
+#### 20240222 Wundervoll gefrorene Seifenblase (© Oksana Schmidt/Getty Images)
+
+![](20240222_FrozenSoapBubble_1920x1080.jpg)
+
 #### 20240221 Firefall at Horsetail Fall, Yosemite National Park, California (© Gregory B Cuvelier/Shutterstock)
 
 ![](20240221_YosemiteFirefall_1920x1080.jpg)

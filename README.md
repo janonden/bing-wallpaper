@@ -1,3 +1,11 @@
+#### 20240222 Vallée de Chamonix, Haute-Savoie, France (© Charlie Pics/Getty Images)
+
+![](images/2024-02/20240222_MontBlancChamonix_1920x1080.jpg)
+
+#### 20240222 Wundervoll gefrorene Seifenblase (© Oksana Schmidt/Getty Images)
+
+![](images/2024-02/20240222_FrozenSoapBubble_1920x1080.jpg)
+
 #### 20240221 Firefall at Horsetail Fall, Yosemite National Park, California (© Gregory B Cuvelier/Shutterstock)
 
 ![](images/2024-02/20240221_YosemiteFirefall_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20240216 Station de Saint-Jean-d'Arves, Savoie, France (© shutterstock)
 
 ![](images/2024-02/20240216_SkiResort_1920x1080.jpg)
-
-#### 20240216 Female pyrrhuloxia perched on cactus plant, Texas (© outtakes/Getty Images)
-
-![](images/2024-02/20240216_BackyardBird_1920x1080.jpg)
-
-#### 20240215 Hippopotamus mother and calf, South Luangwa National Park, Zambia (© Nature Picture Library/Alamy)
-
-![](images/2024-02/20240215_HippopotamusDay_1920x1080.jpg)
 
 
 
