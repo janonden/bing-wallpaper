@@ -46,7 +46,7 @@
 
 ![](20240217_HalbinselJasmund_1920x1080.jpg)
 
-#### 20240217 Cabines de bain, Brighton Beach, Melbourne, Victoria, Australie (© Prasit photo/Getty Images)
+#### 20240217 Bathing boxes at Brighton Beach, Melbourne, Victoria, Australia (© Prasit photo/Getty Images)
 
 ![](20240217_BrightonBoxes_1920x1080.jpg)
 
