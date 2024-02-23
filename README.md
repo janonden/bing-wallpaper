@@ -1,4 +1,4 @@
-#### 20240223 Haghartsin修道院，迪利扬国家公园，亚美尼亚 (© Alexey Kharitonov/Shutterstock)
+#### 20240223 Haghartsin Monastery, Dilijan National Park, Armenia (© Alexey Kharitonov/Shutterstock)
 
 ![](images/2024-02/20240223_HaghartsinMonastery_1920x1080.jpg)
 
