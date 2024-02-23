@@ -1,3 +1,11 @@
+#### 20240224 锦里街上悬挂的红色中国灯笼，成都，中国四川省 (© Philippe LEJEANVRE/Getty images)
+
+![](20240224_LaternFestival_1920x1080.jpg)
+
+#### 20240224 アーモンド畑, 米国 カリフォルニア州 (© Jeffrey Lewis/Tandem Stills + Motion)
+
+![](20240224_AlmondBloom_1920x1080.jpg)
+
 #### 20240223 Haghartsin Monastery, Dilijan National Park, Armenia (© Alexey Kharitonov/Shutterstock)
 
 ![](20240223_HaghartsinMonastery_1920x1080.jpg)

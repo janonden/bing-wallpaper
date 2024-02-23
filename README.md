@@ -1,3 +1,11 @@
+#### 20240224 锦里街上悬挂的红色中国灯笼，成都，中国四川省 (© Philippe LEJEANVRE/Getty images)
+
+![](images/2024-02/20240224_LaternFestival_1920x1080.jpg)
+
+#### 20240224 アーモンド畑, 米国 カリフォルニア州 (© Jeffrey Lewis/Tandem Stills + Motion)
+
+![](images/2024-02/20240224_AlmondBloom_1920x1080.jpg)
+
 #### 20240223 Haghartsin Monastery, Dilijan National Park, Armenia (© Alexey Kharitonov/Shutterstock)
 
 ![](images/2024-02/20240223_HaghartsinMonastery_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20240217 多洛米蒂山的布莱耶斯湖，南蒂罗尔，意大利 (© Marco Bottigelli/Getty Images)
 
 ![](images/2024-02/20240217_LakeDolomites_1920x1080.jpg)
-
-#### 20240217 Sassnitz lighthouse on Rügen island, Germany (© Christian Back/eStock)
-
-![](images/2024-02/20240217_HalbinselJasmund_1920x1080.jpg)
-
-#### 20240217 Bathing boxes at Brighton Beach, Melbourne, Victoria, Australia (© Prasit photo/Getty Images)
-
-![](images/2024-02/20240217_BrightonBoxes_1920x1080.jpg)
 
 
 
