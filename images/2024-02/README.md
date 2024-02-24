@@ -6,7 +6,7 @@
 
 ![](20240224_HanselGretelHouse_1920x1080.jpg)
 
-#### 20240224 アーモンド畑, 米国 カリフォルニア州 (© Jeffrey Lewis/Tandem Stills + Motion)
+#### 20240224 Almond trees in full bloom, California (© Jeffrey Lewis/Tandem Stills + Motion)
 
 ![](20240224_AlmondBloom_1920x1080.jpg)
 
