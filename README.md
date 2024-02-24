@@ -2,9 +2,17 @@
 
 ![](images/2024-02/20240224_LaternFestival_1920x1080.jpg)
 
+#### 20240224 Hänsel und Gretel Haus in Oberammergau, Bayern (© Tim Graham/Getty Images)
+
+![](images/2024-02/20240224_HanselGretelHouse_1920x1080.jpg)
+
 #### 20240224 アーモンド畑, 米国 カリフォルニア州 (© Jeffrey Lewis/Tandem Stills + Motion)
 
 ![](images/2024-02/20240224_AlmondBloom_1920x1080.jpg)
+
+#### 20240224 Le Ballon d'Alsace, Territoire de Belfort, France (© VUANO Tristan/Hemis.fr/Alamy Stock Photo)
+
+![](images/2024-02/20240224_AgriculturalShow_1920x1080.jpg)
 
 #### 20240223 Haghartsin Monastery, Dilijan National Park, Armenia (© Alexey Kharitonov/Shutterstock)
 
@@ -49,14 +57,6 @@
 #### 20240218 Maisons colorées, Puerto de la Cruz, Tenerife, Espagne (© Marco Bottigelli/Getty Images)
 
 ![](images/2024-02/20240218_CarnavalTenerife_1920x1080.jpg)
-
-#### 20240217 ペガドゥン・ロック, インドネシア (© CK NG/500px/Getty Images)
-
-![](images/2024-02/20240217_PegadungRocks_1920x1080.jpg)
-
-#### 20240217 多洛米蒂山的布莱耶斯湖，南蒂罗尔，意大利 (© Marco Bottigelli/Getty Images)
-
-![](images/2024-02/20240217_LakeDolomites_1920x1080.jpg)
 
 
 

@@ -2,9 +2,17 @@
 
 ![](20240224_LaternFestival_1920x1080.jpg)
 
+#### 20240224 Hänsel und Gretel Haus in Oberammergau, Bayern (© Tim Graham/Getty Images)
+
+![](20240224_HanselGretelHouse_1920x1080.jpg)
+
 #### 20240224 アーモンド畑, 米国 カリフォルニア州 (© Jeffrey Lewis/Tandem Stills + Motion)
 
 ![](20240224_AlmondBloom_1920x1080.jpg)
+
+#### 20240224 Le Ballon d'Alsace, Territoire de Belfort, France (© VUANO Tristan/Hemis.fr/Alamy Stock Photo)
+
+![](20240224_AgriculturalShow_1920x1080.jpg)
 
 #### 20240223 Haghartsin Monastery, Dilijan National Park, Armenia (© Alexey Kharitonov/Shutterstock)
 
