@@ -1,3 +1,7 @@
+#### 20240225 考伊琴山谷的薄雾，温哥华岛，加拿大不列颠哥伦比亚省 (© Kevin Oke/Alamy)
+
+![](images/2024-02/20240225_MtPrevostDuncan_1920x1080.jpg)
+
 #### 20240224 锦里街上悬挂的红色中国灯笼，成都，中国四川省 (© Philippe LEJEANVRE/Getty images)
 
 ![](images/2024-02/20240224_LaternFestival_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240218 Sperm whale pod surfacing, Dominica (© Franco Banfi/Minden Pictures)
 
 ![](images/2024-02/20240218_DominicaWhales_1920x1080.jpg)
-
-#### 20240218 Maisons colorées, Puerto de la Cruz, Tenerife, Espagne (© Marco Bottigelli/Getty Images)
-
-![](images/2024-02/20240218_CarnavalTenerife_1920x1080.jpg)
 
 
 
