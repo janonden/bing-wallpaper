@@ -1,3 +1,7 @@
+#### 20240225 'United We Stand' sculpture by Charles McGee, Charles H. Wright Museum of African American History, Detroit, Michigan (© Jim West/Alamy)
+
+![](images/2024-02/20240225_WrightSculpture_1920x1080.jpg)
+
 #### 20240225 考伊琴山谷的薄雾，温哥华岛，加拿大不列颠哥伦比亚省 (© Kevin Oke/Alamy)
 
 ![](images/2024-02/20240225_MtPrevostDuncan_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240219 Lincoln Memorial, Washington, DC (© Steve Whiston/Fallen Log Photography/Getty Images)
 
 ![](images/2024-02/20240219_LincolnSunset_1920x1080.jpg)
-
-#### 20240218 Sperm whale pod surfacing, Dominica (© Franco Banfi/Minden Pictures)
-
-![](images/2024-02/20240218_DominicaWhales_1920x1080.jpg)
 
 
 

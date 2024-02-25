@@ -1,3 +1,7 @@
+#### 20240225 'United We Stand' sculpture by Charles McGee, Charles H. Wright Museum of African American History, Detroit, Michigan (© Jim West/Alamy)
+
+![](20240225_WrightSculpture_1920x1080.jpg)
+
 #### 20240225 考伊琴山谷的薄雾，温哥华岛，加拿大不列颠哥伦比亚省 (© Kevin Oke/Alamy)
 
 ![](20240225_MtPrevostDuncan_1920x1080.jpg)
