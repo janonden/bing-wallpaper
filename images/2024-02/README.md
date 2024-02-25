@@ -38,6 +38,10 @@
 
 ![](20240222_FrozenSoapBubble_1920x1080.jpg)
 
+#### 20240222 Bathing boxes at Brighton Beach, Melbourne, Victoria, Australia (© Prasit photo/Getty Images)
+
+![](20240222_BrightonBoxes_1920x1080.jpg)
+
 #### 20240221 Firefall at Horsetail Fall, Yosemite National Park, California (© Gregory B Cuvelier/Shutterstock)
 
 ![](20240221_YosemiteFirefall_1920x1080.jpg)
