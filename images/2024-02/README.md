@@ -1,3 +1,7 @@
+#### 20240226 大峡谷国家公园，亚利桑那州，美国 (© Jeremy Janus/Getty Images)
+
+![](20240226_GrandCanyonWinter_1920x1080.jpg)
+
 #### 20240225 'United We Stand' sculpture by Charles McGee, Charles H. Wright Museum of African American History, Detroit, Michigan (© Jim West/Alamy)
 
 ![](20240225_WrightSculpture_1920x1080.jpg)

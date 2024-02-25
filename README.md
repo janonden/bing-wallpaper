@@ -1,3 +1,7 @@
+#### 20240226 大峡谷国家公园，亚利桑那州，美国 (© Jeremy Janus/Getty Images)
+
+![](images/2024-02/20240226_GrandCanyonWinter_1920x1080.jpg)
+
 #### 20240225 'United We Stand' sculpture by Charles McGee, Charles H. Wright Museum of African American History, Detroit, Michigan (© Jim West/Alamy)
 
 ![](images/2024-02/20240225_WrightSculpture_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240219 乱れて咲くしだれ梅の花, 京都府 京都市 (© EvergreenPlanet/Getty Images)
 
 ![](images/2024-02/20240219_Ume_1920x1080.jpg)
-
-#### 20240219 Toledo, Spain (© Carlos Fernandez/Getty Images)
-
-![](images/2024-02/20240219_TajoRiver_1920x1080.jpg)
 
 
 
