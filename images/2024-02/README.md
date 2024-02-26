@@ -1,4 +1,4 @@
-#### 20240226 大峡谷国家公园，亚利桑那州，美国 (© Jeremy Janus/Getty Images)
+#### 20240226 Grand Canyon National Park, Arizona (© Jeremy Janus/Getty Images)
 
 ![](20240226_GrandCanyonWinter_1920x1080.jpg)
 
