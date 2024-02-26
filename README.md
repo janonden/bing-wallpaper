@@ -1,3 +1,7 @@
+#### 20240227 玩耍的北极熊幼崽，卡克托维克，阿拉斯加州，美国 (© Piriya Photography/Getty Images)
+
+![](images/2024-02/20240227_PolarBearCubs_1920x1080.jpg)
+
 #### 20240226 Grand Canyon National Park, Arizona (© Jeremy Janus/Getty Images)
 
 ![](images/2024-02/20240226_GrandCanyonWinter_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240220 Kinder Scout at sunrise, Peak District National Park, England (© john finney photography/Getty Images)
 
 ![](images/2024-02/20240220_PeakDistrictNP_1920x1080.jpg)
-
-#### 20240219 乱れて咲くしだれ梅の花, 京都府 京都市 (© EvergreenPlanet/Getty Images)
-
-![](images/2024-02/20240219_Ume_1920x1080.jpg)
 
 
 
