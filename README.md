@@ -1,3 +1,7 @@
+#### 20240228 班堡城堡，诺森伯兰郡，英格兰 (© Blackbeck/Getty Images)
+
+![](images/2024-02/20240228_BamburghCastleUK_1920x1080.jpg)
+
 #### 20240227 Polar bear cubs playing, Kaktovik, Alaska (© Piriya Photography/Getty Images)
 
 ![](images/2024-02/20240227_PolarBearCubs_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240221 Firefall at Horsetail Fall, Yosemite National Park, California (© Gregory B Cuvelier/Shutterstock)
 
 ![](images/2024-02/20240221_YosemiteFirefall_1920x1080.jpg)
-
-#### 20240220 Kinder Scout at sunrise, Peak District National Park, England (© john finney photography/Getty Images)
-
-![](images/2024-02/20240220_PeakDistrictNP_1920x1080.jpg)
 
 
 
