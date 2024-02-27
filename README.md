@@ -1,4 +1,4 @@
-#### 20240227 玩耍的北极熊幼崽，卡克托维克，阿拉斯加州，美国 (© Piriya Photography/Getty Images)
+#### 20240227 Polar bear cubs playing, Kaktovik, Alaska (© Piriya Photography/Getty Images)
 
 ![](images/2024-02/20240227_PolarBearCubs_1920x1080.jpg)
 
