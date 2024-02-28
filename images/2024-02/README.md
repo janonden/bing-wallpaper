@@ -1,4 +1,4 @@
-#### 20240228 班堡城堡，诺森伯兰郡，英格兰 (© Blackbeck/Getty Images)
+#### 20240228 Bamburgh Castle, Northumberland, England (© Blackbeck/Getty Images)
 
 ![](20240228_BamburghCastleUK_1920x1080.jpg)
 
