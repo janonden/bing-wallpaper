@@ -1,3 +1,11 @@
+#### 20240229 バーミリオン・クリフ国定公園, 米国 アリゾナ州 (© Yva Momatiuk and John Eastcott/Minden Pictures)
+
+![](images/2024-02/20240229_VermilionCliffs_1920x1080.jpg)
+
+#### 20240229 欧亚红松鼠 (© Westend61/Getty Images)
+
+![](images/2024-02/20240229_LeapingSquirrel_1920x1080.jpg)
+
 #### 20240228 Bamburgh Castle, Northumberland, England (© Blackbeck/Getty Images)
 
 ![](images/2024-02/20240228_BamburghCastleUK_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20240222 Wundervoll gefrorene Seifenblase (© Oksana Schmidt/Getty Images)
 
 ![](images/2024-02/20240222_FrozenSoapBubble_1920x1080.jpg)
-
-#### 20240222 Bathing boxes at Brighton Beach, Melbourne, Victoria, Australia (© Prasit photo/Getty Images)
-
-![](images/2024-02/20240222_BrightonBoxes_1920x1080.jpg)
-
-#### 20240221 Firefall at Horsetail Fall, Yosemite National Park, California (© Gregory B Cuvelier/Shutterstock)
-
-![](images/2024-02/20240221_YosemiteFirefall_1920x1080.jpg)
 
 
 

@@ -1,3 +1,11 @@
+#### 20240229 バーミリオン・クリフ国定公園, 米国 アリゾナ州 (© Yva Momatiuk and John Eastcott/Minden Pictures)
+
+![](20240229_VermilionCliffs_1920x1080.jpg)
+
+#### 20240229 欧亚红松鼠 (© Westend61/Getty Images)
+
+![](20240229_LeapingSquirrel_1920x1080.jpg)
+
 #### 20240228 Bamburgh Castle, Northumberland, England (© Blackbeck/Getty Images)
 
 ![](20240228_BamburghCastleUK_1920x1080.jpg)
