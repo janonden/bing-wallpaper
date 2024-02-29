@@ -1,3 +1,11 @@
+#### 20240301 德国草地上的蝴蝶 (© Albert Fertl/Getty Images)
+
+![](images/2024-03/20240301_Schmetterlingswiese_1920x1080.jpg)
+
+#### 20240301 モディカ, イタリア (© Sandro Bisaro/Getty Images)
+
+![](images/2024-03/20240301_ModicaItaly_1920x1080.jpg)
+
 #### 20240229 バーミリオン・クリフ国定公園, 米国 アリゾナ州 (© Yva Momatiuk and John Eastcott/Minden Pictures)
 
 ![](images/2024-02/20240229_VermilionCliffs_1920x1080.jpg)
@@ -50,14 +58,6 @@
 
 ![](images/2024-02/20240223_Fuji_1920x1080.jpg)
 
-#### 20240222 Vallée de Chamonix, Haute-Savoie, France (© Charlie Pics/Getty Images)
-
-![](images/2024-02/20240222_MontBlancChamonix_1920x1080.jpg)
-
-#### 20240222 Wundervoll gefrorene Seifenblase (© Oksana Schmidt/Getty Images)
-
-![](images/2024-02/20240222_FrozenSoapBubble_1920x1080.jpg)
-
 
 
 
@@ -66,7 +66,7 @@
 
 
 
-- 2024&emsp;&emsp;[02](images/2024-02/README.md) &emsp;&emsp;[01](images/2024-01/README.md) 
+- 2024&emsp;&emsp;[03](images/2024-03/README.md) &emsp;&emsp;[02](images/2024-02/README.md) &emsp;&emsp;[01](images/2024-01/README.md) 
 
 - 2023&emsp;&emsp;[12](https://github.com/janonden/bing-wallpaper/blob/2023/images/2023-12/README.md) &emsp;&emsp;[11](https://github.com/janonden/bing-wallpaper/blob/2023/images/2023-11/README.md) &emsp;&emsp;[10](https://github.com/janonden/bing-wallpaper/blob/2023/images/2023-10/README.md) &emsp;&emsp;[09](https://github.com/janonden/bing-wallpaper/blob/2023/images/2023-09/README.md) &emsp;&emsp;[08](https://github.com/janonden/bing-wallpaper/blob/2023/images/2023-08/README.md) &emsp;&emsp;[07](https://github.com/janonden/bing-wallpaper/blob/2023/images/2023-07/README.md) &emsp;&emsp;[06](https://github.com/janonden/bing-wallpaper/blob/2023/images/2023-06/README.md) &emsp;&emsp;[05](https://github.com/janonden/bing-wallpaper/blob/2023/images/2023-05/README.md) &emsp;&emsp;[04](https://github.com/janonden/bing-wallpaper/blob/2023/images/2023-04/README.md) &emsp;&emsp;[03](https://github.com/janonden/bing-wallpaper/blob/2023/images/2023-03/README.md) &emsp;&emsp;[02](https://github.com/janonden/bing-wallpaper/blob/2023/images/2023-02/README.md) &emsp;&emsp;[01](https://github.com/janonden/bing-wallpaper/blob/2023/images/2023-01/README.md) 
 
