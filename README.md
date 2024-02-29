@@ -2,7 +2,7 @@
 
 ![](images/2024-02/20240229_VermilionCliffs_1920x1080.jpg)
 
-#### 20240229 欧亚红松鼠 (© Westend61/Getty Images)
+#### 20240229 Eurasian red squirrel (© Westend61/Getty Images)
 
 ![](images/2024-02/20240229_LeapingSquirrel_1920x1080.jpg)
 
