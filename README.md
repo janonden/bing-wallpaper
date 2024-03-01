@@ -6,6 +6,10 @@
 
 ![](images/2024-03/20240301_ModicaItaly_1920x1080.jpg)
 
+#### 20240301 Blaireau européen (© Milan Zygmunt/Shutterstock)
+
+![](images/2024-03/20240301_Badger_1920x1080.jpg)
+
 #### 20240229 バーミリオン・クリフ国定公園, 米国 アリゾナ州 (© Yva Momatiuk and John Eastcott/Minden Pictures)
 
 ![](images/2024-02/20240229_VermilionCliffs_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240223 Haghartsin Monastery, Dilijan National Park, Armenia (© Alexey Kharitonov/Shutterstock)
 
 ![](images/2024-02/20240223_HaghartsinMonastery_1920x1080.jpg)
-
-#### 20240223 朝焼けに輝く富士山と山中湖, 山梨県 (© magicflute002/Getty Images)
-
-![](images/2024-02/20240223_Fuji_1920x1080.jpg)
 
 
 

@@ -6,3 +6,7 @@
 
 ![](20240301_ModicaItaly_1920x1080.jpg)
 
+#### 20240301 Blaireau européen (© Milan Zygmunt/Shutterstock)
+
+![](20240301_Badger_1920x1080.jpg)
+
