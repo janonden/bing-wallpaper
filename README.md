@@ -1,3 +1,7 @@
+#### 20240302 クルーガー国立公園のヒョウ, 南アフリカ (© Tonino De Marco/Minden Pictures)
+
+![](images/2024-03/20240302_KrugerLeopard_1920x1080.jpg)
+
 #### 20240301 Sunset colours over the icy Wheaton River, Yukon, Canada (© Robert Postma/All Canada Photos/Alamy Stock Photo)
 
 ![](images/2024-03/20240301_WheatonRiverYukon_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240224 Hänsel und Gretel Haus in Oberammergau, Bayern (© Tim Graham/Getty Images)
 
 ![](images/2024-02/20240224_HanselGretelHouse_1920x1080.jpg)
-
-#### 20240224 Almond trees in full bloom, California (© Jeffrey Lewis/Tandem Stills + Motion)
-
-![](images/2024-02/20240224_AlmondBloom_1920x1080.jpg)
 
 
 
