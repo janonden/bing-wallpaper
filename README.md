@@ -14,7 +14,7 @@
 
 ![](images/2024-03/20240301_Schmetterlingswiese_1920x1080.jpg)
 
-#### 20240301 モディカ, イタリア (© Sandro Bisaro/Getty Images)
+#### 20240301 Modica, Sicily, Italy (© Sandro Bisaro/Getty Images)
 
 ![](images/2024-03/20240301_ModicaItaly_1920x1080.jpg)
 
