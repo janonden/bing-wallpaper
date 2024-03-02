@@ -1,3 +1,7 @@
+#### 20240303 下鴨神社の流し雛, 京都 (© masahiro Makino/Getty Images)
+
+![](images/2024-03/20240303_Hinamatsuri_1920x1080.jpg)
+
 #### 20240302 クルーガー国立公園のヒョウ, 南アフリカ (© Tonino De Marco/Minden Pictures)
 
 ![](images/2024-03/20240302_KrugerLeopard_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240224 锦里街上悬挂的红色中国灯笼，成都，中国四川省 (© Philippe LEJEANVRE/Getty images)
 
 ![](images/2024-02/20240224_LaternFestival_1920x1080.jpg)
-
-#### 20240224 Hänsel und Gretel Haus in Oberammergau, Bayern (© Tim Graham/Getty Images)
-
-![](images/2024-02/20240224_HanselGretelHouse_1920x1080.jpg)
 
 
 
