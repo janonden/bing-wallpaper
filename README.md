@@ -1,3 +1,7 @@
+#### 20240304 从蒙特维多看到的阿雷纳尔火山,哥斯达黎加 (© Lukas Bischoff/Getty Images)
+
+![](images/2024-03/20240304_ArenalCostaRica_1920x1080.jpg)
+
 #### 20240303 下鴨神社の流し雛, 京都 (© masahiro Makino/Getty Images)
 
 ![](images/2024-03/20240303_Hinamatsuri_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240225 考伊琴山谷的薄雾，温哥华岛，加拿大不列颠哥伦比亚省 (© Kevin Oke/Alamy)
 
 ![](images/2024-02/20240225_MtPrevostDuncan_1920x1080.jpg)
-
-#### 20240224 锦里街上悬挂的红色中国灯笼，成都，中国四川省 (© Philippe LEJEANVRE/Getty images)
-
-![](images/2024-02/20240224_LaternFestival_1920x1080.jpg)
 
 
 
