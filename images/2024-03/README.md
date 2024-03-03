@@ -2,7 +2,7 @@
 
 ![](20240303_Hinamatsuri_1920x1080.jpg)
 
-#### 20240302 クルーガー国立公園のヒョウ, 南アフリカ (© Tonino De Marco/Minden Pictures)
+#### 20240302 Leopard in a tree, Kruger National Park, South Africa (© Tonino De Marco/Minden Pictures)
 
 ![](20240302_KrugerLeopard_1920x1080.jpg)
 
