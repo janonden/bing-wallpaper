@@ -1,4 +1,4 @@
-#### 20240304 从蒙特维多看到的阿雷纳尔火山,哥斯达黎加 (© Lukas Bischoff/Getty Images)
+#### 20240304 Arenal Volcano seen from Monteverde, Costa Rica (© Lukas Bischoff/Getty Images)
 
 ![](20240304_ArenalCostaRica_1920x1080.jpg)
 
