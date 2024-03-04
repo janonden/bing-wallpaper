@@ -1,3 +1,7 @@
+#### 20240305 曼谷的交通圈和高速公路，泰国 (© Avigator Fortuner/Shutterstock)
+
+![](20240305_BangkokCircle_1920x1080.jpg)
+
 #### 20240304 Arenal Volcano seen from Monteverde, Costa Rica (© Lukas Bischoff/Getty Images)
 
 ![](20240304_ArenalCostaRica_1920x1080.jpg)
