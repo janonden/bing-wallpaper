@@ -1,3 +1,7 @@
+#### 20240306 Wahclella Falls，哥伦比亚河峡谷，俄勒冈州，美国 (© Eric Vogt/Tandem Stills + Motion)
+
+![](images/2024-03/20240306_WahclellaFalls_1920x1080.jpg)
+
 #### 20240305 Traffic circle and highway in Bangkok, Thailand (© Avigator Fortuner/Shutterstock)
 
 ![](images/2024-03/20240305_BangkokCircle_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240226 Grand Canyon National Park, Arizona (© Jeremy Janus/Getty Images)
 
 ![](images/2024-02/20240226_GrandCanyonWinter_1920x1080.jpg)
-
-#### 20240225 'United We Stand' sculpture by Charles McGee, Charles H. Wright Museum of African American History, Detroit, Michigan (© Jim West/Alamy)
-
-![](images/2024-02/20240225_WrightSculpture_1920x1080.jpg)
 
 
 
