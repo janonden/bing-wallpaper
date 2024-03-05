@@ -1,4 +1,4 @@
-#### 20240305 曼谷的交通圈和高速公路，泰国 (© Avigator Fortuner/Shutterstock)
+#### 20240305 Traffic circle and highway in Bangkok, Thailand (© Avigator Fortuner/Shutterstock)
 
 ![](images/2024-03/20240305_BangkokCircle_1920x1080.jpg)
 
