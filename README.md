@@ -1,4 +1,4 @@
-#### 20240306 Wahclella Falls，哥伦比亚河峡谷，俄勒冈州，美国 (© Eric Vogt/Tandem Stills + Motion)
+#### 20240306 Wahclella Falls in the Columbia River Gorge, Oregon (© Eric Vogt/Tandem Stills + Motion)
 
 ![](images/2024-03/20240306_WahclellaFalls_1920x1080.jpg)
 
