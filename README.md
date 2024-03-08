@@ -1,4 +1,4 @@
-#### 20240308 テート・モダン, イギリス ロンドン (© Stephen Chung/Alamy Stock Photo)
+#### 20240308 Tate Modern lit up for International Women's Day, London, England (© Stephen Chung/Alamy Stock Photo)
 
 ![](images/2024-03/20240308_TateLightUp_1920x1080.jpg)
 
