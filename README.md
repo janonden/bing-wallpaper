@@ -1,3 +1,7 @@
+#### 20240309 比斯第恶土，新墨西哥州，美国 (© Ian Shive/Tandem Stills + Motion)
+
+![](images/2024-03/20240309_BistiBlue_1920x1080.jpg)
+
 #### 20240308 Tate Modern lit up for International Women's Day, London, England (© Stephen Chung/Alamy Stock Photo)
 
 ![](images/2024-03/20240308_TateLightUp_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240229 バーミリオン・クリフ国定公園, 米国 アリゾナ州 (© Yva Momatiuk and John Eastcott/Minden Pictures)
 
 ![](images/2024-02/20240229_VermilionCliffs_1920x1080.jpg)
-
-#### 20240229 Eurasian red squirrel (© Westend61/Getty Images)
-
-![](images/2024-02/20240229_LeapingSquirrel_1920x1080.jpg)
 
 
 

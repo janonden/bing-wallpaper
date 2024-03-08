@@ -1,3 +1,7 @@
+#### 20240309 比斯第恶土，新墨西哥州，美国 (© Ian Shive/Tandem Stills + Motion)
+
+![](20240309_BistiBlue_1920x1080.jpg)
+
 #### 20240308 Tate Modern lit up for International Women's Day, London, England (© Stephen Chung/Alamy Stock Photo)
 
 ![](20240308_TateLightUp_1920x1080.jpg)
