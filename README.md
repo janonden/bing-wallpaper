@@ -1,3 +1,7 @@
+#### 20240310 圣哈辛托大厦的机械钟，博蒙特，美国德克萨斯州 (© Richard T. Nowitz/Getty Images)
+
+![](images/2024-03/20240310_BeaumontClock_1920x1080.jpg)
+
 #### 20240309 Bisti/De-Na-Zin Wilderness Area, New Mexico (© Ian Shive/Tandem Stills + Motion)
 
 ![](images/2024-03/20240309_BistiBlue_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240301 Blaireau européen (© Milan Zygmunt/Shutterstock)
 
 ![](images/2024-03/20240301_Badger_1920x1080.jpg)
-
-#### 20240229 バーミリオン・クリフ国定公園, 米国 アリゾナ州 (© Yva Momatiuk and John Eastcott/Minden Pictures)
-
-![](images/2024-02/20240229_VermilionCliffs_1920x1080.jpg)
 
 
 
