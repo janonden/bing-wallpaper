@@ -1,4 +1,4 @@
-#### 20240309 比斯第恶土，新墨西哥州，美国 (© Ian Shive/Tandem Stills + Motion)
+#### 20240309 Bisti/De-Na-Zin Wilderness Area, New Mexico (© Ian Shive/Tandem Stills + Motion)
 
 ![](images/2024-03/20240309_BistiBlue_1920x1080.jpg)
 
