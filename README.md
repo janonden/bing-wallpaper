@@ -2,6 +2,10 @@
 
 ![](images/2024-03/20240311_ProseccoItaly_1920x1080.jpg)
 
+#### 20240311 追悼イベントの灯籠, 宮城県 名取市 (© Satoshi Takahashi/Getty Images)
+
+![](images/2024-03/20240311_Earthquake_1920x1080.jpg)
+
 #### 20240310 La Mer de Glace, Chamonix, massif du Mont-Blanc, Haute-Savoie, France (© Hagenmuller Jean-François/Hemis.fr)
 
 ![](images/2024-03/20240310_MontBlancGlacier_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240301 Sunset colours over the icy Wheaton River, Yukon, Canada (© Robert Postma/All Canada Photos/Alamy Stock Photo)
 
 ![](images/2024-03/20240301_WheatonRiverYukon_1920x1080.jpg)
-
-#### 20240301 Women's suffrage parade on Fifth Avenue, Manhattan, New York City, October 23, 1915 (© Bettmann/Getty Images)
-
-![](images/2024-03/20240301_SuffrageParade_1920x1080.jpg)
 
 
 
