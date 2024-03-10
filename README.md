@@ -1,8 +1,12 @@
+#### 20240311 Prosecco Hills of Conegliano and Valdobbiadene, Veneto, Italy (© Olimpio Fantuz/eStock Photo)
+
+![](images/2024-03/20240311_ProseccoItaly_1920x1080.jpg)
+
 #### 20240310 La Mer de Glace, Chamonix, massif du Mont-Blanc, Haute-Savoie, France (© Hagenmuller Jean-François/Hemis.fr)
 
 ![](images/2024-03/20240310_MontBlancGlacier_1920x1080.jpg)
 
-#### 20240310 圣哈辛托大厦的机械钟，博蒙特，美国德克萨斯州 (© Richard T. Nowitz/Getty Images)
+#### 20240310 San Jacinto Building's mechanical clock, Beaumont, Texas (© Richard T. Nowitz/Getty Images)
 
 ![](images/2024-03/20240310_BeaumontClock_1920x1080.jpg)
 
@@ -53,10 +57,6 @@
 #### 20240301 Women's suffrage parade on Fifth Avenue, Manhattan, New York City, October 23, 1915 (© Bettmann/Getty Images)
 
 ![](images/2024-03/20240301_SuffrageParade_1920x1080.jpg)
-
-#### 20240301 德国草地上的蝴蝶 (© Albert Fertl/Getty Images)
-
-![](images/2024-03/20240301_Schmetterlingswiese_1920x1080.jpg)
 
 
 
