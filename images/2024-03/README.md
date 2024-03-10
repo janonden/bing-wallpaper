@@ -1,6 +1,14 @@
+#### 20240310 La Mer de Glace, Chamonix, massif du Mont-Blanc, Haute-Savoie, France (© Hagenmuller Jean-François/Hemis.fr)
+
+![](20240310_MontBlancGlacier_1920x1080.jpg)
+
 #### 20240310 圣哈辛托大厦的机械钟，博蒙特，美国德克萨斯州 (© Richard T. Nowitz/Getty Images)
 
 ![](20240310_BeaumontClock_1920x1080.jpg)
+
+#### 20240310 Rathaus Ulm, Astronomische Uhr aus dem 16. Jahrhundert, Ulm, Baden-Württemberg (© Hemis/Alamy Stock Photo)
+
+![](20240310_AstrologicalClock_1920x1080.jpg)
 
 #### 20240309 Bisti/De-Na-Zin Wilderness Area, New Mexico (© Ian Shive/Tandem Stills + Motion)
 

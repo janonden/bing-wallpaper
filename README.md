@@ -1,6 +1,14 @@
+#### 20240310 La Mer de Glace, Chamonix, massif du Mont-Blanc, Haute-Savoie, France (© Hagenmuller Jean-François/Hemis.fr)
+
+![](images/2024-03/20240310_MontBlancGlacier_1920x1080.jpg)
+
 #### 20240310 圣哈辛托大厦的机械钟，博蒙特，美国德克萨斯州 (© Richard T. Nowitz/Getty Images)
 
 ![](images/2024-03/20240310_BeaumontClock_1920x1080.jpg)
+
+#### 20240310 Rathaus Ulm, Astronomische Uhr aus dem 16. Jahrhundert, Ulm, Baden-Württemberg (© Hemis/Alamy Stock Photo)
+
+![](images/2024-03/20240310_AstrologicalClock_1920x1080.jpg)
 
 #### 20240309 Bisti/De-Na-Zin Wilderness Area, New Mexico (© Ian Shive/Tandem Stills + Motion)
 
@@ -49,14 +57,6 @@
 #### 20240301 德国草地上的蝴蝶 (© Albert Fertl/Getty Images)
 
 ![](images/2024-03/20240301_Schmetterlingswiese_1920x1080.jpg)
-
-#### 20240301 Modica, Sicily, Italy (© Sandro Bisaro/Getty Images)
-
-![](images/2024-03/20240301_ModicaItaly_1920x1080.jpg)
-
-#### 20240301 Blaireau européen (© Milan Zygmunt/Shutterstock)
-
-![](images/2024-03/20240301_Badger_1920x1080.jpg)
 
 
 
