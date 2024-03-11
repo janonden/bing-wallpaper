@@ -1,3 +1,7 @@
+#### 20240311 Ein Koala schläft auf einem Eukalyptusbaum, Australien (© Anton Rogozin/Getty Images)
+
+![](images/2024-03/20240311_SleepyKoala_1920x1080.jpg)
+
 #### 20240311 Prosecco Hills of Conegliano and Valdobbiadene, Veneto, Italy (© Olimpio Fantuz/eStock Photo)
 
 ![](images/2024-03/20240311_ProseccoItaly_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240302 Leopard in a tree, Kruger National Park, South Africa (© Tonino De Marco/Minden Pictures)
 
 ![](images/2024-03/20240302_KrugerLeopard_1920x1080.jpg)
-
-#### 20240301 Sunset colours over the icy Wheaton River, Yukon, Canada (© Robert Postma/All Canada Photos/Alamy Stock Photo)
-
-![](images/2024-03/20240301_WheatonRiverYukon_1920x1080.jpg)
 
 
 

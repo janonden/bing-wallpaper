@@ -1,3 +1,7 @@
+#### 20240311 Ein Koala schläft auf einem Eukalyptusbaum, Australien (© Anton Rogozin/Getty Images)
+
+![](20240311_SleepyKoala_1920x1080.jpg)
+
 #### 20240311 Prosecco Hills of Conegliano and Valdobbiadene, Veneto, Italy (© Olimpio Fantuz/eStock Photo)
 
 ![](20240311_ProseccoItaly_1920x1080.jpg)
