@@ -1,3 +1,11 @@
+#### 20240312 東大寺, 奈良県 奈良市 (© Buddhika Weerasinghe/Getty Images)
+
+![](images/2024-03/20240312_OmizutoriNew_1920x1080.jpg)
+
+#### 20240312 布莱斯峡谷国家公园，犹他州，美国 (© Jim Patterson/Tandem Stills + Motion)
+
+![](images/2024-03/20240312_BryceSnow_1920x1080.jpg)
+
 #### 20240311 A koala sleeping in a eucalyptus tree, Australia (© Anton Rogozin/Getty Images)
 
 ![](images/2024-03/20240311_SleepyKoala_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20240304 Arenal Volcano seen from Monteverde, Costa Rica (© Lukas Bischoff/Getty Images)
 
 ![](images/2024-03/20240304_ArenalCostaRica_1920x1080.jpg)
-
-#### 20240303 下鴨神社の流し雛, 京都 (© masahiro Makino/Getty Images)
-
-![](images/2024-03/20240303_Hinamatsuri_1920x1080.jpg)
-
-#### 20240302 Leopard in a tree, Kruger National Park, South Africa (© Tonino De Marco/Minden Pictures)
-
-![](images/2024-03/20240302_KrugerLeopard_1920x1080.jpg)
 
 
 
