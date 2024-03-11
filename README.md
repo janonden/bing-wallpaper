@@ -1,4 +1,4 @@
-#### 20240311 Ein Koala schläft auf einem Eukalyptusbaum, Australien (© Anton Rogozin/Getty Images)
+#### 20240311 A koala sleeping in a eucalyptus tree, Australia (© Anton Rogozin/Getty Images)
 
 ![](images/2024-03/20240311_SleepyKoala_1920x1080.jpg)
 
