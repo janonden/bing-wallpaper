@@ -2,7 +2,7 @@
 
 ![](images/2024-03/20240312_OmizutoriNew_1920x1080.jpg)
 
-#### 20240312 布莱斯峡谷国家公园，犹他州，美国 (© Jim Patterson/Tandem Stills + Motion)
+#### 20240312 Bryce Canyon National Park, Utah (© Jim Patterson/Tandem Stills + Motion)
 
 ![](images/2024-03/20240312_BryceSnow_1920x1080.jpg)
 
