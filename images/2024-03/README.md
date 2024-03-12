@@ -1,3 +1,7 @@
+#### 20240313 小红鹳飞越马加迪湖,肯尼亚 (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)
+
+![](20240313_MagadiFlamingos_1920x1080.jpg)
+
 #### 20240312 東大寺, 奈良県 奈良市 (© Buddhika Weerasinghe/Getty Images)
 
 ![](20240312_OmizutoriNew_1920x1080.jpg)
