@@ -1,3 +1,7 @@
+#### 20240314 Wat Phra Ngam，大城府历史公园，泰国 (© boonchai wedmakawand/Alamy Stock Photo)
+
+![](images/2024-03/20240314_AyutthayaTree_1920x1080.jpg)
+
 #### 20240313 Lesser flamingos flying over Lake Magadi, Kenya (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)
 
 ![](images/2024-03/20240313_MagadiFlamingos_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240306 Wahclella Falls in the Columbia River Gorge, Oregon (© Eric Vogt/Tandem Stills + Motion)
 
 ![](images/2024-03/20240306_WahclellaFalls_1920x1080.jpg)
-
-#### 20240305 Traffic circle and highway in Bangkok, Thailand (© Avigator Fortuner/Shutterstock)
-
-![](images/2024-03/20240305_BangkokCircle_1920x1080.jpg)
 
 
 

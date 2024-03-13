@@ -1,3 +1,7 @@
+#### 20240314 Wat Phra Ngam，大城府历史公园，泰国 (© boonchai wedmakawand/Alamy Stock Photo)
+
+![](20240314_AyutthayaTree_1920x1080.jpg)
+
 #### 20240313 Lesser flamingos flying over Lake Magadi, Kenya (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)
 
 ![](20240313_MagadiFlamingos_1920x1080.jpg)
