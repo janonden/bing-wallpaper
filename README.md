@@ -1,4 +1,4 @@
-#### 20240313 小红鹳飞越马加迪湖,肯尼亚 (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)
+#### 20240313 Lesser flamingos flying over Lake Magadi, Kenya (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)
 
 ![](images/2024-03/20240313_MagadiFlamingos_1920x1080.jpg)
 
