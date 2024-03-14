@@ -1,4 +1,4 @@
-#### 20240314 Wat Phra Ngam，大城府历史公园，泰国 (© boonchai wedmakawand/Alamy Stock Photo)
+#### 20240314 Wat Phra Ngam, Ayutthaya Historical Park, Thailand (© boonchai wedmakawand/Alamy)
 
 ![](images/2024-03/20240314_AyutthayaTree_1920x1080.jpg)
 
