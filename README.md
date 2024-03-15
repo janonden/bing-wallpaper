@@ -6,7 +6,7 @@
 
 ![](images/2024-03/20240315_AvenueLimeTrees_1920x1080.jpg)
 
-#### 20240315 安沙波利哥沙漠州立公园，美国加利福尼亚州 (© Stephen Matera/Tandem Stills + Motion)
+#### 20240315 Anza-Borrego Desert State Park, California (© Stephen Matera/Tandem Stills + Motion)
 
 ![](images/2024-03/20240315_AnzaBorregoBloom_1920x1080.jpg)
 
