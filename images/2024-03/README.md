@@ -1,3 +1,7 @@
+#### 20240315 Colourful tulip fields in Fraser Valley, Abbotsford, BC, Canada (© LeonU/Getty Images)
+
+![](20240315_TulipAbbotsford_1920x1080.jpg)
+
 #### 20240315 Lindenallee, baumgesäumter Fußweg durch den Park im Frühling (© AVTG/Getty Images)
 
 ![](20240315_AvenueLimeTrees_1920x1080.jpg)
