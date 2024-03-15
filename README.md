@@ -1,3 +1,7 @@
+#### 20240315 Lindenallee, baumgesäumter Fußweg durch den Park im Frühling (© AVTG/Getty Images)
+
+![](images/2024-03/20240315_AvenueLimeTrees_1920x1080.jpg)
+
 #### 20240315 安沙波利哥沙漠州立公园，美国加利福尼亚州 (© Stephen Matera/Tandem Stills + Motion)
 
 ![](images/2024-03/20240315_AnzaBorregoBloom_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240308 伊瓜苏大瀑布鸟瞰图，巴西 (© Nido Huebl/Shutterstock)
 
 ![](images/2024-03/20240308_IguazuFalls_1920x1080.jpg)
-
-#### 20240307 Roques de Benet, Els Ports Natural Park, Catalonia, Spain (© Sergi Boixader/Alamy)
-
-![](images/2024-03/20240307_TarragonaSpain_1920x1080.jpg)
 
 
 
