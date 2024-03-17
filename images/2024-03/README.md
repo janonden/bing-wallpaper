@@ -1,4 +1,4 @@
-#### 20240317 圣菲尼安湾，凯里郡，爱尔兰 (© Atlantide Phototravel/Getty Images)
+#### 20240317 St. Finian's Bay, County Kerry, Ireland (© Atlantide Phototravel/Getty Images)
 
 ![](20240317_StFiniansBay_1920x1080.jpg)
 
