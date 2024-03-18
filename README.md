@@ -1,3 +1,7 @@
+#### 20240319 盛开的扁桃树, 加利福尼亚州，美国 (© Jeffrey Lewis/Tandem Stills + Motion)
+
+![](images/2024-03/20240319_AlmondBloom_1920x1080.jpg)
+
 #### 20240318 Elephant Rock, Al-Ula, Saudi Arabia (© Lubo Ivanko/Shutterstock)
 
 ![](images/2024-03/20240318_ElephantRock_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240311 追悼イベントの灯籠, 宮城県 名取市 (© Satoshi Takahashi/Getty Images)
 
 ![](images/2024-03/20240311_Earthquake_1920x1080.jpg)
-
-#### 20240310 La Mer de Glace, Chamonix, massif du Mont-Blanc, Haute-Savoie, France (© Hagenmuller Jean-François/Hemis.fr)
-
-![](images/2024-03/20240310_MontBlancGlacier_1920x1080.jpg)
 
 
 

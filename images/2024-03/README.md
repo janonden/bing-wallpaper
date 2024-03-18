@@ -1,3 +1,7 @@
+#### 20240319 盛开的扁桃树, 加利福尼亚州，美国 (© Jeffrey Lewis/Tandem Stills + Motion)
+
+![](20240319_AlmondBloom_1920x1080.jpg)
+
 #### 20240318 Elephant Rock, Al-Ula, Saudi Arabia (© Lubo Ivanko/Shutterstock)
 
 ![](20240318_ElephantRock_1920x1080.jpg)
