@@ -1,4 +1,4 @@
-#### 20240318 大象岩，古城欧拉，沙特阿拉伯 (© Lubo Ivanko/Shutterstock)
+#### 20240318 Elephant Rock, Al-Ula, Saudi Arabia (© Lubo Ivanko/Shutterstock)
 
 ![](images/2024-03/20240318_ElephantRock_1920x1080.jpg)
 
