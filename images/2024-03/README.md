@@ -1,3 +1,7 @@
+#### 20240321 布恩迪国家公园，乌干达 (© Art Wolfe/DanitaDelimont.com)
+
+![](20240321_BwindiNationalForest_1920x1080.jpg)
+
 #### 20240320 鸟瞰春日盛开的樱花，中国 (© outcast85/Getty images)
 
 ![](20240320_Springequinox_1920x1080.jpg)

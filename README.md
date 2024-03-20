@@ -1,3 +1,7 @@
+#### 20240321 布恩迪国家公园，乌干达 (© Art Wolfe/DanitaDelimont.com)
+
+![](images/2024-03/20240321_BwindiNationalForest_1920x1080.jpg)
+
 #### 20240320 鸟瞰春日盛开的樱花，中国 (© outcast85/Getty images)
 
 ![](images/2024-03/20240320_Springequinox_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240315 Anza-Borrego Desert State Park, California (© Stephen Matera/Tandem Stills + Motion)
 
 ![](images/2024-03/20240315_AnzaBorregoBloom_1920x1080.jpg)
-
-#### 20240314 Wat Phra Ngam, Ayutthaya Historical Park, Thailand (© boonchai wedmakawand/Alamy)
-
-![](images/2024-03/20240314_AyutthayaTree_1920x1080.jpg)
 
 
 
