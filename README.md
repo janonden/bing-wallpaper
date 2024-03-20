@@ -6,6 +6,10 @@
 
 ![](images/2024-03/20240320_MtPrevostDuncan_1920x1080.jpg)
 
+#### 20240320 Château d'If, Calanques, Marseille, Bouches du Rhône (© MOIRENC Camille/Hemis/Alamy Stock Photo)
+
+![](images/2024-03/20240320_ChateauIf_1920x1080.jpg)
+
 #### 20240319 Tree frog on leaf (© Tetsuya Tanooka/DEEPOL by plainpicture)
 
 ![](images/2024-03/20240319_SpringFrog_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240313 Lesser flamingos flying over Lake Magadi, Kenya (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)
 
 ![](images/2024-03/20240313_MagadiFlamingos_1920x1080.jpg)
-
-#### 20240312 東大寺, 奈良県 奈良市 (© Buddhika Weerasinghe/Getty Images)
-
-![](images/2024-03/20240312_OmizutoriNew_1920x1080.jpg)
 
 
 
