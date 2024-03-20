@@ -6,6 +6,10 @@
 
 ![](20240320_MtPrevostDuncan_1920x1080.jpg)
 
+#### 20240320 The Jefferson Memorial during the Cherry Blossom Festival, Washington, DC (© f11photo/Shutterstock)
+
+![](20240320_CherryBlossomsDC_1920x1080.jpg)
+
 #### 20240320 Château d'If, Calanques, Marseille, Bouches du Rhône (© MOIRENC Camille/Hemis/Alamy Stock Photo)
 
 ![](20240320_ChateauIf_1920x1080.jpg)

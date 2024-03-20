@@ -6,6 +6,10 @@
 
 ![](images/2024-03/20240320_MtPrevostDuncan_1920x1080.jpg)
 
+#### 20240320 The Jefferson Memorial during the Cherry Blossom Festival, Washington, DC (© f11photo/Shutterstock)
+
+![](images/2024-03/20240320_CherryBlossomsDC_1920x1080.jpg)
+
 #### 20240320 Château d'If, Calanques, Marseille, Bouches du Rhône (© MOIRENC Camille/Hemis/Alamy Stock Photo)
 
 ![](images/2024-03/20240320_ChateauIf_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240314 Wat Phra Ngam, Ayutthaya Historical Park, Thailand (© boonchai wedmakawand/Alamy)
 
 ![](images/2024-03/20240314_AyutthayaTree_1920x1080.jpg)
-
-#### 20240313 Lesser flamingos flying over Lake Magadi, Kenya (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)
-
-![](images/2024-03/20240313_MagadiFlamingos_1920x1080.jpg)
 
 
 
