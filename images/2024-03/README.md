@@ -1,4 +1,4 @@
-#### 20240321 布恩迪国家公园，乌干达 (© Art Wolfe/DanitaDelimont.com)
+#### 20240321 Bwindi Impenetrable National Forest, Uganda (© Art Wolfe/DanitaDelimont.com)
 
 ![](20240321_BwindiNationalForest_1920x1080.jpg)
 
