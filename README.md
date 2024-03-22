@@ -1,3 +1,7 @@
+#### 20240323 巴西亚马逊上空巨大的砧状云 (© NASA)
+
+![](images/2024-03/20240323_AmazonClouds_1920x1080.jpg)
+
 #### 20240322 Blue Spring, Te Waihou Walkway, New Zealand (© Ian Beattie/Alamy)
 
 ![](images/2024-03/20240322_WaikatoWater_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240315 Colourful tulip fields in Fraser Valley, Abbotsford, BC, Canada (© LeonU/Getty Images)
 
 ![](images/2024-03/20240315_TulipAbbotsford_1920x1080.jpg)
-
-#### 20240315 Lindenallee, baumgesäumter Fußweg durch den Park im Frühling (© AVTG/Getty Images)
-
-![](images/2024-03/20240315_AvenueLimeTrees_1920x1080.jpg)
 
 
 

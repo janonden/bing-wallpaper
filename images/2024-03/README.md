@@ -1,3 +1,7 @@
+#### 20240323 巴西亚马逊上空巨大的砧状云 (© NASA)
+
+![](20240323_AmazonClouds_1920x1080.jpg)
+
 #### 20240322 Blue Spring, Te Waihou Walkway, New Zealand (© Ian Beattie/Alamy)
 
 ![](20240322_WaikatoWater_1920x1080.jpg)
