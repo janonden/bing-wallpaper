@@ -1,4 +1,4 @@
-#### 20240322 蓝泉，蒂怀霍步道，新西兰 (© Ian Beattie/Alamy Stock Photo)
+#### 20240322 Blue Spring, Te Waihou Walkway, New Zealand (© Ian Beattie/Alamy)
 
 ![](20240322_WaikatoWater_1920x1080.jpg)
 
