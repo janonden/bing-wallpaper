@@ -1,4 +1,4 @@
-#### 20240323 巴西亚马逊上空巨大的砧状云 (© NASA)
+#### 20240323 Large anvil clouds above the Amazon in Brazil (© NASA)
 
 ![](images/2024-03/20240323_AmazonClouds_1920x1080.jpg)
 
