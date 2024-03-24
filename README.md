@@ -1,3 +1,7 @@
+#### 20240325 カラフルな色粉を投げ合う様子, インド (© Avishek Das/SOPA Images/LightRocket via Getty Images)
+
+![](images/2024-03/20240325_ColorfulHoli_1920x1080.jpg)
+
 #### 20240324 Silvereyes with cherry blossoms, South Korea (© TigerSeo/Getty Images)
 
 ![](images/2024-03/20240324_WhiteEyes_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240319 盛开的扁桃树, 加利福尼亚州，美国 (© Jeffrey Lewis/Tandem Stills + Motion)
 
 ![](images/2024-03/20240319_AlmondBloom_1920x1080.jpg)
-
-#### 20240318 Elephant Rock, Al-Ula, Saudi Arabia (© Lubo Ivanko/Shutterstock)
-
-![](images/2024-03/20240318_ElephantRock_1920x1080.jpg)
 
 
 
