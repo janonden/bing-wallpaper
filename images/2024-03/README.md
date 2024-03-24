@@ -2,6 +2,10 @@
 
 ![](20240324_WhiteEyes_1920x1080.jpg)
 
+#### 20240324 Blick auf Felder, Luftaufnahme, Bayern (© Westend61 GmbH/Alamy)
+
+![](20240324_ViewFieldsBavaria_1920x1080.jpg)
+
 #### 20240324 オカバンゴ・デルタ, ボツワナ (© Ibrahim Suha Derbent/Getty Images)
 
 ![](20240324_AntelopeBotswana_1920x1080.jpg)

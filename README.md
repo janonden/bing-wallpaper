@@ -2,6 +2,10 @@
 
 ![](images/2024-03/20240324_WhiteEyes_1920x1080.jpg)
 
+#### 20240324 Blick auf Felder, Luftaufnahme, Bayern (© Westend61 GmbH/Alamy)
+
+![](images/2024-03/20240324_ViewFieldsBavaria_1920x1080.jpg)
+
 #### 20240324 オカバンゴ・デルタ, ボツワナ (© Ibrahim Suha Derbent/Getty Images)
 
 ![](images/2024-03/20240324_AntelopeBotswana_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240318 Elephant Rock, Al-Ula, Saudi Arabia (© Lubo Ivanko/Shutterstock)
 
 ![](images/2024-03/20240318_ElephantRock_1920x1080.jpg)
-
-#### 20240317 St. Finian's Bay, County Kerry, Ireland (© Atlantide Phototravel/Getty Images)
-
-![](images/2024-03/20240317_StFiniansBay_1920x1080.jpg)
 
 
 
