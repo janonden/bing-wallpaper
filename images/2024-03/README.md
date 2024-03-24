@@ -1,4 +1,4 @@
-#### 20240324 樱花树枝上的灰胸绣眼鸟，韩国 (© TigerSeo/Getty Images)
+#### 20240324 Silvereyes with cherry blossoms, South Korea (© TigerSeo/Getty Images)
 
 ![](20240324_WhiteEyes_1920x1080.jpg)
 
