@@ -1,3 +1,7 @@
+#### 20240325 Une biche dans un champ de colza, lac de Serre-Ponçon, Chorges, Hautes-Alpes, France (© Alain Bachellier/Getty Images)
+
+![](images/2024-03/20240325_ProcrastinationDay_1920x1080.jpg)
+
 #### 20240325 カラフルな色粉を投げ合う様子, インド (© Avishek Das/SOPA Images/LightRocket via Getty Images)
 
 ![](images/2024-03/20240325_ColorfulHoli_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240319 ブライスキャニオン国立公園, 米国 ユタ州 (© Jim Patterson/Tandem Stills + Motion)
 
 ![](images/2024-03/20240319_BryceSnow_1920x1080.jpg)
-
-#### 20240319 盛开的扁桃树, 加利福尼亚州，美国 (© Jeffrey Lewis/Tandem Stills + Motion)
-
-![](images/2024-03/20240319_AlmondBloom_1920x1080.jpg)
 
 
 
