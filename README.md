@@ -6,7 +6,7 @@
 
 ![](images/2024-03/20240325_ProcrastinationDay_1920x1080.jpg)
 
-#### 20240325 カラフルな色粉を投げ合う様子, インド (© Avishek Das/SOPA Images/LightRocket via Getty Images)
+#### 20240325 Celebrating Holi in Mathura, Uttar Pradesh, India (© Avishek Das/SOPA Images/LightRocket via Getty Images)
 
 ![](images/2024-03/20240325_ColorfulHoli_1920x1080.jpg)
 
