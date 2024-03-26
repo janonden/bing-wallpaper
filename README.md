@@ -1,4 +1,4 @@
-#### 20240326 海水从古老的珊瑚礁上倾泻而下，杭莱，越南 (© Thang Tat Nguyen/Getty Images)
+#### 20240326 Seawater cascades over an ancient coral reef, Hang Rai, Vietnam (© Thang Tat Nguyen/Getty Images)
 
 ![](images/2024-03/20240326_HangRaiVietnam_1920x1080.jpg)
 
