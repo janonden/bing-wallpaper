@@ -1,4 +1,8 @@
-#### 20240327 布宜诺斯艾利斯哥伦布剧院，阿根廷 (© Wei Hao Ho/Alamy Stock Photo)
+#### 20240328 Tea plantation near Munnar, Kerala, India (© Peter Zelei Images/Getty Images)
+
+![](20240328_TeaPlantation_1920x1080.jpg)
+
+#### 20240327 Teatro Colón in Buenos Aires, Argentina (© Wei Hao Ho/Alamy)
 
 ![](20240327_TeatroColon_1920x1080.jpg)
 

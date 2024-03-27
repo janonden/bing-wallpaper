@@ -1,4 +1,8 @@
-#### 20240327 布宜诺斯艾利斯哥伦布剧院，阿根廷 (© Wei Hao Ho/Alamy Stock Photo)
+#### 20240328 Tea plantation near Munnar, Kerala, India (© Peter Zelei Images/Getty Images)
+
+![](images/2024-03/20240328_TeaPlantation_1920x1080.jpg)
+
+#### 20240327 Teatro Colón in Buenos Aires, Argentina (© Wei Hao Ho/Alamy)
 
 ![](images/2024-03/20240327_TeatroColon_1920x1080.jpg)
 
@@ -53,10 +57,6 @@
 #### 20240320 カウチンバレー, カナダ ブリティッシュコロンビア州 (© Kevin Oke/Alamy)
 
 ![](images/2024-03/20240320_MtPrevostDuncan_1920x1080.jpg)
-
-#### 20240320 The Jefferson Memorial during the Cherry Blossom Festival, Washington, DC (© f11photo/Shutterstock)
-
-![](images/2024-03/20240320_CherryBlossomsDC_1920x1080.jpg)
 
 
 
