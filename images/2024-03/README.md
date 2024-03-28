@@ -1,3 +1,7 @@
+#### 20240329 日落时的南斯塔克灯塔，霍利希德，威尔士，英国 (© mariotlr/Getty Images)
+
+![](20240329_SouthStackLight_1920x1080.jpg)
+
 #### 20240328 Tea plantation near Munnar, Kerala, India (© Peter Zelei Images/Getty Images)
 
 ![](20240328_TeaPlantation_1920x1080.jpg)
