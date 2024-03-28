@@ -2,7 +2,7 @@
 
 ![](20240328_TeaPlantation_1920x1080.jpg)
 
-#### 20240328 上海的樱花，中国 (© Yaorusheng/Getty Images)
+#### 20240328 Cherry blossoms in Shanghai, China (© Yaorusheng/Getty Images)
 
 ![](20240328_ShanghaiBlossoms_1920x1080.jpg)
 
