@@ -1,3 +1,7 @@
+#### 20240330 睡在号角树上的褐喉树懒，哥斯达黎加 (© Juan Carlos Vindas/Getty Images)
+
+![](images/2024-03/20240330_SleepySloth_1920x1080.jpg)
+
 #### 20240329 South Stack Lighthouse at sunset, Holy Island, Wales (© mariotlr/Getty Images)
 
 ![](images/2024-03/20240329_SouthStackLight_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240322 Blue Spring, Te Waihou Walkway, New Zealand (© Ian Beattie/Alamy)
 
 ![](images/2024-03/20240322_WaikatoWater_1920x1080.jpg)
-
-#### 20240321 Bwindi Impenetrable National Forest, Uganda (© Art Wolfe/DanitaDelimont.com)
-
-![](images/2024-03/20240321_BwindiNationalForest_1920x1080.jpg)
 
 
 
