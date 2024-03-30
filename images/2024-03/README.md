@@ -1,4 +1,4 @@
-#### 20240330 睡在号角树上的褐喉树懒，哥斯达黎加 (© Juan Carlos Vindas/Getty Images)
+#### 20240330 Brown-throated three-toed sloth sleeping in cecropia tree, Costa Rica (© Juan Carlos Vindas/Getty Images)
 
 ![](20240330_SleepySloth_1920x1080.jpg)
 
