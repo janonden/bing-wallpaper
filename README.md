@@ -1,3 +1,11 @@
+#### 20240331 カラフルにペイントされたイースターエッグ, ハンガリー (© ATTILA KISBENEDEK/AFP/Getty Images)
+
+![](images/2024-03/20240331_HungarianEggs_1920x1080.jpg)
+
+#### 20240331 潘塔纳尔湿地的大白鹭，巴西 (© Geraldi Corsi/Getty Images)
+
+![](images/2024-03/20240331_ArdeAlba_1920x1080.jpg)
+
 #### 20240330 Brown-throated three-toed sloth sleeping in cecropia tree, Costa Rica (© Juan Carlos Vindas/Getty Images)
 
 ![](images/2024-03/20240330_SleepySloth_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20240324 Blick auf Felder, Luftaufnahme, Bayern (© Westend61 GmbH/Alamy)
 
 ![](images/2024-03/20240324_ViewFieldsBavaria_1920x1080.jpg)
-
-#### 20240324 オカバンゴ・デルタ, ボツワナ (© Ibrahim Suha Derbent/Getty Images)
-
-![](images/2024-03/20240324_AntelopeBotswana_1920x1080.jpg)
-
-#### 20240323 Large anvil clouds above the Amazon in Brazil (© NASA)
-
-![](images/2024-03/20240323_AmazonClouds_1920x1080.jpg)
 
 
 
