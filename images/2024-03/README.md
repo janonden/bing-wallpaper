@@ -2,6 +2,10 @@
 
 ![](20240330_SleepySloth_1920x1080.jpg)
 
+#### 20240330 „Vanishing Point“, des Straßenkünstlers JR bedeckt die Fassade des Palazzo Farnese, Rom, Italien (© Fabrizio Troiani/Alamy Stock Photo)
+
+![](20240330_PalazzoFarnese_1920x1080.jpg)
+
 #### 20240329 South Stack Lighthouse at sunset, Holy Island, Wales (© mariotlr/Getty Images)
 
 ![](20240329_SouthStackLight_1920x1080.jpg)
