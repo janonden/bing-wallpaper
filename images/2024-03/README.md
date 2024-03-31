@@ -1,4 +1,4 @@
-#### 20240331 カラフルにペイントされたイースターエッグ, ハンガリー (© ATTILA KISBENEDEK/AFP/Getty Images)
+#### 20240331 Easter eggs painted by Tünde Csuhaj, Szekszárd, Hungary (© ATTILA KISBENEDEK/AFP/Getty Images)
 
 ![](20240331_HungarianEggs_1920x1080.jpg)
 
