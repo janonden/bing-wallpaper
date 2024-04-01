@@ -1,3 +1,7 @@
+#### 20240402 日德兰半岛的山毛榉树和野生海葵 ，丹麦 (© Nick Brundle Photography/Getty Images)
+
+![](images/2024-04/20240402_JutlandSpring_1920x1080.jpg)
+
 #### 20240401 Traunsteiner Pferde beim traditionellen St. Georgi-Ritt am Ostermontag in bayerischen Farben geschmückt, Deutschland (© Christof Stache/AFP via Getty Images)
 
 ![](images/2024-04/20240401_StGeorgiRide_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240325 Une biche dans un champ de colza, lac de Serre-Ponçon, Chorges, Hautes-Alpes, France (© Alain Bachellier/Getty Images)
 
 ![](images/2024-03/20240325_ProcrastinationDay_1920x1080.jpg)
-
-#### 20240325 Celebrating Holi in Mathura, Uttar Pradesh, India (© Avishek Das/SOPA Images/LightRocket via Getty Images)
-
-![](images/2024-03/20240325_ColorfulHoli_1920x1080.jpg)
 
 
 
