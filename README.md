@@ -1,3 +1,7 @@
+#### 20240401 Traunsteiner Pferde beim traditionellen St. Georgi-Ritt am Ostermontag in bayerischen Farben geschmückt, Deutschland (© Christof Stache/AFP via Getty Images)
+
+![](images/2024-04/20240401_StGeorgiRide_1920x1080.jpg)
+
 #### 20240401 勃朗峰上的冰海，夏慕尼，法国 (© Hagenmuller Jean-François/Hemis/Alamy)
 
 ![](images/2024-04/20240401_MontBlancGlacier_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240325 Celebrating Holi in Mathura, Uttar Pradesh, India (© Avishek Das/SOPA Images/LightRocket via Getty Images)
 
 ![](images/2024-03/20240325_ColorfulHoli_1920x1080.jpg)
-
-#### 20240324 Silvereyes with cherry blossoms, South Korea (© TigerSeo/Getty Images)
-
-![](images/2024-03/20240324_WhiteEyes_1920x1080.jpg)
 
 
 
