@@ -1,4 +1,4 @@
-#### 20240402 日德兰半岛的山毛榉树和野生海葵 ，丹麦 (© Nick Brundle Photography/Getty Images)
+#### 20240402 Beech trees and wild anemones, Jutland, Denmark (© Nick Brundle Photography/Getty Images)
 
 ![](images/2024-04/20240402_JutlandSpring_1920x1080.jpg)
 
