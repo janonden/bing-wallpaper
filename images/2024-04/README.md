@@ -1,3 +1,7 @@
+#### 20240403 At-Bashy地区的彩虹，Kakshaal Too山脉，纳伦省，吉尔吉斯斯坦 (© Emad aljumah/Getty Images)
+
+![](20240403_KyrgyzstanRainbow_1920x1080.jpg)
+
 #### 20240402 Beech trees and wild anemones, Jutland, Denmark (© Nick Brundle Photography/Getty Images)
 
 ![](20240402_JutlandSpring_1920x1080.jpg)

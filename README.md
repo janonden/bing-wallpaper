@@ -1,3 +1,7 @@
+#### 20240403 At-Bashy地区的彩虹，Kakshaal Too山脉，纳伦省，吉尔吉斯斯坦 (© Emad aljumah/Getty Images)
+
+![](images/2024-04/20240403_KyrgyzstanRainbow_1920x1080.jpg)
+
 #### 20240402 Beech trees and wild anemones, Jutland, Denmark (© Nick Brundle Photography/Getty Images)
 
 ![](images/2024-04/20240402_JutlandSpring_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240325 弗雷泽河谷的郁金香田，阿伯兹福德，不列颠哥伦比亚省，加拿大 (© LeonU/Getty Images)
 
 ![](images/2024-03/20240325_TulipAbbotsford_1920x1080.jpg)
-
-#### 20240325 Une biche dans un champ de colza, lac de Serre-Ponçon, Chorges, Hautes-Alpes, France (© Alain Bachellier/Getty Images)
-
-![](images/2024-03/20240325_ProcrastinationDay_1920x1080.jpg)
 
 
 
