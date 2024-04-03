@@ -2,7 +2,7 @@
 
 ![](20240403_PacificRimNationalPark_1920x1080.jpg)
 
-#### 20240403 At-Bashy地区的彩虹，Kakshaal Too山脉，纳伦省，吉尔吉斯斯坦 (© Emad aljumah/Getty Images)
+#### 20240403 A rainbow in At-Bashy District  , Kakshaal Too Mountains, Naryn Province, Kyrgyzstan (© Emad aljumah/Getty Images)
 
 ![](20240403_KyrgyzstanRainbow_1920x1080.jpg)
 
