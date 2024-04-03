@@ -2,6 +2,10 @@
 
 ![](images/2024-04/20240403_KyrgyzstanRainbow_1920x1080.jpg)
 
+#### 20240403 Château de Chambord, Vallée de la Loire, France (© Susanne Kremer/Huber/eStock Photo)
+
+![](images/2024-04/20240403_ChambordCastle_1920x1080.jpg)
+
 #### 20240402 Beech trees and wild anemones, Jutland, Denmark (© Nick Brundle Photography/Getty Images)
 
 ![](images/2024-04/20240402_JutlandSpring_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240326 目黒川沿いの桜, 東京 (© twomeows/Getty Images)
 
 ![](images/2024-03/20240326_CherryBlossom_1920x1080.jpg)
-
-#### 20240325 弗雷泽河谷的郁金香田，阿伯兹福德，不列颠哥伦比亚省，加拿大 (© LeonU/Getty Images)
-
-![](images/2024-03/20240325_TulipAbbotsford_1920x1080.jpg)
 
 
 
