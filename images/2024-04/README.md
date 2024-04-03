@@ -1,3 +1,11 @@
+#### 20240404 吉野山の桜, 奈良県 吉野郡 (© Sean Pavone/iStock/Getty Images Plus)
+
+![](20240404_YoshinoyamaSpring_1920x1080.jpg)
+
+#### 20240404 红驴羚群穿越奥卡万戈三角洲的沼泽平原，博茨瓦纳 (© Ibrahim Suha Derbent/Getty Images)
+
+![](20240404_AntelopeBotswana_1920x1080.jpg)
+
 #### 20240403 Broken Group Islands, Pacific Rim National Park Reserve, Vancouver Island, British Columbia (© Ron Watts/Design Pics/Getty Images)
 
 ![](20240403_PacificRimNationalPark_1920x1080.jpg)
