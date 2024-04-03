@@ -1,3 +1,7 @@
+#### 20240403 Broken Group Islands, Pacific Rim National Park Reserve, Vancouver Island, British Columbia (© Ron Watts/Design Pics/Getty Images)
+
+![](images/2024-04/20240403_PacificRimNationalPark_1920x1080.jpg)
+
 #### 20240403 At-Bashy地区的彩虹，Kakshaal Too山脉，纳伦省，吉尔吉斯斯坦 (© Emad aljumah/Getty Images)
 
 ![](images/2024-04/20240403_KyrgyzstanRainbow_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240326 Seawater cascades over an ancient coral reef, Hang Rai, Vietnam (© Thang Tat Nguyen/Getty Images)
 
 ![](images/2024-03/20240326_HangRaiVietnam_1920x1080.jpg)
-
-#### 20240326 目黒川沿いの桜, 東京 (© twomeows/Getty Images)
-
-![](images/2024-03/20240326_CherryBlossom_1920x1080.jpg)
 
 
 
