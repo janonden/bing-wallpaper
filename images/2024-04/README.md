@@ -2,7 +2,7 @@
 
 ![](20240404_YoshinoyamaSpring_1920x1080.jpg)
 
-#### 20240404 红驴羚群穿越奥卡万戈三角洲的沼泽平原，博茨瓦纳 (© Ibrahim Suha Derbent/Getty Images)
+#### 20240404 Red lechwe herd crossing marshy plain of Okavango Delta, Botswana (© Ibrahim Suha Derbent/Getty Images)
 
 ![](20240404_AntelopeBotswana_1920x1080.jpg)
 
