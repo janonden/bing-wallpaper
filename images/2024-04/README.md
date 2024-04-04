@@ -1,3 +1,7 @@
+#### 20240405 从国际空间站拍摄的巴哈马群岛 (© NASA)
+
+![](20240405_BahamasSpace_1920x1080.jpg)
+
 #### 20240404 吉野山の桜, 奈良県 吉野郡 (© Sean Pavone/iStock/Getty Images Plus)
 
 ![](20240404_YoshinoyamaSpring_1920x1080.jpg)

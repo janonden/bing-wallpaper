@@ -1,3 +1,7 @@
+#### 20240405 从国际空间站拍摄的巴哈马群岛 (© NASA)
+
+![](images/2024-04/20240405_BahamasSpace_1920x1080.jpg)
+
 #### 20240404 吉野山の桜, 奈良県 吉野郡 (© Sean Pavone/iStock/Getty Images Plus)
 
 ![](images/2024-04/20240404_YoshinoyamaSpring_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240328 Tea plantation near Munnar, Kerala, India (© Peter Zelei Images/Getty Images)
 
 ![](images/2024-03/20240328_TeaPlantation_1920x1080.jpg)
-
-#### 20240328 Cherry blossoms in Shanghai, China (© Yaorusheng/Getty Images)
-
-![](images/2024-03/20240328_ShanghaiBlossoms_1920x1080.jpg)
 
 
 
