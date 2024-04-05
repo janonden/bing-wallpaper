@@ -1,3 +1,7 @@
+#### 20240406 姬路城，姫路，兵库县，日本 (© Julian Elliott Photography/Getty Images)
+
+![](images/2024-04/20240406_JapanHimeji_1920x1080.jpg)
+
 #### 20240405 The Bahamas photographed from the International Space Station (© NASA)
 
 ![](images/2024-04/20240405_BahamasSpace_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240329 South Stack Lighthouse at sunset, Holy Island, Wales (© mariotlr/Getty Images)
 
 ![](images/2024-03/20240329_SouthStackLight_1920x1080.jpg)
-
-#### 20240328 Tea plantation near Munnar, Kerala, India (© Peter Zelei Images/Getty Images)
-
-![](images/2024-03/20240328_TeaPlantation_1920x1080.jpg)
 
 
 

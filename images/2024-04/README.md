@@ -1,3 +1,7 @@
+#### 20240406 姬路城，姫路，兵库县，日本 (© Julian Elliott Photography/Getty Images)
+
+![](20240406_JapanHimeji_1920x1080.jpg)
+
 #### 20240405 The Bahamas photographed from the International Space Station (© NASA)
 
 ![](20240405_BahamasSpace_1920x1080.jpg)
