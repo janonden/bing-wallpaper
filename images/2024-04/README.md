@@ -1,4 +1,4 @@
-#### 20240405 从国际空间站拍摄的巴哈马群岛 (© NASA)
+#### 20240405 The Bahamas photographed from the International Space Station (© NASA)
 
 ![](20240405_BahamasSpace_1920x1080.jpg)
 
