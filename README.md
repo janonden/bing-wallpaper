@@ -1,3 +1,7 @@
+#### 20240407 奇迹湖附近池塘里的北美海狸，德纳里国家公园，阿拉斯加州，美国 (© Paul Souders/Getty Images)
+
+![](images/2024-04/20240407_BeaverDenali_1920x1080.jpg)
+
 #### 20240406 Himeji Castle, Himeji, Hyōgo Prefecture, Japan (© Julian Elliott Photography/Getty Images)
 
 ![](images/2024-04/20240406_JapanHimeji_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240330 'Vanishing Point' by French street artist JR on the facade of Palazzo Farnese, Rome, Italy (© Fabrizio Troiani/Alamy)
 
 ![](images/2024-03/20240330_PalazzoFarnese_1920x1080.jpg)
-
-#### 20240329 South Stack Lighthouse at sunset, Holy Island, Wales (© mariotlr/Getty Images)
-
-![](images/2024-03/20240329_SouthStackLight_1920x1080.jpg)
 
 
 

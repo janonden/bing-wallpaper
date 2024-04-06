@@ -1,3 +1,7 @@
+#### 20240407 奇迹湖附近池塘里的北美海狸，德纳里国家公园，阿拉斯加州，美国 (© Paul Souders/Getty Images)
+
+![](20240407_BeaverDenali_1920x1080.jpg)
+
 #### 20240406 Himeji Castle, Himeji, Hyōgo Prefecture, Japan (© Julian Elliott Photography/Getty Images)
 
 ![](20240406_JapanHimeji_1920x1080.jpg)
