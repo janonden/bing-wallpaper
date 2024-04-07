@@ -1,3 +1,11 @@
+#### 20240408 リンゴの果樹園, ドイツ (© Smileus/Getty Images)
+
+![](20240408_SpringApple_1920x1080.jpg)
+
+#### 20240408 欧洲刺猬在长满蒲公英的花园里，巴特德里堡，德国 (© Oksana Schmidt/Getty Images)
+
+![](20240408_HedgehogMeadow_1920x1080.jpg)
+
 #### 20240407 North American beaver in a pond near Wonder Lake, Denali National Park, Alaska (© Paul Souders/Getty Images)
 
 ![](20240407_BeaverDenali_1920x1080.jpg)

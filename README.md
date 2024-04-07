@@ -1,3 +1,11 @@
+#### 20240408 リンゴの果樹園, ドイツ (© Smileus/Getty Images)
+
+![](images/2024-04/20240408_SpringApple_1920x1080.jpg)
+
+#### 20240408 欧洲刺猬在长满蒲公英的花园里，巴特德里堡，德国 (© Oksana Schmidt/Getty Images)
+
+![](images/2024-04/20240408_HedgehogMeadow_1920x1080.jpg)
+
 #### 20240407 North American beaver in a pond near Wonder Lake, Denali National Park, Alaska (© Paul Souders/Getty Images)
 
 ![](images/2024-04/20240407_BeaverDenali_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20240331 潘塔纳尔湿地的大白鹭，巴西 (© Geraldi Corsi/Getty Images)
 
 ![](images/2024-03/20240331_ArdeAlba_1920x1080.jpg)
-
-#### 20240330 Brown-throated three-toed sloth sleeping in cecropia tree, Costa Rica (© Juan Carlos Vindas/Getty Images)
-
-![](images/2024-03/20240330_SleepySloth_1920x1080.jpg)
-
-#### 20240330 'Vanishing Point' by French street artist JR on the facade of Palazzo Farnese, Rome, Italy (© Fabrizio Troiani/Alamy)
-
-![](images/2024-03/20240330_PalazzoFarnese_1920x1080.jpg)
 
 
 
