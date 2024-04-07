@@ -1,4 +1,4 @@
-#### 20240407 奇迹湖附近池塘里的北美海狸，德纳里国家公园，阿拉斯加州，美国 (© Paul Souders/Getty Images)
+#### 20240407 North American beaver in a pond near Wonder Lake, Denali National Park, Alaska (© Paul Souders/Getty Images)
 
 ![](20240407_BeaverDenali_1920x1080.jpg)
 
