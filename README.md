@@ -2,6 +2,10 @@
 
 ![](images/2024-04/20240408_SpringApple_1920x1080.jpg)
 
+#### 20240408 Total solar eclipse photographed from Madras, Oregon on August 21, 2017 (© NASA/Aubrey Gemignani)
+
+![](images/2024-04/20240408_SolarEclipseOregon_1920x1080.jpg)
+
 #### 20240408 欧洲刺猬在长满蒲公英的花园里，巴特德里堡，德国 (© Oksana Schmidt/Getty Images)
 
 ![](images/2024-04/20240408_HedgehogMeadow_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240331 Easter eggs painted by Tünde Csuhaj, Szekszárd, Hungary (© ATTILA KISBENEDEK/AFP/Getty Images)
 
 ![](images/2024-03/20240331_HungarianEggs_1920x1080.jpg)
-
-#### 20240331 潘塔纳尔湿地的大白鹭，巴西 (© Geraldi Corsi/Getty Images)
-
-![](images/2024-03/20240331_ArdeAlba_1920x1080.jpg)
 
 
 
