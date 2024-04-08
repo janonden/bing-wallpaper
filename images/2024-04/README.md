@@ -1,3 +1,7 @@
+#### 20240409 郁金香田，斯卡吉特山谷，华盛顿州，美国 (© Claudia Cooper/Getty Images)
+
+![](20240409_SkagitValleyTulips_1920x1080.jpg)
+
 #### 20240408 リンゴの果樹園, ドイツ (© Smileus/Getty Images)
 
 ![](20240408_SpringApple_1920x1080.jpg)
