@@ -1,3 +1,7 @@
+#### 20240410 洞穴附近的穴小鸮雏鸟，怀俄明州，美国 (© Danita Delimont/Getty Images)
+
+![](images/2024-04/20240410_OwlSiblings_1920x1080.jpg)
+
 #### 20240409 Whistler Mountain in the creekside of Whistler (© Insight Photography/Design Pics/Getty Images)
 
 ![](images/2024-04/20240409_WhistlerWSSF_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240402 Beech trees and wild anemones, Jutland, Denmark (© Nick Brundle Photography/Getty Images)
 
 ![](images/2024-04/20240402_JutlandSpring_1920x1080.jpg)
-
-#### 20240401 Traunsteiner Pferde beim traditionellen St. Georgi-Ritt am Ostermontag in bayerischen Farben geschmückt, Deutschland (© Christof Stache/AFP via Getty Images)
-
-![](images/2024-04/20240401_StGeorgiRide_1920x1080.jpg)
 
 
 
