@@ -1,3 +1,7 @@
+#### 20240409 Whistler Mountain in the creekside of Whistler (© Insight Photography/Design Pics/Getty Images)
+
+![](images/2024-04/20240409_WhistlerWSSF_1920x1080.jpg)
+
 #### 20240409 郁金香田，斯卡吉特山谷，华盛顿州，美国 (© Claudia Cooper/Getty Images)
 
 ![](images/2024-04/20240409_SkagitValleyTulips_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240401 Traunsteiner Pferde beim traditionellen St. Georgi-Ritt am Ostermontag in bayerischen Farben geschmückt, Deutschland (© Christof Stache/AFP via Getty Images)
 
 ![](images/2024-04/20240401_StGeorgiRide_1920x1080.jpg)
-
-#### 20240401 勃朗峰上的冰海，夏慕尼，法国 (© Hagenmuller Jean-François/Hemis/Alamy)
-
-![](images/2024-04/20240401_MontBlancGlacier_1920x1080.jpg)
 
 
 
