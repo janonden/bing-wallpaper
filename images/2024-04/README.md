@@ -1,4 +1,4 @@
-#### 20240411 丘伦梅鲁瀑布鸟瞰图，委内瑞拉 (© AirPano LLC/Amazing Aerial Agency)
+#### 20240411 Aerial view of Churún Merú waterfall, Venezuela (© AirPano LLC/Amazing Aerial Agency)
 
 ![](20240411_DragonWaterfall_1920x1080.jpg)
 
