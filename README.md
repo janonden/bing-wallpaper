@@ -1,3 +1,7 @@
+#### 20240413 富士本栖湖リゾート, 山梨県 (© Torsakarin/Getty Images)
+
+![](images/2024-04/20240413_ShibaZakura_1920x1080.jpg)
+
 #### 20240412 Evening light over North Window with Turret Arch in the distance, Arches National Park, Utah (© Anthony Heflin/Shutterstock)
 
 ![](images/2024-04/20240412_SunsetArchesNP_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240403 Broken Group Islands, Pacific Rim National Park Reserve, Vancouver Island, British Columbia (© Ron Watts/Design Pics/Getty Images)
 
 ![](images/2024-04/20240403_PacificRimNationalPark_1920x1080.jpg)
-
-#### 20240403 A rainbow in At-Bashy District  , Kakshaal Too Mountains, Naryn Province, Kyrgyzstan (© Emad aljumah/Getty Images)
-
-![](images/2024-04/20240403_KyrgyzstanRainbow_1920x1080.jpg)
 
 
 

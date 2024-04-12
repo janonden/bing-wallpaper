@@ -1,3 +1,7 @@
+#### 20240413 富士本栖湖リゾート, 山梨県 (© Torsakarin/Getty Images)
+
+![](20240413_ShibaZakura_1920x1080.jpg)
+
 #### 20240412 Evening light over North Window with Turret Arch in the distance, Arches National Park, Utah (© Anthony Heflin/Shutterstock)
 
 ![](20240412_SunsetArchesNP_1920x1080.jpg)
