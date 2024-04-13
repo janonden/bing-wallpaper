@@ -1,3 +1,7 @@
+#### 20240414 保龄球海滩的日落，门多西诺县，加利福尼亚，美国 (© Melo Qiao/Getty Images)
+
+![](images/2024-04/20240414_BowlingBallCali_1920x1080.jpg)
+
 #### 20240413 富士本栖湖リゾート, 山梨県 (© Torsakarin/Getty Images)
 
 ![](images/2024-04/20240413_ShibaZakura_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240405 The Bahamas photographed from the International Space Station (© NASA)
 
 ![](images/2024-04/20240405_BahamasSpace_1920x1080.jpg)
-
-#### 20240404 吉野山の桜, 奈良県 吉野郡 (© Sean Pavone/iStock/Getty Images Plus)
-
-![](images/2024-04/20240404_YoshinoyamaSpring_1920x1080.jpg)
 
 
 
