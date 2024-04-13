@@ -2,6 +2,10 @@
 
 ![](images/2024-04/20240413_ShibaZakura_1920x1080.jpg)
 
+#### 20240413 Vue nocturne depuis le Rhône sur la ville de Lyon avec le Grand Hôtel-Dieu et la cathédrale de Fourvière, France (© Frédéric Prochasson/Getty Images)
+
+![](images/2024-04/20240413_LyonGastronomy_1920x1080.jpg)
+
 #### 20240412 Evening light over North Window with Turret Arch in the distance, Arches National Park, Utah (© Anthony Heflin/Shutterstock)
 
 ![](images/2024-04/20240412_SunsetArchesNP_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240404 Red lechwe herd crossing marshy plain of Okavango Delta, Botswana (© Ibrahim Suha Derbent/Getty Images)
 
 ![](images/2024-04/20240404_AntelopeBotswana_1920x1080.jpg)
-
-#### 20240403 Broken Group Islands, Pacific Rim National Park Reserve, Vancouver Island, British Columbia (© Ron Watts/Design Pics/Getty Images)
-
-![](images/2024-04/20240403_PacificRimNationalPark_1920x1080.jpg)
 
 
 

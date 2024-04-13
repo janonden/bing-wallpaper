@@ -2,6 +2,10 @@
 
 ![](20240413_ShibaZakura_1920x1080.jpg)
 
+#### 20240413 Vue nocturne depuis le Rhône sur la ville de Lyon avec le Grand Hôtel-Dieu et la cathédrale de Fourvière, France (© Frédéric Prochasson/Getty Images)
+
+![](20240413_LyonGastronomy_1920x1080.jpg)
+
 #### 20240412 Evening light over North Window with Turret Arch in the distance, Arches National Park, Utah (© Anthony Heflin/Shutterstock)
 
 ![](20240412_SunsetArchesNP_1920x1080.jpg)
