@@ -2,6 +2,10 @@
 
 ![](images/2024-04/20240413_ShibaZakura_1920x1080.jpg)
 
+#### 20240413 Cherry blossoms in Queen Elizabeth Park, Vancouver (© Yun Han Xu/Moment Open/Getty Images)
+
+![](images/2024-04/20240413_SakuraDaysJapanFair_1920x1080.jpg)
+
 #### 20240413 Vue nocturne depuis le Rhône sur la ville de Lyon avec le Grand Hôtel-Dieu et la cathédrale de Fourvière, France (© Frédéric Prochasson/Getty Images)
 
 ![](images/2024-04/20240413_LyonGastronomy_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240404 吉野山の桜, 奈良県 吉野郡 (© Sean Pavone/iStock/Getty Images Plus)
 
 ![](images/2024-04/20240404_YoshinoyamaSpring_1920x1080.jpg)
-
-#### 20240404 Red lechwe herd crossing marshy plain of Okavango Delta, Botswana (© Ibrahim Suha Derbent/Getty Images)
-
-![](images/2024-04/20240404_AntelopeBotswana_1920x1080.jpg)
 
 
 

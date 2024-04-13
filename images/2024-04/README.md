@@ -2,6 +2,10 @@
 
 ![](20240413_ShibaZakura_1920x1080.jpg)
 
+#### 20240413 Cherry blossoms in Queen Elizabeth Park, Vancouver (© Yun Han Xu/Moment Open/Getty Images)
+
+![](20240413_SakuraDaysJapanFair_1920x1080.jpg)
+
 #### 20240413 Vue nocturne depuis le Rhône sur la ville de Lyon avec le Grand Hôtel-Dieu et la cathédrale de Fourvière, France (© Frédéric Prochasson/Getty Images)
 
 ![](20240413_LyonGastronomy_1920x1080.jpg)
