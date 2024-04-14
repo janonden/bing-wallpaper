@@ -1,3 +1,11 @@
+#### 20240415 アントワープ中央駅, ベルギー (© Brit Worgan/Getty Images)
+
+![](20240415_RedBallBelgium_1920x1080.jpg)
+
+#### 20240415 香波城堡，中央-卢瓦尔河谷大区，法国 (© Susanne Kremer/eStock Photo)
+
+![](20240415_ChambordCastle_1920x1080.jpg)
+
 #### 20240414 Stängellose Schlüsselblumen, Weener, Niedersachsen (© Mohssen Assanimoghaddam/picture alliance via Getty Images)
 
 ![](20240414_WeenerPrimroses_1920x1080.jpg)

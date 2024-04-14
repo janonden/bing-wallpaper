@@ -1,3 +1,11 @@
+#### 20240415 アントワープ中央駅, ベルギー (© Brit Worgan/Getty Images)
+
+![](images/2024-04/20240415_RedBallBelgium_1920x1080.jpg)
+
+#### 20240415 香波城堡，中央-卢瓦尔河谷大区，法国 (© Susanne Kremer/eStock Photo)
+
+![](images/2024-04/20240415_ChambordCastle_1920x1080.jpg)
+
 #### 20240414 Stängellose Schlüsselblumen, Weener, Niedersachsen (© Mohssen Assanimoghaddam/picture alliance via Getty Images)
 
 ![](images/2024-04/20240414_WeenerPrimroses_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20240408 欧洲刺猬在长满蒲公英的花园里，巴特德里堡，德国 (© Oksana Schmidt/Getty Images)
 
 ![](images/2024-04/20240408_HedgehogMeadow_1920x1080.jpg)
-
-#### 20240407 North American beaver in a pond near Wonder Lake, Denali National Park, Alaska (© Paul Souders/Getty Images)
-
-![](images/2024-04/20240407_BeaverDenali_1920x1080.jpg)
-
-#### 20240406 Himeji Castle, Himeji, Hyōgo Prefecture, Japan (© Julian Elliott Photography/Getty Images)
-
-![](images/2024-04/20240406_JapanHimeji_1920x1080.jpg)
 
 
 
