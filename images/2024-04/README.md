@@ -2,7 +2,7 @@
 
 ![](20240414_WeenerPrimroses_1920x1080.jpg)
 
-#### 20240414 保龄球海滩的日落，门多西诺县，加利福尼亚，美国 (© Melo Qiao/Getty Images)
+#### 20240414 Sunset on Bowling Ball Beach, Mendocino County, California (© Melo Qiao/Getty Images)
 
 ![](20240414_BowlingBallCali_1920x1080.jpg)
 
