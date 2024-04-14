@@ -1,3 +1,7 @@
+#### 20240414 Stängellose Schlüsselblumen, Weener, Niedersachsen (© Mohssen Assanimoghaddam/picture alliance via Getty Images)
+
+![](images/2024-04/20240414_WeenerPrimroses_1920x1080.jpg)
+
 #### 20240414 保龄球海滩的日落，门多西诺县，加利福尼亚，美国 (© Melo Qiao/Getty Images)
 
 ![](images/2024-04/20240414_BowlingBallCali_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240406 Himeji Castle, Himeji, Hyōgo Prefecture, Japan (© Julian Elliott Photography/Getty Images)
 
 ![](images/2024-04/20240406_JapanHimeji_1920x1080.jpg)
-
-#### 20240405 The Bahamas photographed from the International Space Station (© NASA)
-
-![](images/2024-04/20240405_BahamasSpace_1920x1080.jpg)
 
 
 
