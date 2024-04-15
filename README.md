@@ -1,3 +1,7 @@
+#### 20240416 暮色中的曼哈顿下城联合广场，纽约，美国 (© Sean Pavone/Getty Images)
+
+![](images/2024-04/20240416_UnionSquareNYC_1920x1080.jpg)
+
 #### 20240415 The RedBall Project art installation, Centraal Station, Antwerp, Belgium (© Brit Worgan/Getty Images)
 
 ![](images/2024-04/20240415_RedBallBelgium_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240408 Total solar eclipse photographed from Madras, Oregon on August 21, 2017 (© NASA/Aubrey Gemignani)
 
 ![](images/2024-04/20240408_SolarEclipseOregon_1920x1080.jpg)
-
-#### 20240408 欧洲刺猬在长满蒲公英的花园里，巴特德里堡，德国 (© Oksana Schmidt/Getty Images)
-
-![](images/2024-04/20240408_HedgehogMeadow_1920x1080.jpg)
 
 
 

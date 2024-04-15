@@ -1,3 +1,7 @@
+#### 20240416 暮色中的曼哈顿下城联合广场，纽约，美国 (© Sean Pavone/Getty Images)
+
+![](20240416_UnionSquareNYC_1920x1080.jpg)
+
 #### 20240415 The RedBall Project art installation, Centraal Station, Antwerp, Belgium (© Brit Worgan/Getty Images)
 
 ![](20240415_RedBallBelgium_1920x1080.jpg)
