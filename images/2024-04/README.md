@@ -1,4 +1,4 @@
-#### 20240415 アントワープ中央駅, ベルギー (© Brit Worgan/Getty Images)
+#### 20240415 The RedBall Project art installation, Centraal Station, Antwerp, Belgium (© Brit Worgan/Getty Images)
 
 ![](20240415_RedBallBelgium_1920x1080.jpg)
 
