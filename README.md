@@ -1,3 +1,7 @@
+#### 20240417 春天的美洲黑熊幼崽，仙纳度国家公园，弗吉尼亚州，美国 (© Scott Suriano/Getty Images)
+
+![](images/2024-04/20240417_SpringCub_1920x1080.jpg)
+
 #### 20240416 Union Square in lower Manhattan at twilight, New York (© Sean Pavone/Getty Images)
 
 ![](images/2024-04/20240416_UnionSquareNYC_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240408 Apple trees in spring, Germany (© Smileus/Getty Images)
 
 ![](images/2024-04/20240408_SpringApple_1920x1080.jpg)
-
-#### 20240408 Total solar eclipse photographed from Madras, Oregon on August 21, 2017 (© NASA/Aubrey Gemignani)
-
-![](images/2024-04/20240408_SolarEclipseOregon_1920x1080.jpg)
 
 
 
