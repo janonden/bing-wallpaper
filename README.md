@@ -1,4 +1,4 @@
-#### 20240416 暮色中的曼哈顿下城联合广场，纽约，美国 (© Sean Pavone/Getty Images)
+#### 20240416 Union Square in lower Manhattan at twilight, New York (© Sean Pavone/Getty Images)
 
 ![](images/2024-04/20240416_UnionSquareNYC_1920x1080.jpg)
 
