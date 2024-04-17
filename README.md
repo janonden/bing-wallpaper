@@ -1,4 +1,4 @@
-#### 20240417 春天的美洲黑熊幼崽，仙纳度国家公园，弗吉尼亚州，美国 (© Scott Suriano/Getty Images)
+#### 20240417 American black bear cub in spring, Shenandoah National Park, Virginia (© Scott Suriano/Getty Images)
 
 ![](images/2024-04/20240417_SpringCub_1920x1080.jpg)
 
