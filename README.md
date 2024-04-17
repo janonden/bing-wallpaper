@@ -1,3 +1,7 @@
+#### 20240418 中世纪城墙，阿维拉，西班牙 (© Scott Suriano/Getty Images)
+
+![](images/2024-04/20240418_AvilaSpain_1920x1080.jpg)
+
 #### 20240417 American black bear cub in spring, Shenandoah National Park, Virginia (© Scott Suriano/Getty Images)
 
 ![](images/2024-04/20240417_SpringCub_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240409 Tulip fields in spring, Skagit Valley, Washington (© Claudia Cooper/Getty Images)
 
 ![](images/2024-04/20240409_SkagitValleyTulips_1920x1080.jpg)
-
-#### 20240408 Apple trees in spring, Germany (© Smileus/Getty Images)
-
-![](images/2024-04/20240408_SpringApple_1920x1080.jpg)
 
 
 

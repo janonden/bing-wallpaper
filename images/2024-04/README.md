@@ -1,3 +1,7 @@
+#### 20240418 中世纪城墙，阿维拉，西班牙 (© Scott Suriano/Getty Images)
+
+![](20240418_AvilaSpain_1920x1080.jpg)
+
 #### 20240417 American black bear cub in spring, Shenandoah National Park, Virginia (© Scott Suriano/Getty Images)
 
 ![](20240417_SpringCub_1920x1080.jpg)
