@@ -1,3 +1,7 @@
+#### 20240419 布罗德加环，奥克尼岛，苏格兰 (© Paul Williams - FunkyStock/Getty Images)
+
+![](20240419_OrkneyStones_1920x1080.jpg)
+
 #### 20240418 Château royal d'Amboise dans la vallée de la Loire, France (© iStock/Getty Images Plus/StockPhotoAstur)
 
 ![](20240418_MonumentsDay_1920x1080.jpg)
