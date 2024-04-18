@@ -1,3 +1,7 @@
+#### 20240418 Château royal d'Amboise dans la vallée de la Loire, France (© iStock/Getty Images Plus/StockPhotoAstur)
+
+![](20240418_MonumentsDay_1920x1080.jpg)
+
 #### 20240418 中世纪城墙，阿维拉，西班牙 (© Scott Suriano/Getty Images)
 
 ![](20240418_AvilaSpain_1920x1080.jpg)

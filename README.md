@@ -1,3 +1,7 @@
+#### 20240418 Château royal d'Amboise dans la vallée de la Loire, France (© iStock/Getty Images Plus/StockPhotoAstur)
+
+![](images/2024-04/20240418_MonumentsDay_1920x1080.jpg)
+
 #### 20240418 中世纪城墙，阿维拉，西班牙 (© Scott Suriano/Getty Images)
 
 ![](images/2024-04/20240418_AvilaSpain_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240409 Whistler Mountain in the creekside of Whistler (© Insight Photography/Design Pics/Getty Images)
 
 ![](images/2024-04/20240409_WhistlerWSSF_1920x1080.jpg)
-
-#### 20240409 Tulip fields in spring, Skagit Valley, Washington (© Claudia Cooper/Getty Images)
-
-![](images/2024-04/20240409_SkagitValleyTulips_1920x1080.jpg)
 
 
 
