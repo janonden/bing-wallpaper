@@ -2,7 +2,7 @@
 
 ![](20240418_MonumentsDay_1920x1080.jpg)
 
-#### 20240418 中世纪城墙，阿维拉，西班牙 (© Scott Suriano/Getty Images)
+#### 20240418 Medieval city walls, Ávila, Spain (© Alberto Loyo/Getty Images)
 
 ![](20240418_AvilaSpain_1920x1080.jpg)
 
