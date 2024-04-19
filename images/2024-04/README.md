@@ -1,3 +1,7 @@
+#### 20240420 日出时分的大棱镜泉，美国怀俄明州黄石国家公园 (© XIN WANG/Getty Images)
+
+![](20240420_YellowstoneGeyser_1920x1080.jpg)
+
 #### 20240419 The Ring of Brodgar, Orkney, Scotland (© Paul Williams - FunkyStock/Getty Images)
 
 ![](20240419_OrkneyStones_1920x1080.jpg)

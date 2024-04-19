@@ -1,3 +1,7 @@
+#### 20240420 日出时分的大棱镜泉，美国怀俄明州黄石国家公园 (© XIN WANG/Getty Images)
+
+![](images/2024-04/20240420_YellowstoneGeyser_1920x1080.jpg)
+
 #### 20240419 The Ring of Brodgar, Orkney, Scotland (© Paul Williams - FunkyStock/Getty Images)
 
 ![](images/2024-04/20240419_OrkneyStones_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240411 Aerial view of Churún Merú waterfall, Venezuela (© AirPano LLC/Amazing Aerial Agency)
 
 ![](images/2024-04/20240411_DragonWaterfall_1920x1080.jpg)
-
-#### 20240410 Burrowing owl chicks near a burrow, Wyoming (© Danita Delimont/Getty Images)
-
-![](images/2024-04/20240410_OwlSiblings_1920x1080.jpg)
 
 
 
