@@ -1,4 +1,4 @@
-#### 20240419 布罗德加环，奥克尼岛，苏格兰 (© Paul Williams - FunkyStock/Getty Images)
+#### 20240419 The Ring of Brodgar, Orkney, Scotland (© Paul Williams - FunkyStock/Getty Images)
 
 ![](20240419_OrkneyStones_1920x1080.jpg)
 
