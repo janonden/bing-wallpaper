@@ -1,3 +1,7 @@
+#### 20240421 Cades Cove ，大雾山国家公园，田纳西州，美国 (© Richard Bernabe/Shutterstock)
+
+![](20240421_CadesCove_1920x1080.jpg)
+
 #### 20240420 Grand Prismatic Spring at sunrise, Yellowstone National Park, Wyoming (© XIN WANG/Getty Images)
 
 ![](20240420_YellowstoneGeyser_1920x1080.jpg)

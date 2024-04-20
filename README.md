@@ -1,3 +1,7 @@
+#### 20240421 Cades Cove ，大雾山国家公园，田纳西州，美国 (© Richard Bernabe/Shutterstock)
+
+![](images/2024-04/20240421_CadesCove_1920x1080.jpg)
+
 #### 20240420 Grand Prismatic Spring at sunrise, Yellowstone National Park, Wyoming (© XIN WANG/Getty Images)
 
 ![](images/2024-04/20240420_YellowstoneGeyser_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240412 Evening light over North Window with Turret Arch in the distance, Arches National Park, Utah (© Anthony Heflin/Shutterstock)
 
 ![](images/2024-04/20240412_SunsetArchesNP_1920x1080.jpg)
-
-#### 20240411 Aerial view of Churún Merú waterfall, Venezuela (© AirPano LLC/Amazing Aerial Agency)
-
-![](images/2024-04/20240411_DragonWaterfall_1920x1080.jpg)
 
 
 
