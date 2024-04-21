@@ -6,7 +6,7 @@
 
 ![](20240421_ChauseyIslands_1920x1080.jpg)
 
-#### 20240421 Cades Cove ，大雾山国家公园，田纳西州，美国 (© Richard Bernabe/Shutterstock)
+#### 20240421 Sparks Lane in Cades Cove, Great Smoky Mountains National Park, Tennessee (© Richard Bernabe/Shutterstock)
 
 ![](20240421_CadesCove_1920x1080.jpg)
 
