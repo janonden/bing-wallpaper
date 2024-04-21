@@ -1,3 +1,11 @@
+#### 20240421 Blumenbeete mit Tulpen und anderen Frühlingsblumen im Rheinpark, Köln (© Elisabeth Schittenhelm/Getty Images)
+
+![](images/2024-04/20240421_CologneFlowerBed_1920x1080.jpg)
+
+#### 20240421 Îles Chausey, Normandie, France (© Tuul & Bruno Morandi/Getty Images)
+
+![](images/2024-04/20240421_ChauseyIslands_1920x1080.jpg)
+
 #### 20240421 Cades Cove ，大雾山国家公园，田纳西州，美国 (© Richard Bernabe/Shutterstock)
 
 ![](images/2024-04/20240421_CadesCove_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20240413 Cherry blossoms in Queen Elizabeth Park, Vancouver (© Yun Han Xu/Moment Open/Getty Images)
 
 ![](images/2024-04/20240413_SakuraDaysJapanFair_1920x1080.jpg)
-
-#### 20240413 Vue nocturne depuis le Rhône sur la ville de Lyon avec le Grand Hôtel-Dieu et la cathédrale de Fourvière, France (© Frédéric Prochasson/Getty Images)
-
-![](images/2024-04/20240413_LyonGastronomy_1920x1080.jpg)
-
-#### 20240412 Evening light over North Window with Turret Arch in the distance, Arches National Park, Utah (© Anthony Heflin/Shutterstock)
-
-![](images/2024-04/20240412_SunsetArchesNP_1920x1080.jpg)
 
 
 

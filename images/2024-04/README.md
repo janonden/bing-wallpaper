@@ -1,3 +1,11 @@
+#### 20240421 Blumenbeete mit Tulpen und anderen Frühlingsblumen im Rheinpark, Köln (© Elisabeth Schittenhelm/Getty Images)
+
+![](20240421_CologneFlowerBed_1920x1080.jpg)
+
+#### 20240421 Îles Chausey, Normandie, France (© Tuul & Bruno Morandi/Getty Images)
+
+![](20240421_ChauseyIslands_1920x1080.jpg)
+
 #### 20240421 Cades Cove ，大雾山国家公园，田纳西州，美国 (© Richard Bernabe/Shutterstock)
 
 ![](20240421_CadesCove_1920x1080.jpg)
