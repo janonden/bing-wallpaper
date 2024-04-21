@@ -1,3 +1,7 @@
+#### 20240422 绿海龟，圣地亚哥，加利福尼亚，美国 (© Ralph Pace/Minden Pictures)
+
+![](images/2024-04/20240422_EarthDayTurtle_1920x1080.jpg)
+
 #### 20240421 Blumenbeete mit Tulpen und anderen Frühlingsblumen im Rheinpark, Köln (© Elisabeth Schittenhelm/Getty Images)
 
 ![](images/2024-04/20240421_CologneFlowerBed_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240413 富士本栖湖リゾート, 山梨県 (© Torsakarin/Getty Images)
 
 ![](images/2024-04/20240413_ShibaZakura_1920x1080.jpg)
-
-#### 20240413 Cherry blossoms in Queen Elizabeth Park, Vancouver (© Yun Han Xu/Moment Open/Getty Images)
-
-![](images/2024-04/20240413_SakuraDaysJapanFair_1920x1080.jpg)
 
 
 
