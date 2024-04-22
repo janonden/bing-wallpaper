@@ -1,4 +1,4 @@
-#### 20240422 绿海龟，圣地亚哥，加利福尼亚，美国 (© Ralph Pace/Minden Pictures)
+#### 20240422 Green sea turtle, San Diego, California (© Ralph Pace/Minden Pictures)
 
 ![](20240422_EarthDayTurtle_1920x1080.jpg)
 
