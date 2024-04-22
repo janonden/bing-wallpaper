@@ -1,3 +1,7 @@
+#### 20240423 三一学院图书馆，都柏林，爱尔兰 (© Lukas Bischoff/Getty Images)
+
+![](images/2024-04/20240423_TrinityDublin_1920x1080.jpg)
+
 #### 20240422 Green sea turtle, San Diego, California (© Ralph Pace/Minden Pictures)
 
 ![](images/2024-04/20240422_EarthDayTurtle_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240414 Sunset on Bowling Ball Beach, Mendocino County, California (© Melo Qiao/Getty Images)
 
 ![](images/2024-04/20240414_BowlingBallCali_1920x1080.jpg)
-
-#### 20240413 富士本栖湖リゾート, 山梨県 (© Torsakarin/Getty Images)
-
-![](images/2024-04/20240413_ShibaZakura_1920x1080.jpg)
 
 
 
