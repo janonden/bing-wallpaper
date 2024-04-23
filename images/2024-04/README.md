@@ -2,6 +2,10 @@
 
 ![](20240424_TrilliumOntario_1920x1080.jpg)
 
+#### 20240424 Seiser Alm in the Dolomites, South Tyrol, Italy (© Achim Thomae/Getty Images)
+
+![](20240424_DolomitesSeiserAlm_1920x1080.jpg)
+
 #### 20240423 Library of Trinity College Dublin, Ireland (© Lukas Bischoff/Getty Images)
 
 ![](20240423_TrinityDublin_1920x1080.jpg)

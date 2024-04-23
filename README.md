@@ -2,6 +2,10 @@
 
 ![](images/2024-04/20240424_TrilliumOntario_1920x1080.jpg)
 
+#### 20240424 Seiser Alm in the Dolomites, South Tyrol, Italy (© Achim Thomae/Getty Images)
+
+![](images/2024-04/20240424_DolomitesSeiserAlm_1920x1080.jpg)
+
 #### 20240423 Library of Trinity College Dublin, Ireland (© Lukas Bischoff/Getty Images)
 
 ![](images/2024-04/20240423_TrinityDublin_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240415 香波城堡，中央-卢瓦尔河谷大区，法国 (© Susanne Kremer/eStock Photo)
 
 ![](images/2024-04/20240415_ChambordCastle_1920x1080.jpg)
-
-#### 20240414 Stängellose Schlüsselblumen, Weener, Niedersachsen (© Mohssen Assanimoghaddam/picture alliance via Getty Images)
-
-![](images/2024-04/20240414_WeenerPrimroses_1920x1080.jpg)
 
 
 
