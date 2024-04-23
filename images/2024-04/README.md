@@ -1,4 +1,4 @@
-#### 20240423 三一学院图书馆，都柏林，爱尔兰 (© Lukas Bischoff/Getty Images)
+#### 20240423 Library of Trinity College Dublin, Ireland (© Lukas Bischoff/Getty Images)
 
 ![](20240423_TrinityDublin_1920x1080.jpg)
 
