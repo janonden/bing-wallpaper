@@ -1,3 +1,7 @@
+#### 20240425 南极洲冰山上的阿德利企鹅 (© Patrick J. Endres/Getty Images)
+
+![](images/2024-04/20240425_PenguinDirections_1920x1080.jpg)
+
 #### 20240424 White trilliums blooming in Ontario, Canada (© Jun Zhang/Getty Images)
 
 ![](images/2024-04/20240424_TrilliumOntario_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240415 The RedBall Project art installation, Centraal Station, Antwerp, Belgium (© Brit Worgan/Getty Images)
 
 ![](images/2024-04/20240415_RedBallBelgium_1920x1080.jpg)
-
-#### 20240415 香波城堡，中央-卢瓦尔河谷大区，法国 (© Susanne Kremer/eStock Photo)
-
-![](images/2024-04/20240415_ChambordCastle_1920x1080.jpg)
 
 
 

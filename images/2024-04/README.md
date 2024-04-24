@@ -1,3 +1,7 @@
+#### 20240425 南极洲冰山上的阿德利企鹅 (© Patrick J. Endres/Getty Images)
+
+![](20240425_PenguinDirections_1920x1080.jpg)
+
 #### 20240424 White trilliums blooming in Ontario, Canada (© Jun Zhang/Getty Images)
 
 ![](20240424_TrilliumOntario_1920x1080.jpg)
