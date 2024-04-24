@@ -1,4 +1,4 @@
-#### 20240424 盛开的白延龄草，安大略省，加拿大 (© Jun Zhang/Getty Images)
+#### 20240424 White trilliums blooming in Ontario, Canada (© Jun Zhang/Getty Images)
 
 ![](images/2024-04/20240424_TrilliumOntario_1920x1080.jpg)
 
