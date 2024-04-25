@@ -1,4 +1,4 @@
-#### 20240425 南极洲冰山上的阿德利企鹅 (© Patrick J. Endres/Getty Images)
+#### 20240425 Adélie penguins on an iceberg, Antarctica (© Patrick J. Endres/Getty Images)
 
 ![](20240425_PenguinDirections_1920x1080.jpg)
 
