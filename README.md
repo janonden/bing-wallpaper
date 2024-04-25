@@ -2,6 +2,10 @@
 
 ![](images/2024-04/20240425_PenguinDirections_1920x1080.jpg)
 
+#### 20240425 Kalaloch Tree, Kalaloch, Olympic-Nationalpark, Washington, USA (© Abbie Warnock-Matthews/Shutterstock)
+
+![](images/2024-04/20240425_KalalochTree_1920x1080.jpg)
+
 #### 20240424 White trilliums blooming in Ontario, Canada (© Jun Zhang/Getty Images)
 
 ![](images/2024-04/20240424_TrilliumOntario_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240416 Union Square in lower Manhattan at twilight, New York (© Sean Pavone/Getty Images)
 
 ![](images/2024-04/20240416_UnionSquareNYC_1920x1080.jpg)
-
-#### 20240415 The RedBall Project art installation, Centraal Station, Antwerp, Belgium (© Brit Worgan/Getty Images)
-
-![](images/2024-04/20240415_RedBallBelgium_1920x1080.jpg)
 
 
 

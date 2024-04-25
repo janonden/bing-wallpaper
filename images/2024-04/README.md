@@ -2,6 +2,10 @@
 
 ![](20240425_PenguinDirections_1920x1080.jpg)
 
+#### 20240425 Kalaloch Tree, Kalaloch, Olympic-Nationalpark, Washington, USA (© Abbie Warnock-Matthews/Shutterstock)
+
+![](20240425_KalalochTree_1920x1080.jpg)
+
 #### 20240424 White trilliums blooming in Ontario, Canada (© Jun Zhang/Getty Images)
 
 ![](20240424_TrilliumOntario_1920x1080.jpg)
