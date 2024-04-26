@@ -1,3 +1,7 @@
+#### 20240427 澳大利亚花园里的白种安氏蜂鸟，加州大学圣克鲁兹分校植物园，加利福尼亚州，美国 (© yhelfman/Getty Images)
+
+![](20240427_LeucisticHummingbird_1920x1080.jpg)
+
 #### 20240426 Villnöß with the Dolomites in the background, South Tyrol, Italy (© Achim Thomae/Getty Images)
 
 ![](20240426_ValDiFunes_1920x1080.jpg)
