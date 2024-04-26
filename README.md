@@ -1,3 +1,7 @@
+#### 20240426 Villnöß with the Dolomites in the background, South Tyrol, Italy (© Achim Thomae/Getty Images)
+
+![](images/2024-04/20240426_ValDiFunes_1920x1080.jpg)
+
 #### 20240425 Adélie penguins on an iceberg, Antarctica (© Patrick J. Endres/Getty Images)
 
 ![](images/2024-04/20240425_PenguinDirections_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240417 American black bear cub in spring, Shenandoah National Park, Virginia (© Scott Suriano/Getty Images)
 
 ![](images/2024-04/20240417_SpringCub_1920x1080.jpg)
-
-#### 20240416 Union Square in lower Manhattan at twilight, New York (© Sean Pavone/Getty Images)
-
-![](images/2024-04/20240416_UnionSquareNYC_1920x1080.jpg)
 
 
 
