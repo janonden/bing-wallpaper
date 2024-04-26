@@ -6,7 +6,7 @@
 
 ![](20240425_PenguinDirections_1920x1080.jpg)
 
-#### 20240425 Kalaloch Tree, Kalaloch, Olympic-Nationalpark, Washington, USA (© Abbie Warnock-Matthews/Shutterstock)
+#### 20240425 Tree of Life, Kalaloch Beach, Olympic National Park, Washington (© Abbie Warnock-Matthews/Shutterstock)
 
 ![](20240425_KalalochTree_1920x1080.jpg)
 
