@@ -1,3 +1,7 @@
+#### 20240428 瓜达卢佩山脉国家公园日出时的埃尔卡皮坦山，德克萨斯州，美国 (© Adam Mowery/Tandem Stills + Motion)
+
+![](20240428_GuadalupeTexas_1920x1080.jpg)
+
 #### 20240427 Leucistic Anna's hummingbird in the Australian Garden, UC Santa Cruz Arboretum, California (© yhelfman/Getty Images)
 
 ![](20240427_LeucisticHummingbird_1920x1080.jpg)

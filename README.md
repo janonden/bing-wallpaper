@@ -1,3 +1,7 @@
+#### 20240428 瓜达卢佩山脉国家公园日出时的埃尔卡皮坦山，德克萨斯州，美国 (© Adam Mowery/Tandem Stills + Motion)
+
+![](images/2024-04/20240428_GuadalupeTexas_1920x1080.jpg)
+
 #### 20240427 Leucistic Anna's hummingbird in the Australian Garden, UC Santa Cruz Arboretum, California (© yhelfman/Getty Images)
 
 ![](images/2024-04/20240427_LeucisticHummingbird_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240419 The Ring of Brodgar, Orkney, Scotland (© Paul Williams - FunkyStock/Getty Images)
 
 ![](images/2024-04/20240419_OrkneyStones_1920x1080.jpg)
-
-#### 20240418 Château royal d'Amboise dans la vallée de la Loire, France (© iStock/Getty Images Plus/StockPhotoAstur)
-
-![](images/2024-04/20240418_MonumentsDay_1920x1080.jpg)
 
 
 
