@@ -2,6 +2,10 @@
 
 ![](images/2024-04/20240427_LeucisticHummingbird_1920x1080.jpg)
 
+#### 20240427 L'abbaye Saint-Martin du Canigou, Casteil, Occitanie, France (© Cyril Gosselin/Getty Images)
+
+![](images/2024-04/20240427_Canigou_1920x1080.jpg)
+
 #### 20240426 Villnöß with the Dolomites in the background, South Tyrol, Italy (© Achim Thomae/Getty Images)
 
 ![](images/2024-04/20240426_ValDiFunes_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240418 Château royal d'Amboise dans la vallée de la Loire, France (© iStock/Getty Images Plus/StockPhotoAstur)
 
 ![](images/2024-04/20240418_MonumentsDay_1920x1080.jpg)
-
-#### 20240418 Medieval city walls, Ávila, Spain (© Alberto Loyo/Getty Images)
-
-![](images/2024-04/20240418_AvilaSpain_1920x1080.jpg)
 
 
 

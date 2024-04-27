@@ -2,6 +2,10 @@
 
 ![](20240427_LeucisticHummingbird_1920x1080.jpg)
 
+#### 20240427 L'abbaye Saint-Martin du Canigou, Casteil, Occitanie, France (© Cyril Gosselin/Getty Images)
+
+![](20240427_Canigou_1920x1080.jpg)
+
 #### 20240426 Villnöß with the Dolomites in the background, South Tyrol, Italy (© Achim Thomae/Getty Images)
 
 ![](20240426_ValDiFunes_1920x1080.jpg)
