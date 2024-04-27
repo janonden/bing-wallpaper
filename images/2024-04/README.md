@@ -1,4 +1,4 @@
-#### 20240427 澳大利亚花园里的白种安氏蜂鸟，加州大学圣克鲁兹分校植物园，加利福尼亚州，美国 (© yhelfman/Getty Images)
+#### 20240427 Leucistic Anna's hummingbird in the Australian Garden, UC Santa Cruz Arboretum, California (© yhelfman/Getty Images)
 
 ![](20240427_LeucisticHummingbird_1920x1080.jpg)
 
