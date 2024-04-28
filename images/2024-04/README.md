@@ -1,3 +1,7 @@
+#### 20240429 福建土楼，福建省历史文化遗产建筑，中国 (© Hongjie Han/Getty Images)
+
+![](20240429_TulouFujian_1920x1080.jpg)
+
 #### 20240428 El Capitan at sunrise in Guadalupe Mountains National Park, Texas (© Adam Mowery/Tandem Stills + Motion)
 
 ![](20240428_GuadalupeTexas_1920x1080.jpg)

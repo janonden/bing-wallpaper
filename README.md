@@ -1,3 +1,7 @@
+#### 20240429 福建土楼，福建省历史文化遗产建筑，中国 (© Hongjie Han/Getty Images)
+
+![](images/2024-04/20240429_TulouFujian_1920x1080.jpg)
+
 #### 20240428 El Capitan at sunrise in Guadalupe Mountains National Park, Texas (© Adam Mowery/Tandem Stills + Motion)
 
 ![](images/2024-04/20240428_GuadalupeTexas_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240420 Grand Prismatic Spring at sunrise, Yellowstone National Park, Wyoming (© XIN WANG/Getty Images)
 
 ![](images/2024-04/20240420_YellowstoneGeyser_1920x1080.jpg)
-
-#### 20240419 The Ring of Brodgar, Orkney, Scotland (© Paul Williams - FunkyStock/Getty Images)
-
-![](images/2024-04/20240419_OrkneyStones_1920x1080.jpg)
 
 
 
