@@ -1,4 +1,4 @@
-#### 20240428 瓜达卢佩山脉国家公园日出时的埃尔卡皮坦山，德克萨斯州，美国 (© Adam Mowery/Tandem Stills + Motion)
+#### 20240428 El Capitan at sunrise in Guadalupe Mountains National Park, Texas (© Adam Mowery/Tandem Stills + Motion)
 
 ![](images/2024-04/20240428_GuadalupeTexas_1920x1080.jpg)
 
