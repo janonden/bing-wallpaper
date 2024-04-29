@@ -1,3 +1,7 @@
+#### 20240430 清晨雨中的猎豹，恩杜图平原，恩戈罗恩戈罗保护区，坦桑尼亚 (© Paul Souders/Getty Images)
+
+![](images/2024-04/20240430_CheetahRain_1920x1080.jpg)
+
 #### 20240429 Fujian Tulou complex of historical and cultural heritage buildings in Fujian province, China (© Hongjie Han/Getty Images)
 
 ![](images/2024-04/20240429_TulouFujian_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240421 Sparks Lane in Cades Cove, Great Smoky Mountains National Park, Tennessee (© Richard Bernabe/Shutterstock)
 
 ![](images/2024-04/20240421_CadesCove_1920x1080.jpg)
-
-#### 20240420 Grand Prismatic Spring at sunrise, Yellowstone National Park, Wyoming (© XIN WANG/Getty Images)
-
-![](images/2024-04/20240420_YellowstoneGeyser_1920x1080.jpg)
 
 
 
