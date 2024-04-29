@@ -1,4 +1,4 @@
-#### 20240429 福建土楼，福建省历史文化遗产建筑，中国 (© Hongjie Han/Getty Images)
+#### 20240429 Fujian Tulou complex of historical and cultural heritage buildings in Fujian province, China (© Hongjie Han/Getty Images)
 
 ![](20240429_TulouFujian_1920x1080.jpg)
 
