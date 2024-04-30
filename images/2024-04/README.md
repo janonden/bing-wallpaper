@@ -1,4 +1,4 @@
-#### 20240430 清晨雨中的猎豹，恩杜图平原，恩戈罗恩戈罗保护区，坦桑尼亚 (© Paul Souders/Getty Images)
+#### 20240430 Cheetah in morning rain, Ndutu Plains, Ngorongoro Conservation Area, Tanzania (© Paul Souders/Getty Images)
 
 ![](20240430_CheetahRain_1920x1080.jpg)
 
