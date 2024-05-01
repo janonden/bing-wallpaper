@@ -1,3 +1,7 @@
+#### 20240502 蓝龙熔岩流，月球陨石坑国家纪念碑和保护区，爱达荷州，美国 (© Alan Majchrowicz/Getty Images)
+
+![](images/2024-05/20240502_CratersOfTheMoon_1920x1080.jpg)
+
 #### 20240501 和束町の茶畑, 京都府 (© Tuul & Bruno Morandi/Getty Images)
 
 ![](images/2024-05/20240501_TeaGarden_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240423 Library of Trinity College Dublin, Ireland (© Vincent Isore/Getty Images)
 
 ![](images/2024-04/20240423_TrinityDublin_1920x1080.jpg)
-
-#### 20240422 Green sea turtle, San Diego, California (© Ralph Pace/Minden Pictures)
-
-![](images/2024-04/20240422_EarthDayTurtle_1920x1080.jpg)
 
 
 
