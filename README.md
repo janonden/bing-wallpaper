@@ -2,6 +2,10 @@
 
 ![](images/2024-05/20240501_TeaGarden_1920x1080.jpg)
 
+#### 20240501 Weg durch den Gespensterwald bei Sonnenaufgang, Nienhagen, Mecklenburg-Vorpommern (© Martin Ruegner/Getty Images)
+
+![](images/2024-05/20240501_NienhagenMecklenburg_1920x1080.jpg)
+
 #### 20240501 夏威夷花环 (© Jotika Pun/Shutterstock)
 
 ![](images/2024-05/20240501_HawaiianLei_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240422 Green sea turtle, San Diego, California (© Ralph Pace/Minden Pictures)
 
 ![](images/2024-04/20240422_EarthDayTurtle_1920x1080.jpg)
-
-#### 20240421 Blumenbeete mit Tulpen und anderen Frühlingsblumen im Rheinpark, Köln (© Elisabeth Schittenhelm/Getty Images)
-
-![](images/2024-04/20240421_CologneFlowerBed_1920x1080.jpg)
 
 
 
