@@ -6,7 +6,7 @@
 
 ![](20240501_NienhagenMecklenburg_1920x1080.jpg)
 
-#### 20240501 夏威夷花环 (© Jotika Pun/Shutterstock)
+#### 20240501 Hawaiian lei flower garlands (© Jotika Pun/Shutterstock)
 
 ![](20240501_HawaiianLei_1920x1080.jpg)
 
