@@ -1,4 +1,4 @@
-#### 20240502 蓝龙熔岩流，月球陨石坑国家纪念碑和保护区，爱达荷州，美国 (© Alan Majchrowicz/Getty Images)
+#### 20240502 Blue Dragon Lava Flow, Craters of the Moon National Monument, Idaho (© Alan Majchrowicz/Getty Images)
 
 ![](20240502_CratersOfTheMoon_1920x1080.jpg)
 
