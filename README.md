@@ -1,3 +1,7 @@
+#### 20240503 春天盛开的沙漠毒菊，索诺拉沙漠，亚利桑那州 (© Charles Harker/Getty Images)
+
+![](images/2024-05/20240503_SonoranSpring_1920x1080.jpg)
+
 #### 20240502 Blue Dragon Lava Flow, Craters of the Moon National Monument, Idaho (© Alan Majchrowicz/Getty Images)
 
 ![](images/2024-05/20240502_CratersOfTheMoon_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240424 Seiser Alm in the Dolomites, South Tyrol, Italy (© Achim Thomae/Getty Images)
 
 ![](images/2024-04/20240424_DolomitesSeiserAlm_1920x1080.jpg)
-
-#### 20240423 Library of Trinity College Dublin, Ireland (© Vincent Isore/Getty Images)
-
-![](images/2024-04/20240423_TrinityDublin_1920x1080.jpg)
 
 
 

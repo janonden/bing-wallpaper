@@ -1,3 +1,7 @@
+#### 20240503 春天盛开的沙漠毒菊，索诺拉沙漠，亚利桑那州 (© Charles Harker/Getty Images)
+
+![](20240503_SonoranSpring_1920x1080.jpg)
+
 #### 20240502 Blue Dragon Lava Flow, Craters of the Moon National Monument, Idaho (© Alan Majchrowicz/Getty Images)
 
 ![](20240502_CratersOfTheMoon_1920x1080.jpg)
