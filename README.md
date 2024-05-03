@@ -1,3 +1,7 @@
+#### 20240504 斯凯利格·迈克尔岛上一座古老修道院的废墟，爱尔兰 (© MNStudio/Getty Images)
+
+![](images/2024-05/20240504_JediMonastery_1920x1080.jpg)
+
 #### 20240503 Brittlebushes blooming in springtime, Sonoran Desert, Arizona (© Charles Harker/Getty Images)
 
 ![](images/2024-05/20240503_SonoranSpring_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240424 White trilliums blooming in Ontario, Canada (© Jun Zhang/Getty Images)
 
 ![](images/2024-04/20240424_TrilliumOntario_1920x1080.jpg)
-
-#### 20240424 Seiser Alm in the Dolomites, South Tyrol, Italy (© Achim Thomae/Getty Images)
-
-![](images/2024-04/20240424_DolomitesSeiserAlm_1920x1080.jpg)
 
 
 

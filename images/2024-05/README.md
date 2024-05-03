@@ -1,3 +1,7 @@
+#### 20240504 斯凯利格·迈克尔岛上一座古老修道院的废墟，爱尔兰 (© MNStudio/Getty Images)
+
+![](20240504_JediMonastery_1920x1080.jpg)
+
 #### 20240503 Brittlebushes blooming in springtime, Sonoran Desert, Arizona (© Charles Harker/Getty Images)
 
 ![](20240503_SonoranSpring_1920x1080.jpg)
