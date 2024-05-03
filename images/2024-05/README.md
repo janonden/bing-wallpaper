@@ -1,4 +1,4 @@
-#### 20240503 春天盛开的沙漠毒菊，索诺拉沙漠，亚利桑那州 (© Charles Harker/Getty Images)
+#### 20240503 Brittlebushes blooming in springtime, Sonoran Desert, Arizona (© Charles Harker/Getty Images)
 
 ![](20240503_SonoranSpring_1920x1080.jpg)
 
