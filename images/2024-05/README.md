@@ -1,4 +1,4 @@
-#### 20240504 斯凯利格·迈克尔岛上一座古老修道院的废墟，爱尔兰 (© MNStudio/Getty Images)
+#### 20240504 Ruins of an ancient monastery on the island of Skellig Michael, Ireland (© MNStudio/Getty Images)
 
 ![](20240504_JediMonastery_1920x1080.jpg)
 
