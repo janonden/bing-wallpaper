@@ -1,3 +1,11 @@
+#### 20240505 圣米格尔德阿连德的柱廊，瓜那华托州，墨西哥 (© Mint Images/Getty Images)
+
+![](20240505_SanMiguelAllende_1920x1080.jpg)
+
+#### 20240505 大歩危峡に泳ぐ鯉のぼり, 徳島県 (© fz750/Getty Images)
+
+![](20240505_ChildrenDay_1920x1080.jpg)
+
 #### 20240504 Ruins of an ancient monastery on the island of Skellig Michael, Ireland (© MNStudio/Getty Images)
 
 ![](20240504_JediMonastery_1920x1080.jpg)
