@@ -1,4 +1,4 @@
-#### 20240505 圣米格尔德阿连德的柱廊，瓜那华托州，墨西哥 (© Mint Images/Getty Images)
+#### 20240505 Colonnade in San Miguel de Allende, Guanajuato, Mexico (© Mint Images/Getty Images)
 
 ![](images/2024-05/20240505_SanMiguelAllende_1920x1080.jpg)
 
