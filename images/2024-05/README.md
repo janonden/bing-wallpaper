@@ -1,3 +1,7 @@
+#### 20240506 罗奇斯山脊，英格兰峰区 (© George W Johnson/Getty Images)
+
+![](20240506_TheRoachesPeakDistrict_1920x1080.jpg)
+
 #### 20240505 Colonnade in San Miguel de Allende, Guanajuato, Mexico (© Mint Images/Getty Images)
 
 ![](20240505_SanMiguelAllende_1920x1080.jpg)
