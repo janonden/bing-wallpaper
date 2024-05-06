@@ -2,6 +2,14 @@
 
 ![](images/2024-05/20240507_RiverNekarHeidelberg_1920x1080.jpg)
 
+#### 20240507 一只小鸭子在水草地上游泳，萨福克郡，英国 (© Nick Hurst/Getty Images)
+
+![](images/2024-05/20240507_LittleDuckling_1920x1080.jpg)
+
+#### 20240507 ジョードプル, インド ラージャスターン州 (© cinoby/Getty Images)
+
+![](images/2024-05/20240507_BlueCityIndia_1920x1080.jpg)
+
 #### 20240506 The Roaches, Peak District, England (© George W Johnson/Getty Images)
 
 ![](images/2024-05/20240506_TheRoachesPeakDistrict_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20240428 El Capitan at sunrise in Guadalupe Mountains National Park, Texas (© Adam Mowery/Tandem Stills + Motion)
 
 ![](images/2024-04/20240428_GuadalupeTexas_1920x1080.jpg)
-
-#### 20240427 Leucistic Anna's hummingbird in the Australian Garden, UC Santa Cruz Arboretum, California (© yhelfman/Getty Images)
-
-![](images/2024-04/20240427_LeucisticHummingbird_1920x1080.jpg)
-
-#### 20240427 L'abbaye Saint-Martin du Canigou, Casteil, Occitanie, France (© Cyril Gosselin/Getty Images)
-
-![](images/2024-04/20240427_Canigou_1920x1080.jpg)
 
 
 

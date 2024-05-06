@@ -2,6 +2,14 @@
 
 ![](20240507_RiverNekarHeidelberg_1920x1080.jpg)
 
+#### 20240507 一只小鸭子在水草地上游泳，萨福克郡，英国 (© Nick Hurst/Getty Images)
+
+![](20240507_LittleDuckling_1920x1080.jpg)
+
+#### 20240507 ジョードプル, インド ラージャスターン州 (© cinoby/Getty Images)
+
+![](20240507_BlueCityIndia_1920x1080.jpg)
+
 #### 20240506 The Roaches, Peak District, England (© George W Johnson/Getty Images)
 
 ![](20240506_TheRoachesPeakDistrict_1920x1080.jpg)
