@@ -1,3 +1,7 @@
+#### 20240508 伊夫堡，马赛，法国 (© Sergii Figurnyi/Alamy)
+
+![](images/2024-05/20240508_PortMarseille_1920x1080.jpg)
+
 #### 20240507 Titan RT - Fußgänger-Hängebrücke über Rappbodetalsperre und Rappbode im Nationalpark Harz, Sachsen-Anhalt (© Sander Meertins/Getty Images)
 
 ![](images/2024-05/20240507_SuspensionBridge_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240501 Hawaiian lei flower garlands (© Jotika Pun/Shutterstock)
 
 ![](images/2024-05/20240501_HawaiianLei_1920x1080.jpg)
-
-#### 20240430 Cheetah in morning rain, Ndutu Plains, Ngorongoro Conservation Area, Tanzania (© Paul Souders/Getty Images)
-
-![](images/2024-04/20240430_CheetahRain_1920x1080.jpg)
 
 
 
