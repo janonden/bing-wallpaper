@@ -1,3 +1,7 @@
+#### 20240507 Titan RT - Fußgänger-Hängebrücke über Rappbodetalsperre und Rappbode im Nationalpark Harz, Sachsen-Anhalt (© Sander Meertins/Getty Images)
+
+![](images/2024-05/20240507_SuspensionBridge_1920x1080.jpg)
+
 #### 20240507 Heidelberg on the river Neckar in Baden-Württemberg, Germany (© Juergen Sack/Getty Images)
 
 ![](images/2024-05/20240507_RiverNekarHeidelberg_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240429 Fujian Tulou complex of historical and cultural heritage buildings in Fujian province, China (© Hongjie Han/Getty Images)
 
 ![](images/2024-04/20240429_TulouFujian_1920x1080.jpg)
-
-#### 20240428 El Capitan at sunrise in Guadalupe Mountains National Park, Texas (© Adam Mowery/Tandem Stills + Motion)
-
-![](images/2024-04/20240428_GuadalupeTexas_1920x1080.jpg)
 
 
 

@@ -1,3 +1,7 @@
+#### 20240507 Titan RT - Fußgänger-Hängebrücke über Rappbodetalsperre und Rappbode im Nationalpark Harz, Sachsen-Anhalt (© Sander Meertins/Getty Images)
+
+![](20240507_SuspensionBridge_1920x1080.jpg)
+
 #### 20240507 Heidelberg on the river Neckar in Baden-Württemberg, Germany (© Juergen Sack/Getty Images)
 
 ![](20240507_RiverNekarHeidelberg_1920x1080.jpg)
