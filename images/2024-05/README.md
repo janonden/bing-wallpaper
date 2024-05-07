@@ -6,7 +6,7 @@
 
 ![](20240507_RiverNekarHeidelberg_1920x1080.jpg)
 
-#### 20240507 一只小鸭子在水草地上游泳，萨福克郡，英国 (© Nick Hurst/Getty Images)
+#### 20240507 A duckling swimming in a water meadow, Suffolk, England (© Nick Hurst/Getty Images)
 
 ![](20240507_LittleDuckling_1920x1080.jpg)
 
