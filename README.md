@@ -1,3 +1,7 @@
+#### 20240509 Misool, Raja Ampat Islands, Indonesia (© Giordano Cipriani/Getty Images)
+
+![](images/2024-05/20240509_MisoolRajaAmpat_1920x1080.jpg)
+
 #### 20240509 埃米尔甘公园的郁金香，伊斯坦布尔，土耳其 (© Ozbalci/Getty Images)
 
 ![](images/2024-05/20240509_EmirganPark_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240501 和束町の茶畑, 京都府 (© Tuul & Bruno Morandi/Getty Images)
 
 ![](images/2024-05/20240501_TeaGarden_1920x1080.jpg)
-
-#### 20240501 Weg durch den Gespensterwald bei Sonnenaufgang, Nienhagen, Mecklenburg-Vorpommern (© Martin Ruegner/Getty Images)
-
-![](images/2024-05/20240501_NienhagenMecklenburg_1920x1080.jpg)
 
 
 
