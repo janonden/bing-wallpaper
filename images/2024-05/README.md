@@ -2,7 +2,7 @@
 
 ![](20240509_MisoolRajaAmpat_1920x1080.jpg)
 
-#### 20240509 埃米尔甘公园的郁金香，伊斯坦布尔，土耳其 (© Ozbalci/Getty Images)
+#### 20240509 Tulips at Emirgan Park in Istanbul, Türkiye (© Ozbalci/Getty Images)
 
 ![](20240509_EmirganPark_1920x1080.jpg)
 
