@@ -1,3 +1,7 @@
+#### 20240510 Tulips in front of the Parliament Buildings during the Tulip Festival in Ottawa (© Danielle Donders/Moment/Getty Images)
+
+![](images/2024-05/20240510_OttawaTulipFest_1920x1080.jpg)
+
 #### 20240509 Misool, Raja Ampat Islands, Indonesia (© Giordano Cipriani/Getty Images)
 
 ![](images/2024-05/20240509_MisoolRajaAmpat_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240502 Blue Dragon Lava Flow, Craters of the Moon National Monument, Idaho (© Alan Majchrowicz/Getty Images)
 
 ![](images/2024-05/20240502_CratersOfTheMoon_1920x1080.jpg)
-
-#### 20240501 和束町の茶畑, 京都府 (© Tuul & Bruno Morandi/Getty Images)
-
-![](images/2024-05/20240501_TeaGarden_1920x1080.jpg)
 
 
 
