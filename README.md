@@ -1,3 +1,7 @@
+#### 20240512 潘帕省草原上的雌性原驼和它新出生的宝宝，阿根廷 (© Gabriel Rojo/Minden Pictures)
+
+![](images/2024-05/20240512_GuanacoMother_1920x1080.jpg)
+
 #### 20240511 An indigo bunting perched on a branch, Texas (© Jeff R Clow/Getty Images)
 
 ![](images/2024-05/20240511_TexasIndigoBunting_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240504 Ruins of an ancient monastery on the island of Skellig Michael, Ireland (© MNStudio/Getty Images)
 
 ![](images/2024-05/20240504_JediMonastery_1920x1080.jpg)
-
-#### 20240503 Brittlebushes blooming in springtime, Sonoran Desert, Arizona (© Charles Harker/Getty Images)
-
-![](images/2024-05/20240503_SonoranSpring_1920x1080.jpg)
 
 
 
