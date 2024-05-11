@@ -1,4 +1,4 @@
-#### 20240511 树枝上栖息的靛蓝彩鹀，德克萨斯州 (© Jeff R Clow/Getty Images)
+#### 20240511 An indigo bunting perched on a branch, Texas (© Jeff R Clow/Getty Images)
 
 ![](20240511_TexasIndigoBunting_1920x1080.jpg)
 
