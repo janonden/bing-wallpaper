@@ -1,4 +1,4 @@
-#### 20240512 潘帕省草原上的雌性原驼和它新出生的宝宝，阿根廷 (© Gabriel Rojo/Minden Pictures)
+#### 20240512 Guanaco mother and newborn baby in grassland, La Pampa Province, Argentina (© Gabriel Rojo/Minden Pictures)
 
 ![](20240512_GuanacoMother_1920x1080.jpg)
 
