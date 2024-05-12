@@ -2,6 +2,10 @@
 
 ![](images/2024-05/20240512_GuanacoMother_1920x1080.jpg)
 
+#### 20240512 Flamants roses, réserve naturelle de Pont de Gau, Camargue, France (© Yann Guichaoua-Photos/Getty Images)
+
+![](images/2024-05/20240512_CamargueFlamingos_1920x1080.jpg)
+
 #### 20240511 An indigo bunting perched on a branch, Texas (© Jeff R Clow/Getty Images)
 
 ![](images/2024-05/20240511_TexasIndigoBunting_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240505 大歩危峡に泳ぐ鯉のぼり, 徳島県 (© fz750/Getty Images)
 
 ![](images/2024-05/20240505_ChildrenDay_1920x1080.jpg)
-
-#### 20240504 Ruins of an ancient monastery on the island of Skellig Michael, Ireland (© MNStudio/Getty Images)
-
-![](images/2024-05/20240504_JediMonastery_1920x1080.jpg)
 
 
 

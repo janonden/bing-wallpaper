@@ -2,6 +2,10 @@
 
 ![](20240512_GuanacoMother_1920x1080.jpg)
 
+#### 20240512 Flamants roses, réserve naturelle de Pont de Gau, Camargue, France (© Yann Guichaoua-Photos/Getty Images)
+
+![](20240512_CamargueFlamingos_1920x1080.jpg)
+
 #### 20240511 An indigo bunting perched on a branch, Texas (© Jeff R Clow/Getty Images)
 
 ![](20240511_TexasIndigoBunting_1920x1080.jpg)
