@@ -1,4 +1,4 @@
-#### 20240513 鱼河大峡谷，纳米比亚 (© R. M. Nunes/Getty Images)
+#### 20240513 Fish River Canyon, Namibia (© R. M. Nunes/Getty Images)
 
 ![](images/2024-05/20240513_NamibiaCanyon_1920x1080.jpg)
 
