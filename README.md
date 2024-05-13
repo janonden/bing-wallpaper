@@ -1,3 +1,7 @@
+#### 20240514 通往大房间的走道，卡尔斯巴德洞穴国家公园，新墨西哥州 (© Doug Meek/Getty Images)
+
+![](images/2024-05/20240514_CarlsbadNP_1920x1080.jpg)
+
 #### 20240513 Fish River Canyon, Namibia (© R. M. Nunes/Getty Images)
 
 ![](images/2024-05/20240513_NamibiaCanyon_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240505 Colonnade in San Miguel de Allende, Guanajuato, Mexico (© Mint Images/Getty Images)
 
 ![](images/2024-05/20240505_SanMiguelAllende_1920x1080.jpg)
-
-#### 20240505 Kalaloch Tree of Life, Kalaloch Beach, Olympic National Park, Washington (© Abbie Warnock-Matthews/Shutterstock)
-
-![](images/2024-05/20240505_KalalochTree_1920x1080.jpg)
 
 
 

@@ -1,3 +1,7 @@
+#### 20240514 通往大房间的走道，卡尔斯巴德洞穴国家公园，新墨西哥州 (© Doug Meek/Getty Images)
+
+![](20240514_CarlsbadNP_1920x1080.jpg)
+
 #### 20240513 Fish River Canyon, Namibia (© R. M. Nunes/Getty Images)
 
 ![](20240513_NamibiaCanyon_1920x1080.jpg)
