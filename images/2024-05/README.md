@@ -1,4 +1,4 @@
-#### 20240514 通往大房间的走道，卡尔斯巴德洞穴国家公园，新墨西哥州 (© Doug Meek/Getty Images)
+#### 20240514 Walkway leading into the Big Room, Carlsbad Caverns, New Mexico (© Doug Meek/Getty Images)
 
 ![](20240514_CarlsbadNP_1920x1080.jpg)
 
