@@ -1,3 +1,7 @@
+#### 20240515 下鴨神社, 京都 (© beibaoke/Shutterstock)
+
+![](images/2024-05/20240515_AoiMatsuri_1920x1080.jpg)
+
 #### 20240514 Walkway leading into the Big Room, Carlsbad Caverns, New Mexico (© Doug Meek/Getty Images)
 
 ![](images/2024-05/20240514_CarlsbadNP_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240506 The Roaches, Peak District, England (© George W Johnson/Getty Images)
 
 ![](images/2024-05/20240506_TheRoachesPeakDistrict_1920x1080.jpg)
-
-#### 20240505 Colonnade in San Miguel de Allende, Guanajuato, Mexico (© Mint Images/Getty Images)
-
-![](images/2024-05/20240505_SanMiguelAllende_1920x1080.jpg)
 
 
 
