@@ -1,3 +1,11 @@
+#### 20240516 维戈的兰德大桥，西班牙 (© Julio Conde/Getty Images)
+
+![](20240516_ReconquistaVigo_1920x1080.jpg)
+
+#### 20240516 ユーレンス現代美術センター, 中国 北京 (© Feng Li/Getty Images News)
+
+![](20240516_DayOfLight_1920x1080.jpg)
+
 #### 20240515 下鴨神社, 京都 (© beibaoke/Shutterstock)
 
 ![](20240515_AoiMatsuri_1920x1080.jpg)
