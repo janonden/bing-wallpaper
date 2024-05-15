@@ -50,7 +50,7 @@
 
 ![](images/2024-05/20240507_LittleDuckling_1920x1080.jpg)
 
-#### 20240507 ジョードプル, インド ラージャスターン州 (© cinoby/Getty Images)
+#### 20240507 The Blue City of Jodhpur, India (© cinoby/Getty Images)
 
 ![](images/2024-05/20240507_BlueCityIndia_1920x1080.jpg)
 
