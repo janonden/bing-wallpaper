@@ -1,3 +1,7 @@
+#### 20240517 塔兰吉雷国家公园的非洲象家族，坦桑尼亚 (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)
+
+![](images/2024-05/20240517_TarangireElephants_1920x1080.jpg)
+
 #### 20240516 维戈的兰德大桥，西班牙 (© Julio Conde/Getty Images)
 
 ![](images/2024-05/20240516_ReconquistaVigo_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240507 Heidelberg on the river Neckar in Baden-Württemberg, Germany (© Juergen Sack/Getty Images)
 
 ![](images/2024-05/20240507_RiverNekarHeidelberg_1920x1080.jpg)
-
-#### 20240507 A duckling swimming in a water meadow, Suffolk, England (© Nick Hurst/Getty Images)
-
-![](images/2024-05/20240507_LittleDuckling_1920x1080.jpg)
 
 
 
