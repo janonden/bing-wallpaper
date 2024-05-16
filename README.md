@@ -2,7 +2,7 @@
 
 ![](images/2024-05/20240516_ReconquistaVigo_1920x1080.jpg)
 
-#### 20240516 ユーレンス現代美術センター, 中国 北京 (© Feng Li/Getty Images News)
+#### 20240516 'Feelings are Facts,' by artist Olafur Eliasson and architect Ma Yansong, Beijing, China (© Feng Li/Getty Images News)
 
 ![](images/2024-05/20240516_DayOfLight_1920x1080.jpg)
 
