@@ -1,3 +1,11 @@
+#### 20240518 破碎群岛，环太平洋国家公园保护区，不列颠哥伦比亚省温哥华岛，加拿大 (© Ron Watts/Design Pics/Getty Images)
+
+![](20240518_PacificRimNationalPark_1920x1080.jpg)
+
+#### 20240518 日本科学未来館, 東京都 江東区 (© cowardlion/Shutterstock)
+
+![](20240518_Museum_1920x1080.jpg)
+
 #### 20240517 A family of African elephants in Tarangire National Park, Tanzania (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)
 
 ![](20240517_TarangireElephants_1920x1080.jpg)
