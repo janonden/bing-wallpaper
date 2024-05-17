@@ -1,4 +1,4 @@
-#### 20240517 塔兰吉雷国家公园的非洲象家族，坦桑尼亚 (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)
+#### 20240517 A family of African elephants in Tarangire National Park, Tanzania (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)
 
 ![](images/2024-05/20240517_TarangireElephants_1920x1080.jpg)
 
