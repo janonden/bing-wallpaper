@@ -10,7 +10,7 @@
 
 ![](images/2024-05/20240518_Museum_1920x1080.jpg)
 
-#### 20240518 Squelette de baleine bleue appelé Hope, Natural History Museum, Londres, Angleterre (© Bailey-Cooper Photography/Alamy)
+#### 20240518 Blue whale skeleton in the Natural History Museum, London, England (© Bailey-Cooper Photography/Alamy)
 
 ![](images/2024-05/20240518_MuseumWhale_1920x1080.jpg)
 
