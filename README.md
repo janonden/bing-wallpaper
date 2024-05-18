@@ -26,6 +26,10 @@
 
 ![](images/2024-05/20240516_DayOfLight_1920x1080.jpg)
 
+#### 20240515 The Blue City of Jodhpur, India (© cinoby/Getty Images)
+
+![](images/2024-05/20240515_BlueCityIndia_1920x1080.jpg)
+
 #### 20240515 下鴨神社, 京都 (© beibaoke/Shutterstock)
 
 ![](images/2024-05/20240515_AoiMatsuri_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240510 Tulips in front of the Parliament Buildings during the Tulip Festival in Ottawa (© Danielle Donders/Moment/Getty Images)
 
 ![](images/2024-05/20240510_OttawaTulipFest_1920x1080.jpg)
-
-#### 20240509 Misool, Raja Ampat Islands, Indonesia (© Giordano Cipriani/Getty Images)
-
-![](images/2024-05/20240509_MisoolRajaAmpat_1920x1080.jpg)
 
 
 

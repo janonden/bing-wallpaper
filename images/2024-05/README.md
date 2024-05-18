@@ -26,6 +26,10 @@
 
 ![](20240516_DayOfLight_1920x1080.jpg)
 
+#### 20240515 The Blue City of Jodhpur, India (© cinoby/Getty Images)
+
+![](20240515_BlueCityIndia_1920x1080.jpg)
+
 #### 20240515 下鴨神社, 京都 (© beibaoke/Shutterstock)
 
 ![](20240515_AoiMatsuri_1920x1080.jpg)
