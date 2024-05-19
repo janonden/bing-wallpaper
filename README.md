@@ -1,3 +1,7 @@
+#### 20240519 Die Büste der Königin Nofretete, Ägyptisches Museum, Museumsinseln Berlin (© Christophe Gateau/picture alliance via Getty Images)
+
+![](images/2024-05/20240519_NefertitiMuseum_1920x1080.jpg)
+
 #### 20240518 Vernazza, Cinque Terre, Ligurien, Italien (© Roberto Moiola/Sysaworld/Getty Images)
 
 ![](images/2024-05/20240518_VernazzaItaly_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240511 An indigo bunting perched on a branch, Texas (© Jeff R Clow/Getty Images)
 
 ![](images/2024-05/20240511_TexasIndigoBunting_1920x1080.jpg)
-
-#### 20240510 Tulips in front of the Parliament Buildings during the Tulip Festival in Ottawa (© Danielle Donders/Moment/Getty Images)
-
-![](images/2024-05/20240510_OttawaTulipFest_1920x1080.jpg)
 
 
 

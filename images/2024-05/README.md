@@ -1,3 +1,7 @@
+#### 20240519 Die Büste der Königin Nofretete, Ägyptisches Museum, Museumsinseln Berlin (© Christophe Gateau/picture alliance via Getty Images)
+
+![](20240519_NefertitiMuseum_1920x1080.jpg)
+
 #### 20240518 Vernazza, Cinque Terre, Ligurien, Italien (© Roberto Moiola/Sysaworld/Getty Images)
 
 ![](20240518_VernazzaItaly_1920x1080.jpg)
