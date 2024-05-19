@@ -1,3 +1,7 @@
+#### 20240520 蜜蜂照料蜂巢 (© Simun Ascic/Alamy Stock Photo)
+
+![](images/2024-05/20240520_HoneycombBee_1920x1080.jpg)
+
 #### 20240519 Die Büste der Königin Nofretete, Ägyptisches Museum, Museumsinseln Berlin (© Christophe Gateau/picture alliance via Getty Images)
 
 ![](images/2024-05/20240519_NefertitiMuseum_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240512 Guanaco mother and newborn baby in grassland, La Pampa Province, Argentina (© Gabriel Rojo/Minden Pictures)
 
 ![](images/2024-05/20240512_GuanacoMother_1920x1080.jpg)
-
-#### 20240512 Flamants roses, réserve naturelle de Pont de Gau, Camargue, France (© Yann Guichaoua-Photos/Getty Images)
-
-![](images/2024-05/20240512_CamargueFlamingos_1920x1080.jpg)
 
 
 
