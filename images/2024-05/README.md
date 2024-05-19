@@ -30,6 +30,10 @@
 
 ![](20240516_DayOfLight_1920x1080.jpg)
 
+#### 20240515 Blick über den Fluss Neckar auf das Stadtbild von Heidelberg, Baden-Württemberg (© Juergen Sack/Getty Images)
+
+![](20240515_RiverNekarHeidelberg_1920x1080.jpg)
+
 #### 20240515 The Blue City of Jodhpur, India (© cinoby/Getty Images)
 
 ![](20240515_BlueCityIndia_1920x1080.jpg)

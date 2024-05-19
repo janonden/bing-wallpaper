@@ -30,6 +30,10 @@
 
 ![](images/2024-05/20240516_DayOfLight_1920x1080.jpg)
 
+#### 20240515 Blick über den Fluss Neckar auf das Stadtbild von Heidelberg, Baden-Württemberg (© Juergen Sack/Getty Images)
+
+![](images/2024-05/20240515_RiverNekarHeidelberg_1920x1080.jpg)
+
 #### 20240515 The Blue City of Jodhpur, India (© cinoby/Getty Images)
 
 ![](images/2024-05/20240515_BlueCityIndia_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240512 Flamants roses, réserve naturelle de Pont de Gau, Camargue, France (© Yann Guichaoua-Photos/Getty Images)
 
 ![](images/2024-05/20240512_CamargueFlamingos_1920x1080.jpg)
-
-#### 20240511 An indigo bunting perched on a branch, Texas (© Jeff R Clow/Getty Images)
-
-![](images/2024-05/20240511_TexasIndigoBunting_1920x1080.jpg)
 
 
 
