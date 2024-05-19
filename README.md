@@ -2,7 +2,7 @@
 
 ![](images/2024-05/20240519_NefertitiMuseum_1920x1080.jpg)
 
-#### 20240518 Vernazza, Cinque Terre, Ligurien, Italien (© Roberto Moiola/Sysaworld/Getty Images)
+#### 20240518 Village of Vernazza, Cinque Terre, Liguria, Italy (© Roberto Moiola/Sysaworld/Getty Images)
 
 ![](images/2024-05/20240518_VernazzaItaly_1920x1080.jpg)
 
