@@ -1,3 +1,7 @@
+#### 20240521 卡梅隆高地茶园，马拉西亚 (© alex cheong/Getty Images)
+
+![](20240521_MalaysiaTea_1920x1080.jpg)
+
 #### 20240520 Parliament Hill in Ottawa, Ontario, Canada (© f11photo/iStock/Getty Images)
 
 ![](20240520_OttawaParliamentHill_1920x1080.jpg)

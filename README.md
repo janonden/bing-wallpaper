@@ -1,3 +1,7 @@
+#### 20240521 卡梅隆高地茶园，马拉西亚 (© alex cheong/Getty Images)
+
+![](images/2024-05/20240521_MalaysiaTea_1920x1080.jpg)
+
 #### 20240520 Parliament Hill in Ottawa, Ontario, Canada (© f11photo/iStock/Getty Images)
 
 ![](images/2024-05/20240520_OttawaParliamentHill_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240514 Walkway leading into the Big Room, Carlsbad Caverns, New Mexico (© Doug Meek/Getty Images)
 
 ![](images/2024-05/20240514_CarlsbadNP_1920x1080.jpg)
-
-#### 20240513 Fish River Canyon, Namibia (© R. M. Nunes/Getty Images)
-
-![](images/2024-05/20240513_NamibiaCanyon_1920x1080.jpg)
 
 
 
