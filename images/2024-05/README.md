@@ -2,7 +2,7 @@
 
 ![](20240520_OttawaParliamentHill_1920x1080.jpg)
 
-#### 20240520 蜜蜂照料蜂巢 (© Simun Ascic/Alamy Stock Photo)
+#### 20240520 Bee tending a honeycomb (© Simun Ascic/Alamy)
 
 ![](20240520_HoneycombBee_1920x1080.jpg)
 
