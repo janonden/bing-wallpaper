@@ -1,3 +1,7 @@
+#### 20240520 Parliament Hill in Ottawa, Ontario, Canada (© f11photo/iStock/Getty Images)
+
+![](images/2024-05/20240520_OttawaParliamentHill_1920x1080.jpg)
+
 #### 20240520 蜜蜂照料蜂巢 (© Simun Ascic/Alamy Stock Photo)
 
 ![](images/2024-05/20240520_HoneycombBee_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240513 Fish River Canyon, Namibia (© R. M. Nunes/Getty Images)
 
 ![](images/2024-05/20240513_NamibiaCanyon_1920x1080.jpg)
-
-#### 20240512 Guanaco mother and newborn baby in grassland, La Pampa Province, Argentina (© Gabriel Rojo/Minden Pictures)
-
-![](images/2024-05/20240512_GuanacoMother_1920x1080.jpg)
 
 
 
