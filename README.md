@@ -1,4 +1,8 @@
-#### 20240521 卡梅隆高地茶园，马拉西亚 (© alex cheong/Getty Images)
+#### 20240522 Poço Encantado cave in Chapada Diamantina, Bahia, Brazil (© Cavan Images/Getty Images)
+
+![](images/2024-05/20240522_ChapadaDiamantinaBahia_1920x1080.jpg)
+
+#### 20240521 Cameron Highlands tea plantation, Malaysia (© alex cheong/Getty Images)
 
 ![](images/2024-05/20240521_MalaysiaTea_1920x1080.jpg)
 
@@ -53,10 +57,6 @@
 #### 20240515 下鴨神社, 京都 (© beibaoke/Shutterstock)
 
 ![](images/2024-05/20240515_AoiMatsuri_1920x1080.jpg)
-
-#### 20240514 Walkway leading into the Big Room, Carlsbad Caverns, New Mexico (© Doug Meek/Getty Images)
-
-![](images/2024-05/20240514_CarlsbadNP_1920x1080.jpg)
 
 
 
