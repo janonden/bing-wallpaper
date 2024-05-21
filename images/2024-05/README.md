@@ -1,3 +1,11 @@
+#### 20240522 塔斯马尼亚高山黄桉（假少花桉），费尔德山国家公园，塔斯马尼亚州，澳大利亚 (© Ignacio Palacios/Getty Images)
+
+![](20240522_SnowGumTasmania_1920x1080.jpg)
+
+#### 20240522 夕暮れの東京スカイツリー,  東京 (© Saha Entertainment/Getty Images)
+
+![](20240522_SkyTree_1920x1080.jpg)
+
 #### 20240522 Poço Encantado cave in Chapada Diamantina, Bahia, Brazil (© Cavan Images/Getty Images)
 
 ![](20240522_ChapadaDiamantinaBahia_1920x1080.jpg)

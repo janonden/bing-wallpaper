@@ -1,3 +1,11 @@
+#### 20240522 塔斯马尼亚高山黄桉（假少花桉），费尔德山国家公园，塔斯马尼亚州，澳大利亚 (© Ignacio Palacios/Getty Images)
+
+![](images/2024-05/20240522_SnowGumTasmania_1920x1080.jpg)
+
+#### 20240522 夕暮れの東京スカイツリー,  東京 (© Saha Entertainment/Getty Images)
+
+![](images/2024-05/20240522_SkyTree_1920x1080.jpg)
+
 #### 20240522 Poço Encantado cave in Chapada Diamantina, Bahia, Brazil (© Cavan Images/Getty Images)
 
 ![](images/2024-05/20240522_ChapadaDiamantinaBahia_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20240515 Blick über den Fluss Neckar auf das Stadtbild von Heidelberg, Baden-Württemberg (© Juergen Sack/Getty Images)
 
 ![](images/2024-05/20240515_RiverNekarHeidelberg_1920x1080.jpg)
-
-#### 20240515 The Blue City of Jodhpur, India (© cinoby/Getty Images)
-
-![](images/2024-05/20240515_BlueCityIndia_1920x1080.jpg)
-
-#### 20240515 下鴨神社, 京都 (© beibaoke/Shutterstock)
-
-![](images/2024-05/20240515_AoiMatsuri_1920x1080.jpg)
 
 
 
