@@ -1,4 +1,4 @@
-#### 20240522 塔斯马尼亚高山黄桉（假少花桉），费尔德山国家公园，塔斯马尼亚州，澳大利亚 (© Ignacio Palacios/Getty Images)
+#### 20240522 Tasmanian snow gum trees, Mount Field National Park, Tasmania, Australia (© Ignacio Palacios/Getty Images)
 
 ![](20240522_SnowGumTasmania_1920x1080.jpg)
 
