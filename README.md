@@ -1,4 +1,8 @@
-#### 20240523 印度星龟，斯里兰卡 (© Robin Chittenden/Minden Pictures)
+#### 20240524 阿尼斯克洛峡谷，奥德萨和佩尔迪多山国家公园，韦斯卡，西班牙 (© Marisa Estivill/Shutterstock)
+
+![](images/2024-05/20240524_OrdesaNationalPark_1920x1080.jpg)
+
+#### 20240523 Indian star tortoise, Sri Lanka (© Robin Chittenden/Minden Pictures)
 
 ![](images/2024-05/20240523_IndianStarTortoise_1920x1080.jpg)
 
@@ -53,10 +57,6 @@
 #### 20240516 维戈的兰德大桥，西班牙 (© Julio Conde/Getty Images)
 
 ![](images/2024-05/20240516_ReconquistaVigo_1920x1080.jpg)
-
-#### 20240516 'Feelings are Facts,' by artist Olafur Eliasson and architect Ma Yansong, Beijing, China (© Feng Li/Getty Images News)
-
-![](images/2024-05/20240516_DayOfLight_1920x1080.jpg)
 
 
 
