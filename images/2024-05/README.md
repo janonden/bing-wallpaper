@@ -1,4 +1,4 @@
-#### 20240524 阿尼斯克洛峡谷，奥德萨和佩尔迪多山国家公园，韦斯卡，西班牙 (© Marisa Estivill/Shutterstock)
+#### 20240524 Añisclo Canyon, Ordesa y Monte Perdido National Park, Huesca, Spain (© Marisa Estivill/Shutterstock)
 
 ![](20240524_OrdesaNationalPark_1920x1080.jpg)
 
