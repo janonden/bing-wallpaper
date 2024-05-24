@@ -1,3 +1,7 @@
+#### 20240525 阿伊特本哈杜，摩洛哥 (© Grant Faint/Getty Images)
+
+![](20240525_MoroccoBenhaddou_1920x1080.jpg)
+
 #### 20240524 Añisclo Canyon, Ordesa y Monte Perdido National Park, Huesca, Spain (© Marisa Estivill/Shutterstock)
 
 ![](20240524_OrdesaNationalPark_1920x1080.jpg)

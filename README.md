@@ -1,3 +1,7 @@
+#### 20240525 阿伊特本哈杜，摩洛哥 (© Grant Faint/Getty Images)
+
+![](images/2024-05/20240525_MoroccoBenhaddou_1920x1080.jpg)
+
 #### 20240524 Añisclo Canyon, Ordesa y Monte Perdido National Park, Huesca, Spain (© Marisa Estivill/Shutterstock)
 
 ![](images/2024-05/20240524_OrdesaNationalPark_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240517 A family of African elephants in Tarangire National Park, Tanzania (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)
 
 ![](images/2024-05/20240517_TarangireElephants_1920x1080.jpg)
-
-#### 20240516 维戈的兰德大桥，西班牙 (© Julio Conde/Getty Images)
-
-![](images/2024-05/20240516_ReconquistaVigo_1920x1080.jpg)
 
 
 
