@@ -1,4 +1,4 @@
-#### 20240525 阿伊特本哈杜，摩洛哥 (© Grant Faint/Getty Images)
+#### 20240525 Aït Benhaddou, Morocco (© Grant Faint/Getty Images)
 
 ![](images/2024-05/20240525_MoroccoBenhaddou_1920x1080.jpg)
 
