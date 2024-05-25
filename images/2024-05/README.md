@@ -1,3 +1,7 @@
+#### 20240526 香根和羽扇豆，梅索谷，北喀斯喀特，华盛顿州，美国 (© Alan Majchrowicz/Getty Images)
+
+![](20240526_MethowWildflowers_1920x1080.jpg)
+
 #### 20240525 Aït Benhaddou, Morocco (© Grant Faint/Getty Images)
 
 ![](20240525_MoroccoBenhaddou_1920x1080.jpg)

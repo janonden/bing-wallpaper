@@ -1,3 +1,7 @@
+#### 20240526 香根和羽扇豆，梅索谷，北喀斯喀特，华盛顿州，美国 (© Alan Majchrowicz/Getty Images)
+
+![](images/2024-05/20240526_MethowWildflowers_1920x1080.jpg)
+
 #### 20240525 Aït Benhaddou, Morocco (© Grant Faint/Getty Images)
 
 ![](images/2024-05/20240525_MoroccoBenhaddou_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240518 Blue whale skeleton in the Natural History Museum, London, England (© Bailey-Cooper Photography/Alamy)
 
 ![](images/2024-05/20240518_MuseumWhale_1920x1080.jpg)
-
-#### 20240517 A family of African elephants in Tarangire National Park, Tanzania (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)
-
-![](images/2024-05/20240517_TarangireElephants_1920x1080.jpg)
 
 
 
