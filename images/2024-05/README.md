@@ -1,3 +1,11 @@
+#### 20240527 塞斯特里莱万特的沉默湾，利古里亚大区，意大利 (© StevanZZ/Getty Images)
+
+![](20240527_SestriLevante_1920x1080.jpg)
+
+#### 20240527 ナミハリネズミ, ドイツ ノルトライン＝ヴェストファーレン州 (© Oksana Schmidt/Getty Images)
+
+![](20240527_HedgehogMeadow_1920x1080.jpg)
+
 #### 20240526 Monte Carlo au crépuscule, Monaco (©  StockByM/Getty Images)
 
 ![](20240526_MonacoGP_1920x1080.jpg)

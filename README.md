@@ -1,3 +1,11 @@
+#### 20240527 塞斯特里莱万特的沉默湾，利古里亚大区，意大利 (© StevanZZ/Getty Images)
+
+![](images/2024-05/20240527_SestriLevante_1920x1080.jpg)
+
+#### 20240527 ナミハリネズミ, ドイツ ノルトライン＝ヴェストファーレン州 (© Oksana Schmidt/Getty Images)
+
+![](images/2024-05/20240527_HedgehogMeadow_1920x1080.jpg)
+
 #### 20240526 Monte Carlo au crépuscule, Monaco (©  StockByM/Getty Images)
 
 ![](images/2024-05/20240526_MonacoGP_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20240519 Die Büste der Königin Nofretete, Ägyptisches Museum, Museumsinseln Berlin (© Christophe Gateau/picture alliance via Getty Images)
 
 ![](images/2024-05/20240519_NefertitiMuseum_1920x1080.jpg)
-
-#### 20240518 Village of Vernazza, Cinque Terre, Liguria, Italy (© Roberto Moiola/Sysaworld/Getty Images)
-
-![](images/2024-05/20240518_VernazzaItaly_1920x1080.jpg)
-
-#### 20240518 破碎群岛，环太平洋国家公园保护区，不列颠哥伦比亚省温哥华岛，加拿大 (© Ron Watts/Design Pics/Getty Images)
-
-![](images/2024-05/20240518_PacificRimNationalPark_1920x1080.jpg)
 
 
 
