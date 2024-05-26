@@ -2,7 +2,7 @@
 
 ![](images/2024-05/20240526_MonacoGP_1920x1080.jpg)
 
-#### 20240526 香根和羽扇豆，梅索谷，北喀斯喀特，华盛顿州，美国 (© Alan Majchrowicz/Getty Images)
+#### 20240526 Balsamroot and lupines, Methow Valley, North Cascades, Washington (© Alan Majchrowicz/Getty Images)
 
 ![](images/2024-05/20240526_MethowWildflowers_1920x1080.jpg)
 
