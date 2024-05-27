@@ -1,3 +1,7 @@
+#### 20240528 罗萨诺修道院，迈泰奥拉，色萨利 ，希腊 (© Marius Roman/Getty Images)
+
+![](images/2024-05/20240528_MeteoraMonastery_1920x1080.jpg)
+
 #### 20240527 塞斯特里莱万特的沉默湾，利古里亚大区，意大利 (© StevanZZ/Getty Images)
 
 ![](images/2024-05/20240527_SestriLevante_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240522 Poço Encantado cave in Chapada Diamantina, Bahia, Brazil (© Cavan Images/Getty Images)
 
 ![](images/2024-05/20240522_ChapadaDiamantinaBahia_1920x1080.jpg)
-
-#### 20240521 Cameron Highlands tea plantation, Malaysia (© alex cheong/Getty Images)
-
-![](images/2024-05/20240521_MalaysiaTea_1920x1080.jpg)
 
 
 
