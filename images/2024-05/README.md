@@ -6,6 +6,10 @@
 
 ![](20240527_HedgehogMeadow_1920x1080.jpg)
 
+#### 20240527 Bébé tortue olivâtre quittant le nid pour rejoindre l'océan, plage de Remire-Montjoly, Cayenne, Guyanne (© Brusini Aurélien/hemis.fr)
+
+![](20240527_Guiana_1920x1080.jpg)
+
 #### 20240526 Monte Carlo au crépuscule, Monaco (©  StockByM/Getty Images)
 
 ![](20240526_MonacoGP_1920x1080.jpg)

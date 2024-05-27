@@ -6,6 +6,10 @@
 
 ![](images/2024-05/20240527_HedgehogMeadow_1920x1080.jpg)
 
+#### 20240527 Bébé tortue olivâtre quittant le nid pour rejoindre l'océan, plage de Remire-Montjoly, Cayenne, Guyanne (© Brusini Aurélien/hemis.fr)
+
+![](images/2024-05/20240527_Guiana_1920x1080.jpg)
+
 #### 20240526 Monte Carlo au crépuscule, Monaco (©  StockByM/Getty Images)
 
 ![](images/2024-05/20240526_MonacoGP_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240520 Bee tending a honeycomb (© Simun Ascic/Alamy)
 
 ![](images/2024-05/20240520_HoneycombBee_1920x1080.jpg)
-
-#### 20240519 Die Büste der Königin Nofretete, Ägyptisches Museum, Museumsinseln Berlin (© Christophe Gateau/picture alliance via Getty Images)
-
-![](images/2024-05/20240519_NefertitiMuseum_1920x1080.jpg)
 
 
 
