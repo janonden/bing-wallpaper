@@ -6,6 +6,10 @@
 
 ![](20240527_MinganArchipelago_1920x1080.jpg)
 
+#### 20240527 Field of flags set up for Memorial Day (© Andrew Seegmiller/Getty Images)
+
+![](20240527_MemorialFlags_1920x1080.jpg)
+
 #### 20240527 ナミハリネズミ, ドイツ ノルトライン＝ヴェストファーレン州 (© Oksana Schmidt/Getty Images)
 
 ![](20240527_HedgehogMeadow_1920x1080.jpg)

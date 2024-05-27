@@ -6,6 +6,10 @@
 
 ![](images/2024-05/20240527_MinganArchipelago_1920x1080.jpg)
 
+#### 20240527 Field of flags set up for Memorial Day (© Andrew Seegmiller/Getty Images)
+
+![](images/2024-05/20240527_MemorialFlags_1920x1080.jpg)
+
 #### 20240527 ナミハリネズミ, ドイツ ノルトライン＝ヴェストファーレン州 (© Oksana Schmidt/Getty Images)
 
 ![](images/2024-05/20240527_HedgehogMeadow_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240521 Cameron Highlands tea plantation, Malaysia (© alex cheong/Getty Images)
 
 ![](images/2024-05/20240521_MalaysiaTea_1920x1080.jpg)
-
-#### 20240520 Parliament Hill in Ottawa, Ontario, Canada (© f11photo/iStock/Getty Images)
-
-![](images/2024-05/20240520_OttawaParliamentHill_1920x1080.jpg)
 
 
 
