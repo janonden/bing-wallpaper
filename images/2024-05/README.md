@@ -2,6 +2,10 @@
 
 ![](20240527_SestriLevante_1920x1080.jpg)
 
+#### 20240527 Mingan Archipelago National Park Reserve, Quebec, Canada (© Instants/E+/Getty Images)
+
+![](20240527_MinganArchipelago_1920x1080.jpg)
+
 #### 20240527 ナミハリネズミ, ドイツ ノルトライン＝ヴェストファーレン州 (© Oksana Schmidt/Getty Images)
 
 ![](20240527_HedgehogMeadow_1920x1080.jpg)

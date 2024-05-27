@@ -2,6 +2,10 @@
 
 ![](images/2024-05/20240527_SestriLevante_1920x1080.jpg)
 
+#### 20240527 Mingan Archipelago National Park Reserve, Quebec, Canada (© Instants/E+/Getty Images)
+
+![](images/2024-05/20240527_MinganArchipelago_1920x1080.jpg)
+
 #### 20240527 ナミハリネズミ, ドイツ ノルトライン＝ヴェストファーレン州 (© Oksana Schmidt/Getty Images)
 
 ![](images/2024-05/20240527_HedgehogMeadow_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240520 Parliament Hill in Ottawa, Ontario, Canada (© f11photo/iStock/Getty Images)
 
 ![](images/2024-05/20240520_OttawaParliamentHill_1920x1080.jpg)
-
-#### 20240520 Bee tending a honeycomb (© Simun Ascic/Alamy)
-
-![](images/2024-05/20240520_HoneycombBee_1920x1080.jpg)
 
 
 
