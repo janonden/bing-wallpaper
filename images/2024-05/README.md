@@ -1,4 +1,4 @@
-#### 20240528 罗萨诺修道院，迈泰奥拉，色萨利 ，希腊 (© Marius Roman/Getty Images)
+#### 20240528 Roussanou Monastery, Meteora, Thessaly, Greece (© Marius Roman/Getty Images)
 
 ![](20240528_MeteoraMonastery_1920x1080.jpg)
 
