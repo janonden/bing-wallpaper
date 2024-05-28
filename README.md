@@ -1,3 +1,7 @@
+#### 20240529 青春期的欧洲水獭，斯佩尔维湖，苏格兰姆尔斯岛 (© Neil Henderson/Alamy Stock Photo)
+
+![](images/2024-05/20240529_MullOtter_1920x1080.jpg)
+
 #### 20240528 Roussanou Monastery, Meteora, Thessaly, Greece (© Marius Roman/Getty Images)
 
 ![](images/2024-05/20240528_MeteoraMonastery_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240522 夕暮れの東京スカイツリー,  東京 (© Saha Entertainment/Getty Images)
 
 ![](images/2024-05/20240522_SkyTree_1920x1080.jpg)
-
-#### 20240522 Poço Encantado cave in Chapada Diamantina, Bahia, Brazil (© Cavan Images/Getty Images)
-
-![](images/2024-05/20240522_ChapadaDiamantinaBahia_1920x1080.jpg)
 
 
 
