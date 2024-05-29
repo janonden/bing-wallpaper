@@ -1,4 +1,4 @@
-#### 20240529 青春期的欧洲水獭，斯佩尔维湖，苏格兰姆尔斯岛 (© Neil Henderson/Alamy Stock Photo)
+#### 20240529 Eurasian otters, Loch Spelve, Isle of Mull, Scotland (© Neil Henderson/Alamy)
 
 ![](20240529_MullOtter_1920x1080.jpg)
 
