@@ -1,3 +1,7 @@
+#### 20240531 冈纳塞德，斯韦尔代尔，约克郡谷地国家公园，英格兰 (© Derek Croucher/Alamy Stock Photo)
+
+![](images/2024-05/20240531_YorkshireDalesNP_1920x1080.jpg)
+
 #### 20240530 A stand of slash pines and sawgrass prairie, Everglades National Park, Florida (© Jonathan Gewirtz/Tandem Stills + Motion)
 
 ![](images/2024-05/20240530_Everglades_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240523 Indian star tortoise, Sri Lanka (© Robin Chittenden/Minden Pictures)
 
 ![](images/2024-05/20240523_IndianStarTortoise_1920x1080.jpg)
-
-#### 20240522 Tasmanian snow gum trees, Mount Field National Park, Tasmania, Australia (© Ignacio Palacios/Getty Images)
-
-![](images/2024-05/20240522_SnowGumTasmania_1920x1080.jpg)
 
 
 

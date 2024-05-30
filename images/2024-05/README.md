@@ -1,3 +1,7 @@
+#### 20240531 冈纳塞德，斯韦尔代尔，约克郡谷地国家公园，英格兰 (© Derek Croucher/Alamy Stock Photo)
+
+![](20240531_YorkshireDalesNP_1920x1080.jpg)
+
 #### 20240530 A stand of slash pines and sawgrass prairie, Everglades National Park, Florida (© Jonathan Gewirtz/Tandem Stills + Motion)
 
 ![](20240530_Everglades_1920x1080.jpg)
