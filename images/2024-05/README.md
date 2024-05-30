@@ -1,4 +1,4 @@
-#### 20240530 一片斜纹松和锯齿草大沼泽地国家公园，佛罗里达州，美国 (© Jonathan Gewirtz/Tandem Stills + Motion)
+#### 20240530 A stand of slash pines and sawgrass prairie, Everglades National Park, Florida (© Jonathan Gewirtz/Tandem Stills + Motion)
 
 ![](20240530_Everglades_1920x1080.jpg)
 
