@@ -1,4 +1,4 @@
-#### 20240531 冈纳塞德，斯韦尔代尔，约克郡谷地国家公园，英格兰 (© Derek Croucher/Alamy Stock Photo)
+#### 20240531 Gunnerside, Swaledale, Yorkshire Dales National Park, England (© Derek Croucher/Alamy)
 
 ![](images/2024-05/20240531_YorkshireDalesNP_1920x1080.jpg)
 
