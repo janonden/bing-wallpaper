@@ -1,4 +1,4 @@
-#### 20240601 虹色に輝くサンフランシスコ市庁舎, 米国 カリフォルニア州 (© Josh Edelson/AFP via Getty Images)
+#### 20240601 San Francisco City Hall lit up in rainbow lights for Pride, California (© Josh Edelson/AFP via Getty Images)
 
 ![](images/2024-06/20240601_PrideMonthSF_1920x1080.jpg)
 
