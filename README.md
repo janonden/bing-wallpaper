@@ -1,3 +1,11 @@
+#### 20240602 みなとみらい 21 地区, 神奈川県 横浜市 (© SeanPavonePhoto/Getty Images)
+
+![](images/2024-06/20240602_YokohamaPort_1920x1080.jpg)
+
+#### 20240602 普卢马纳克的灯塔，阿摩尔滨海省，法国 (© Christian Handl/Getty Images)
+
+![](images/2024-06/20240602_MenRuz_1920x1080.jpg)
+
 #### 20240601 San Francisco City Hall lit up in rainbow lights for Pride, California (© Josh Edelson/AFP via Getty Images)
 
 ![](images/2024-06/20240601_PrideMonthSF_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20240526 Balsamroot and lupines, Methow Valley, North Cascades, Washington (© Alan Majchrowicz/Getty Images)
 
 ![](images/2024-05/20240526_MethowWildflowers_1920x1080.jpg)
-
-#### 20240526 Elbsandsteingebirge und Basteibrücke im Nationalpark Sächsische Schweiz, Sachsen (© Harald Nachtmann/Getty Images)
-
-![](images/2024-05/20240526_ElbeSandstone_1920x1080.jpg)
-
-#### 20240525 Aït Benhaddou, Morocco (© Grant Faint/Getty Images)
-
-![](images/2024-05/20240525_MoroccoBenhaddou_1920x1080.jpg)
 
 
 

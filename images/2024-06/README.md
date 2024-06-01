@@ -1,3 +1,11 @@
+#### 20240602 みなとみらい 21 地区, 神奈川県 横浜市 (© SeanPavonePhoto/Getty Images)
+
+![](20240602_YokohamaPort_1920x1080.jpg)
+
+#### 20240602 普卢马纳克的灯塔，阿摩尔滨海省，法国 (© Christian Handl/Getty Images)
+
+![](20240602_MenRuz_1920x1080.jpg)
+
 #### 20240601 San Francisco City Hall lit up in rainbow lights for Pride, California (© Josh Edelson/AFP via Getty Images)
 
 ![](20240601_PrideMonthSF_1920x1080.jpg)
