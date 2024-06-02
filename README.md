@@ -1,3 +1,7 @@
+#### 20240603 哥本哈根的自行车，丹麦 (© Alphotographic/Getty Images)
+
+![](images/2024-06/20240603_CopenhagenBicycles_1920x1080.jpg)
+
 #### 20240602 みなとみらい 21 地区, 神奈川県 横浜市 (© SeanPavonePhoto/Getty Images)
 
 ![](images/2024-06/20240602_YokohamaPort_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240527 ナミハリネズミ, ドイツ ノルトライン＝ヴェストファーレン州 (© Oksana Schmidt/Getty Images)
 
 ![](images/2024-05/20240527_HedgehogMeadow_1920x1080.jpg)
-
-#### 20240527 Bébé tortue olivâtre quittant le nid pour rejoindre l'océan, plage de Remire-Montjoly, Cayenne, Guyanne (© Brusini Aurélien/hemis.fr)
-
-![](images/2024-05/20240527_Guiana_1920x1080.jpg)
 
 
 

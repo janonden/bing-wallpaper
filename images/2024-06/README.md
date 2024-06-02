@@ -1,3 +1,7 @@
+#### 20240603 哥本哈根的自行车，丹麦 (© Alphotographic/Getty Images)
+
+![](20240603_CopenhagenBicycles_1920x1080.jpg)
+
 #### 20240602 みなとみらい 21 地区, 神奈川県 横浜市 (© SeanPavonePhoto/Getty Images)
 
 ![](20240602_YokohamaPort_1920x1080.jpg)
