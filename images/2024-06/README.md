@@ -6,6 +6,10 @@
 
 ![](20240602_MenRuz_1920x1080.jpg)
 
+#### 20240602 Flowers blooming in a garden, Alaska (© jet 67/Shutterstock)
+
+![](20240602_GardenWeek_1920x1080.jpg)
+
 #### 20240602 Female Anna's hummingbird, Canada (© Devonyu/iStock/Getty Images)
 
 ![](20240602_Annahummingbird_1920x1080.jpg)
