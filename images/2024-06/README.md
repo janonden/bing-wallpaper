@@ -6,6 +6,10 @@
 
 ![](20240602_MenRuz_1920x1080.jpg)
 
+#### 20240602 Female Anna's hummingbird, Canada (© Devonyu/iStock/Getty Images)
+
+![](20240602_Annahummingbird_1920x1080.jpg)
+
 #### 20240601 San Francisco City Hall lit up in rainbow lights for Pride, California (© Josh Edelson/AFP via Getty Images)
 
 ![](20240601_PrideMonthSF_1920x1080.jpg)
