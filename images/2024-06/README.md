@@ -1,4 +1,4 @@
-#### 20240603 哥本哈根的自行车，丹麦 (© Alphotographic/Getty Images)
+#### 20240603 Bicycles in Copenhagen, Denmark (© Alphotographic/Getty Images)
 
 ![](20240603_CopenhagenBicycles_1920x1080.jpg)
 
