@@ -1,3 +1,7 @@
+#### 20240605 马达加斯加的马苏阿拉国家公园 (© Dennis van de Water/Shutterstock)
+
+![](20240605_MadagascarRiver_1920x1080.jpg)
+
 #### 20240604 Chestnut-headed bee-eaters, Bardia National Park, Nepal (© PACO COMO/Shutterstock)
 
 ![](20240604_ChestnutBeeEater_1920x1080.jpg)

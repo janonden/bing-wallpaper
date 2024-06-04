@@ -1,3 +1,7 @@
+#### 20240605 马达加斯加的马苏阿拉国家公园 (© Dennis van de Water/Shutterstock)
+
+![](images/2024-06/20240605_MadagascarRiver_1920x1080.jpg)
+
 #### 20240604 Chestnut-headed bee-eaters, Bardia National Park, Nepal (© PACO COMO/Shutterstock)
 
 ![](images/2024-06/20240604_ChestnutBeeEater_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240527 Mingan Archipelago National Park Reserve, Quebec, Canada (© Instants/E+/Getty Images)
 
 ![](images/2024-05/20240527_MinganArchipelago_1920x1080.jpg)
-
-#### 20240527 Field of flags set up for Memorial Day (© Andrew Seegmiller/Getty Images)
-
-![](images/2024-05/20240527_MemorialFlags_1920x1080.jpg)
 
 
 
