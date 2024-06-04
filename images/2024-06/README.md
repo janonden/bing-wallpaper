@@ -1,4 +1,4 @@
-#### 20240604 黑胸蜂虎，巴迪亚国家公园，尼泊尔 (© PACO COMO/Shutterstock)
+#### 20240604 Chestnut-headed bee-eaters, Bardia National Park, Nepal (© PACO COMO/Shutterstock)
 
 ![](20240604_ChestnutBeeEater_1920x1080.jpg)
 
