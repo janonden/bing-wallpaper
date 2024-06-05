@@ -1,4 +1,4 @@
-#### 20240605 马达加斯加的马苏阿拉国家公园 (© Dennis van de Water/Shutterstock)
+#### 20240605 Masoala National Park in Madagascar (© Dennis van de Water/Shutterstock)
 
 ![](images/2024-06/20240605_MadagascarRiver_1920x1080.jpg)
 
