@@ -1,3 +1,11 @@
+#### 20240606 オリックスの群れ, ボツワナ (© Karine Aigner/Tandem Stills + Motion)
+
+![](20240606_GemsbokBotswana_1920x1080.jpg)
+
+#### 20240606 蓬德高鸟类公园的大红鹳，卡玛格，法国 (© Yann Guichaoua-Photos/Getty Images)
+
+![](20240606_CamargueFlamingos_1920x1080.jpg)
+
 #### 20240605 Masoala National Park in Madagascar (© Dennis van de Water/Shutterstock)
 
 ![](20240605_MadagascarRiver_1920x1080.jpg)

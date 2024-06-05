@@ -1,3 +1,11 @@
+#### 20240606 オリックスの群れ, ボツワナ (© Karine Aigner/Tandem Stills + Motion)
+
+![](images/2024-06/20240606_GemsbokBotswana_1920x1080.jpg)
+
+#### 20240606 蓬德高鸟类公园的大红鹳，卡玛格，法国 (© Yann Guichaoua-Photos/Getty Images)
+
+![](images/2024-06/20240606_CamargueFlamingos_1920x1080.jpg)
+
 #### 20240605 Masoala National Park in Madagascar (© Dennis van de Water/Shutterstock)
 
 ![](images/2024-06/20240605_MadagascarRiver_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20240528 Roussanou Monastery, Meteora, Thessaly, Greece (© Marius Roman/Getty Images)
 
 ![](images/2024-05/20240528_MeteoraMonastery_1920x1080.jpg)
-
-#### 20240527 塞斯特里莱万特的沉默湾，利古里亚大区，意大利 (© StevanZZ/Getty Images)
-
-![](images/2024-05/20240527_SestriLevante_1920x1080.jpg)
-
-#### 20240527 Mingan Archipelago National Park Reserve, Quebec, Canada (© Instants/E+/Getty Images)
-
-![](images/2024-05/20240527_MinganArchipelago_1920x1080.jpg)
 
 
 
