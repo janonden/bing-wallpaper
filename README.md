@@ -1,3 +1,11 @@
+#### 20240606 Luftaufnahme der Rossfeld-Panoramastraße, Berchtesgaden, Deutschland (© DieterMeyrl/Getty Images)
+
+![](images/2024-06/20240606_RossfeldRoad_1920x1080.jpg)
+
+#### 20240606 Monument Les Braves à Omaha Beach, Saint-Laurent-sur-Mer, Normandie (© Christopher Furlong/Getty Images)
+
+![](images/2024-06/20240606_LesBravesNormandy_1920x1080.jpg)
+
 #### 20240606 オリックスの群れ, ボツワナ (© Karine Aigner/Tandem Stills + Motion)
 
 ![](images/2024-06/20240606_GemsbokBotswana_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20240530 A stand of slash pines and sawgrass prairie, Everglades National Park, Florida (© Jonathan Gewirtz/Tandem Stills + Motion)
 
 ![](images/2024-05/20240530_Everglades_1920x1080.jpg)
-
-#### 20240529 Eurasian otters, Loch Spelve, Isle of Mull, Scotland (© Neil Henderson/Alamy)
-
-![](images/2024-05/20240529_MullOtter_1920x1080.jpg)
-
-#### 20240528 Roussanou Monastery, Meteora, Thessaly, Greece (© Marius Roman/Getty Images)
-
-![](images/2024-05/20240528_MeteoraMonastery_1920x1080.jpg)
 
 
 

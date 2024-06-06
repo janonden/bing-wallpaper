@@ -1,3 +1,11 @@
+#### 20240606 Luftaufnahme der Rossfeld-Panoramastraße, Berchtesgaden, Deutschland (© DieterMeyrl/Getty Images)
+
+![](20240606_RossfeldRoad_1920x1080.jpg)
+
+#### 20240606 Monument Les Braves à Omaha Beach, Saint-Laurent-sur-Mer, Normandie (© Christopher Furlong/Getty Images)
+
+![](20240606_LesBravesNormandy_1920x1080.jpg)
+
 #### 20240606 オリックスの群れ, ボツワナ (© Karine Aigner/Tandem Stills + Motion)
 
 ![](20240606_GemsbokBotswana_1920x1080.jpg)
