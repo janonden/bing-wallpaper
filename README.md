@@ -2,7 +2,7 @@
 
 ![](images/2024-06/20240606_RossfeldRoad_1920x1080.jpg)
 
-#### 20240606 Monument Les Braves à Omaha Beach, Saint-Laurent-sur-Mer, Normandie (© Christopher Furlong/Getty Images)
+#### 20240606 Les Braves monument on Omaha Beach, Normandy, France (© Christopher Furlong/Getty Images)
 
 ![](images/2024-06/20240606_LesBravesNormandy_1920x1080.jpg)
 
