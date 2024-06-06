@@ -1,3 +1,7 @@
+#### 20240607 座头鲸家族，荷兰港，阿拉斯加州 (© Jude Newkirk/Amazing Aerial Agency)
+
+![](20240607_HumpbackFamily_1920x1080.jpg)
+
 #### 20240606 Luftaufnahme der Rossfeld-Panoramastraße, Berchtesgaden, Deutschland (© DieterMeyrl/Getty Images)
 
 ![](20240606_RossfeldRoad_1920x1080.jpg)

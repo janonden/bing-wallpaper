@@ -1,3 +1,7 @@
+#### 20240607 座头鲸家族，荷兰港，阿拉斯加州 (© Jude Newkirk/Amazing Aerial Agency)
+
+![](images/2024-06/20240607_HumpbackFamily_1920x1080.jpg)
+
 #### 20240606 Luftaufnahme der Rossfeld-Panoramastraße, Berchtesgaden, Deutschland (© DieterMeyrl/Getty Images)
 
 ![](images/2024-06/20240606_RossfeldRoad_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240531 Gunnerside, Swaledale, Yorkshire Dales National Park, England (© Derek Croucher/Alamy)
 
 ![](images/2024-05/20240531_YorkshireDalesNP_1920x1080.jpg)
-
-#### 20240530 A stand of slash pines and sawgrass prairie, Everglades National Park, Florida (© Jonathan Gewirtz/Tandem Stills + Motion)
-
-![](images/2024-05/20240530_Everglades_1920x1080.jpg)
 
 
 
