@@ -1,3 +1,7 @@
+#### 20240608 复活节溪和基利克河的交汇处，北极之门国家公园，阿拉斯加州，美国 (© Patrick J. Endres/Getty Images)
+
+![](images/2024-06/20240608_KillikRiverAlaska_1920x1080.jpg)
+
 #### 20240607 Family of humpback whales, Dutch Harbor, Alaska (© Jude Newkirk/Amazing Aerial Agency)
 
 ![](images/2024-06/20240607_HumpbackFamily_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240601 帝王棕榈树，里约热内卢植物园，巴西 (© Marcia Silva de Mendonca/Getty Images)
 
 ![](images/2024-06/20240601_CancaoDoExilio_1920x1080.jpg)
-
-#### 20240531 Gunnerside, Swaledale, Yorkshire Dales National Park, England (© Derek Croucher/Alamy)
-
-![](images/2024-05/20240531_YorkshireDalesNP_1920x1080.jpg)
 
 
 
