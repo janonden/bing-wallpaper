@@ -1,4 +1,4 @@
-#### 20240608 复活节溪和基利克河的交汇处，北极之门国家公园，阿拉斯加州，美国 (© Patrick J. Endres/Getty Images)
+#### 20240608 Confluence of Easter Creek and Killik River, Gates of the Arctic National Park, Alaska (© Patrick J. Endres/Getty Images)
 
 ![](images/2024-06/20240608_KillikRiverAlaska_1920x1080.jpg)
 
