@@ -1,3 +1,7 @@
+#### 20240609 巴尔德纳斯雷亚尔斯自然公园，巴德纳斯，纳瓦拉，西班牙 (© Aliaume Chapelle/Tandem Stills + Motion)
+
+![](images/2024-06/20240609_BardenasBiosphere_1920x1080.jpg)
+
 #### 20240608 Confluence of Easter Creek and Killik River, Gates of the Arctic National Park, Alaska (© Patrick J. Endres/Getty Images)
 
 ![](images/2024-06/20240608_KillikRiverAlaska_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240602 Female Anna's hummingbird, Canada (© Devonyu/iStock/Getty Images)
 
 ![](images/2024-06/20240602_Annahummingbird_1920x1080.jpg)
-
-#### 20240601 San Francisco City Hall lit up in rainbow lights for Pride, California (© Josh Edelson/AFP via Getty Images)
-
-![](images/2024-06/20240601_PrideMonthSF_1920x1080.jpg)
 
 
 

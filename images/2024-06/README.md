@@ -1,3 +1,7 @@
+#### 20240609 巴尔德纳斯雷亚尔斯自然公园，巴德纳斯，纳瓦拉，西班牙 (© Aliaume Chapelle/Tandem Stills + Motion)
+
+![](20240609_BardenasBiosphere_1920x1080.jpg)
+
 #### 20240608 Confluence of Easter Creek and Killik River, Gates of the Arctic National Park, Alaska (© Patrick J. Endres/Getty Images)
 
 ![](20240608_KillikRiverAlaska_1920x1080.jpg)
