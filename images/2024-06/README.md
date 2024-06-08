@@ -2,6 +2,10 @@
 
 ![](20240608_KillikRiverAlaska_1920x1080.jpg)
 
+#### 20240608 Skyline of Downtown Montreal, Quebec, Canada (© benedek/E+/Getty Images)
+
+![](20240608_CanadianGP_1920x1080.jpg)
+
 #### 20240607 Family of humpback whales, Dutch Harbor, Alaska (© Jude Newkirk/Amazing Aerial Agency)
 
 ![](20240607_HumpbackFamily_1920x1080.jpg)

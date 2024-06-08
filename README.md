@@ -2,6 +2,10 @@
 
 ![](images/2024-06/20240608_KillikRiverAlaska_1920x1080.jpg)
 
+#### 20240608 Skyline of Downtown Montreal, Quebec, Canada (© benedek/E+/Getty Images)
+
+![](images/2024-06/20240608_CanadianGP_1920x1080.jpg)
+
 #### 20240607 Family of humpback whales, Dutch Harbor, Alaska (© Jude Newkirk/Amazing Aerial Agency)
 
 ![](images/2024-06/20240607_HumpbackFamily_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240601 San Francisco City Hall lit up in rainbow lights for Pride, California (© Josh Edelson/AFP via Getty Images)
 
 ![](images/2024-06/20240601_PrideMonthSF_1920x1080.jpg)
-
-#### 20240601 帝王棕榈树，里约热内卢植物园，巴西 (© Marcia Silva de Mendonca/Getty Images)
-
-![](images/2024-06/20240601_CancaoDoExilio_1920x1080.jpg)
 
 
 
