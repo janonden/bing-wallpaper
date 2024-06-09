@@ -1,3 +1,11 @@
+#### 20240610 大阪湾方面から見た大阪湾岸, 大阪府 大阪市 (© wichianduangsri/Getty Images)
+
+![](20240610_OsakaNight_1920x1080.jpg)
+
+#### 20240610 龙舟池日出，集美区，厦门，中国 (© outcast85/Getty images)
+
+![](20240610_DragonBoatFestival_1920x1080.jpg)
+
 #### 20240609 Kloster Kamp mit Terrassengarten und Klosterbarockgarten, Kamp-Lintfort, Niederrhein (© Hans Blossey/Alamy)
 
 ![](20240609_KlosterKamp_1920x1080.jpg)
