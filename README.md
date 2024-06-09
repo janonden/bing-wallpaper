@@ -1,3 +1,7 @@
+#### 20240609 Kloster Kamp mit Terrassengarten und Klosterbarockgarten, Kamp-Lintfort, Niederrhein (© Hans Blossey/Alamy)
+
+![](images/2024-06/20240609_KlosterKamp_1920x1080.jpg)
+
 #### 20240609 巴尔德纳斯雷亚尔斯自然公园，巴德纳斯，纳瓦拉，西班牙 (© Aliaume Chapelle/Tandem Stills + Motion)
 
 ![](images/2024-06/20240609_BardenasBiosphere_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240602 Flowers blooming in a garden, Alaska (© jet 67/Shutterstock)
 
 ![](images/2024-06/20240602_GardenWeek_1920x1080.jpg)
-
-#### 20240602 Female Anna's hummingbird, Canada (© Devonyu/iStock/Getty Images)
-
-![](images/2024-06/20240602_Annahummingbird_1920x1080.jpg)
 
 
 
