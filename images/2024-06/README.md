@@ -1,3 +1,7 @@
+#### 20240611 アジサイ, 神奈川県 鎌倉市 (© baphotte/Getty Images)
+
+![](20240611_Ajisai_1920x1080.jpg)
+
 #### 20240610 Osaka at night, Japan (© wichianduangsri/Getty Images)
 
 ![](20240610_OsakaNight_1920x1080.jpg)

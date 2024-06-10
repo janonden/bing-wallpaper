@@ -1,3 +1,7 @@
+#### 20240611 アジサイ, 神奈川県 鎌倉市 (© baphotte/Getty Images)
+
+![](images/2024-06/20240611_Ajisai_1920x1080.jpg)
+
 #### 20240610 Osaka at night, Japan (© wichianduangsri/Getty Images)
 
 ![](images/2024-06/20240610_OsakaNight_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240603 Bicycles in Copenhagen, Denmark (© Alphotographic/Getty Images)
 
 ![](images/2024-06/20240603_CopenhagenBicycles_1920x1080.jpg)
-
-#### 20240602 みなとみらい 21 地区, 神奈川県 横浜市 (© SeanPavonePhoto/Getty Images)
-
-![](images/2024-06/20240602_YokohamaPort_1920x1080.jpg)
 
 
 
