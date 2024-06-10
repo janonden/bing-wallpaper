@@ -1,4 +1,4 @@
-#### 20240610 大阪湾方面から見た大阪湾岸, 大阪府 大阪市 (© wichianduangsri/Getty Images)
+#### 20240610 Osaka at night, Japan (© wichianduangsri/Getty Images)
 
 ![](images/2024-06/20240610_OsakaNight_1920x1080.jpg)
 
