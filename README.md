@@ -38,7 +38,7 @@
 
 ![](images/2024-06/20240606_LesBravesNormandy_1920x1080.jpg)
 
-#### 20240606 オリックスの群れ, ボツワナ (© Karine Aigner/Tandem Stills + Motion)
+#### 20240606 Southern gemsbok in the savanna, Botswana (© Karine Aigner/Tandem Stills + Motion)
 
 ![](images/2024-06/20240606_GemsbokBotswana_1920x1080.jpg)
 
