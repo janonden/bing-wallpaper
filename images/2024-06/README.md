@@ -1,3 +1,7 @@
+#### 20240612 大弯国家公园上空的银河，得克萨斯州，美国 (© wisanuboonrawd/Adobe Stock)
+
+![](20240612_BigBendMilkyWay_1920x1080.jpg)
+
 #### 20240611 アジサイ, 神奈川県 鎌倉市 (© baphotte/Getty Images)
 
 ![](20240611_Ajisai_1920x1080.jpg)

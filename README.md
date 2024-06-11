@@ -1,3 +1,7 @@
+#### 20240612 大弯国家公园上空的银河，得克萨斯州，美国 (© wisanuboonrawd/Adobe Stock)
+
+![](images/2024-06/20240612_BigBendMilkyWay_1920x1080.jpg)
+
 #### 20240611 アジサイ, 神奈川県 鎌倉市 (© baphotte/Getty Images)
 
 ![](images/2024-06/20240611_Ajisai_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240604 Chestnut-headed bee-eaters, Bardia National Park, Nepal (© PACO COMO/Shutterstock)
 
 ![](images/2024-06/20240604_ChestnutBeeEater_1920x1080.jpg)
-
-#### 20240603 Bicycles in Copenhagen, Denmark (© Alphotographic/Getty Images)
-
-![](images/2024-06/20240603_CopenhagenBicycles_1920x1080.jpg)
 
 
 
