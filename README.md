@@ -1,3 +1,7 @@
+#### 20240613 雷吉斯坦广场的外立面马赛克，撒马尔罕，乌兹别克斯坦撒 (© da-kuk/Getty Images)
+
+![](images/2024-06/20240613_RegistanUzbekistan_1920x1080.jpg)
+
 #### 20240612 Milky Way over Big Bend National Park, Texas (© wisanuboonrawd/Adobe Stock)
 
 ![](images/2024-06/20240612_BigBendMilkyWay_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240605 Masoala National Park in Madagascar (© Dennis van de Water/Shutterstock)
 
 ![](images/2024-06/20240605_MadagascarRiver_1920x1080.jpg)
-
-#### 20240604 Chestnut-headed bee-eaters, Bardia National Park, Nepal (© PACO COMO/Shutterstock)
-
-![](images/2024-06/20240604_ChestnutBeeEater_1920x1080.jpg)
 
 
 
