@@ -1,3 +1,11 @@
+#### 20240614 佩姬湾灯塔，新斯科舍省，加拿大 (© Pugalenthi/Getty Images)
+
+![](20240614_PeggysCove_1920x1080.jpg)
+
+#### 20240614 首都ダッカの鳥瞰図, バングラデシュ (© Azim Khan Ronnie/Amazing Aerial Agency)
+
+![](20240614_DhakaBangladesh_1920x1080.jpg)
+
 #### 20240613 Mosaic façade in Registan Square, Samarkand, Uzbekistan (© da-kuk/Getty Images)
 
 ![](20240613_RegistanUzbekistan_1920x1080.jpg)

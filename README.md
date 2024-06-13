@@ -1,3 +1,11 @@
+#### 20240614 佩姬湾灯塔，新斯科舍省，加拿大 (© Pugalenthi/Getty Images)
+
+![](images/2024-06/20240614_PeggysCove_1920x1080.jpg)
+
+#### 20240614 首都ダッカの鳥瞰図, バングラデシュ (© Azim Khan Ronnie/Amazing Aerial Agency)
+
+![](images/2024-06/20240614_DhakaBangladesh_1920x1080.jpg)
+
 #### 20240613 Mosaic façade in Registan Square, Samarkand, Uzbekistan (© da-kuk/Getty Images)
 
 ![](images/2024-06/20240613_RegistanUzbekistan_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20240606 Southern gemsbok in the savanna, Botswana (© Karine Aigner/Tandem Stills + Motion)
 
 ![](images/2024-06/20240606_GemsbokBotswana_1920x1080.jpg)
-
-#### 20240606 蓬德高鸟类公园的大红鹳，卡玛格，法国 (© Yann Guichaoua-Photos/Getty Images)
-
-![](images/2024-06/20240606_CamargueFlamingos_1920x1080.jpg)
-
-#### 20240605 Masoala National Park in Madagascar (© Dennis van de Water/Shutterstock)
-
-![](images/2024-06/20240605_MadagascarRiver_1920x1080.jpg)
 
 
 
