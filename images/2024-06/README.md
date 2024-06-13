@@ -1,4 +1,4 @@
-#### 20240613 雷吉斯坦广场的外立面马赛克，撒马尔罕，乌兹别克斯坦撒 (© da-kuk/Getty Images)
+#### 20240613 Mosaic façade in Registan Square, Samarkand, Uzbekistan (© da-kuk/Getty Images)
 
 ![](20240613_RegistanUzbekistan_1920x1080.jpg)
 
