@@ -2,6 +2,10 @@
 
 ![](20240614_PeggysCove_1920x1080.jpg)
 
+#### 20240614 Flag display at the Washington Monument, Washington, DC  (© tristanbnz/Adobe Stock)
+
+![](20240614_FlagsDC_1920x1080.jpg)
+
 #### 20240614 首都ダッカの鳥瞰図, バングラデシュ (© Azim Khan Ronnie/Amazing Aerial Agency)
 
 ![](20240614_DhakaBangladesh_1920x1080.jpg)

@@ -2,6 +2,10 @@
 
 ![](images/2024-06/20240614_PeggysCove_1920x1080.jpg)
 
+#### 20240614 Flag display at the Washington Monument, Washington, DC  (© tristanbnz/Adobe Stock)
+
+![](images/2024-06/20240614_FlagsDC_1920x1080.jpg)
+
 #### 20240614 首都ダッカの鳥瞰図, バングラデシュ (© Azim Khan Ronnie/Amazing Aerial Agency)
 
 ![](images/2024-06/20240614_DhakaBangladesh_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240606 Les Braves monument on Omaha Beach, Normandy, France (© Christopher Furlong/Getty Images)
 
 ![](images/2024-06/20240606_LesBravesNormandy_1920x1080.jpg)
-
-#### 20240606 Southern gemsbok in the savanna, Botswana (© Karine Aigner/Tandem Stills + Motion)
-
-![](images/2024-06/20240606_GemsbokBotswana_1920x1080.jpg)
 
 
 
