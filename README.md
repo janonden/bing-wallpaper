@@ -1,3 +1,7 @@
+#### 20240615 在纳扎雷冲浪的冲浪者，葡萄牙 (© Rui Caria/Getty Images)
+
+![](images/2024-06/20240615_NazareWave_1920x1080.jpg)
+
 #### 20240614 佩姬湾灯塔，新斯科舍省，加拿大 (© Pugalenthi/Getty Images)
 
 ![](images/2024-06/20240614_PeggysCove_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240606 Luftaufnahme der Rossfeld-Panoramastraße, Berchtesgaden, Deutschland (© DieterMeyrl/Getty Images)
 
 ![](images/2024-06/20240606_RossfeldRoad_1920x1080.jpg)
-
-#### 20240606 Les Braves monument on Omaha Beach, Normandy, France (© Christopher Furlong/Getty Images)
-
-![](images/2024-06/20240606_LesBravesNormandy_1920x1080.jpg)
 
 
 

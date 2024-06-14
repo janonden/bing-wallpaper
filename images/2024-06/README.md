@@ -1,3 +1,7 @@
+#### 20240615 在纳扎雷冲浪的冲浪者，葡萄牙 (© Rui Caria/Getty Images)
+
+![](20240615_NazareWave_1920x1080.jpg)
+
 #### 20240614 佩姬湾灯塔，新斯科舍省，加拿大 (© Pugalenthi/Getty Images)
 
 ![](20240614_PeggysCove_1920x1080.jpg)
