@@ -1,3 +1,7 @@
+#### 20240616 赤狐父子，华盛顿，美国 (© Chase Dekker/Minden Pictures)
+
+![](20240616_RedFoxDad_1920x1080.jpg)
+
 #### 20240615 Surfer riding a wave in Nazaré, Portugal (© Rui Caria/Getty Images)
 
 ![](20240615_NazareWave_1920x1080.jpg)

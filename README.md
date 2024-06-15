@@ -1,3 +1,7 @@
+#### 20240616 赤狐父子，华盛顿，美国 (© Chase Dekker/Minden Pictures)
+
+![](images/2024-06/20240616_RedFoxDad_1920x1080.jpg)
+
 #### 20240615 Surfer riding a wave in Nazaré, Portugal (© Rui Caria/Getty Images)
 
 ![](images/2024-06/20240615_NazareWave_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240607 Family of humpback whales, Dutch Harbor, Alaska (© Jude Newkirk/Amazing Aerial Agency)
 
 ![](images/2024-06/20240607_HumpbackFamily_1920x1080.jpg)
-
-#### 20240606 Luftaufnahme der Rossfeld-Panoramastraße, Berchtesgaden, Deutschland (© DieterMeyrl/Getty Images)
-
-![](images/2024-06/20240606_RossfeldRoad_1920x1080.jpg)
 
 
 
