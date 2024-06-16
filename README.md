@@ -1,3 +1,7 @@
+#### 20240617 绿顶辉蜂鸟与巨型蓟，穆埃尔特山，哥斯达黎加 (© adrian hepworth/Alamy Stock Photo)
+
+![](images/2024-06/20240617_HummingThistle_1920x1080.jpg)
+
 #### 20240616 Ruinenberg, ein Hügel im Potsdamer Stadtteil Bornstedt (© Sabina Berezina/Getty Images)
 
 ![](images/2024-06/20240616_Ruinenberg_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240608 Confluence of Easter Creek and Killik River, Gates of the Arctic National Park, Alaska (© Patrick J. Endres/Getty Images)
 
 ![](images/2024-06/20240608_KillikRiverAlaska_1920x1080.jpg)
-
-#### 20240608 Skyline of Downtown Montreal, Quebec, Canada (© benedek/E+/Getty Images)
-
-![](images/2024-06/20240608_CanadianGP_1920x1080.jpg)
 
 
 

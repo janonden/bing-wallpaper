@@ -1,3 +1,7 @@
+#### 20240617 绿顶辉蜂鸟与巨型蓟，穆埃尔特山，哥斯达黎加 (© adrian hepworth/Alamy Stock Photo)
+
+![](20240617_HummingThistle_1920x1080.jpg)
+
 #### 20240616 Ruinenberg, ein Hügel im Potsdamer Stadtteil Bornstedt (© Sabina Berezina/Getty Images)
 
 ![](20240616_Ruinenberg_1920x1080.jpg)
