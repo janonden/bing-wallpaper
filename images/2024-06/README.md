@@ -1,3 +1,7 @@
+#### 20240616 Ruinenberg, ein Hügel im Potsdamer Stadtteil Bornstedt (© Sabina Berezina/Getty Images)
+
+![](20240616_Ruinenberg_1920x1080.jpg)
+
 #### 20240616 赤狐父子，华盛顿，美国 (© Chase Dekker/Minden Pictures)
 
 ![](20240616_RedFoxDad_1920x1080.jpg)

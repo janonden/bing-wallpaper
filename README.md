@@ -1,3 +1,7 @@
+#### 20240616 Ruinenberg, ein Hügel im Potsdamer Stadtteil Bornstedt (© Sabina Berezina/Getty Images)
+
+![](images/2024-06/20240616_Ruinenberg_1920x1080.jpg)
+
 #### 20240616 赤狐父子，华盛顿，美国 (© Chase Dekker/Minden Pictures)
 
 ![](images/2024-06/20240616_RedFoxDad_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240608 Skyline of Downtown Montreal, Quebec, Canada (© benedek/E+/Getty Images)
 
 ![](images/2024-06/20240608_CanadianGP_1920x1080.jpg)
-
-#### 20240607 Family of humpback whales, Dutch Harbor, Alaska (© Jude Newkirk/Amazing Aerial Agency)
-
-![](images/2024-06/20240607_HumpbackFamily_1920x1080.jpg)
 
 
 
