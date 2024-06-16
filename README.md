@@ -2,7 +2,7 @@
 
 ![](images/2024-06/20240616_Ruinenberg_1920x1080.jpg)
 
-#### 20240616 赤狐父子，华盛顿，美国 (© Chase Dekker/Minden Pictures)
+#### 20240616 Red fox father and kit, Washington (© Chase Dekker/Minden Pictures)
 
 ![](images/2024-06/20240616_RedFoxDad_1920x1080.jpg)
 
