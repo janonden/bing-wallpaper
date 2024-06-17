@@ -1,3 +1,7 @@
+#### 20240618 日出时的羽扇豆田和教堂，斯奈山半岛，冰岛 (© Matteo Colombo/Getty Images)
+
+![](images/2024-06/20240618_LupinIceland_1920x1080.jpg)
+
 #### 20240617 Green-crowned brilliant hummingbird with giant thistle, Cerro de la Muerte, Costa Rica (© adrian hepworth/Alamy)
 
 ![](images/2024-06/20240617_HummingThistle_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240610 龙舟池日出，集美区，厦门，中国 (© outcast85/Getty images)
 
 ![](images/2024-06/20240610_DragonBoatFestival_1920x1080.jpg)
-
-#### 20240609 Kloster Kamp mit Terrassengarten und Klosterbarockgarten, Kamp-Lintfort, Niederrhein (© Hans Blossey/Alamy)
-
-![](images/2024-06/20240609_KlosterKamp_1920x1080.jpg)
 
 
 
