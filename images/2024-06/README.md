@@ -1,4 +1,4 @@
-#### 20240617 绿顶辉蜂鸟与巨型蓟，穆埃尔特山，哥斯达黎加 (© adrian hepworth/Alamy Stock Photo)
+#### 20240617 Green-crowned brilliant hummingbird with giant thistle, Cerro de la Muerte, Costa Rica (© adrian hepworth/Alamy)
 
 ![](20240617_HummingThistle_1920x1080.jpg)
 
@@ -30,7 +30,7 @@
 
 ![](20240614_DhakaBangladesh_1920x1080.jpg)
 
-#### 20240613 Mosaic façade in Registan Square, Samarkand, Uzbekistan (© da-kuk/Getty Images)
+#### 20240613 Mosaic façade in the Registan, Samarkand, Uzbekistan (© da-kuk/Getty Images)
 
 ![](20240613_RegistanUzbekistan_1920x1080.jpg)
 
@@ -38,7 +38,7 @@
 
 ![](20240612_BigBendMilkyWay_1920x1080.jpg)
 
-#### 20240611 Southern gemsbok in the savanna, Botswana (© Karine Aigner/Tandem Stills + Motion)
+#### 20240611 Gemsbok in the savanna, Botswana (© Karine Aigner/Tandem Stills + Motion)
 
 ![](20240611_GemsbokBotswana_1920x1080.jpg)
 
