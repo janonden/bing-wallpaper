@@ -38,6 +38,10 @@
 
 ![](20240612_BigBendMilkyWay_1920x1080.jpg)
 
+#### 20240611 Southern gemsbok in the savanna, Botswana (© Karine Aigner/Tandem Stills + Motion)
+
+![](20240611_GemsbokBotswana_1920x1080.jpg)
+
 #### 20240611 アジサイ, 神奈川県 鎌倉市 (© baphotte/Getty Images)
 
 ![](20240611_Ajisai_1920x1080.jpg)

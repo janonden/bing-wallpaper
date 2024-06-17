@@ -38,6 +38,10 @@
 
 ![](images/2024-06/20240612_BigBendMilkyWay_1920x1080.jpg)
 
+#### 20240611 Southern gemsbok in the savanna, Botswana (© Karine Aigner/Tandem Stills + Motion)
+
+![](images/2024-06/20240611_GemsbokBotswana_1920x1080.jpg)
+
 #### 20240611 アジサイ, 神奈川県 鎌倉市 (© baphotte/Getty Images)
 
 ![](images/2024-06/20240611_Ajisai_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240609 Kloster Kamp mit Terrassengarten und Klosterbarockgarten, Kamp-Lintfort, Niederrhein (© Hans Blossey/Alamy)
 
 ![](images/2024-06/20240609_KlosterKamp_1920x1080.jpg)
-
-#### 20240609 Bardenas Reales Biosphere Reserve and Natural Park, Bardenas, Navarra, Spain (© Aliaume Chapelle/Tandem Stills + Motion)
-
-![](images/2024-06/20240609_BardenasBiosphere_1920x1080.jpg)
 
 
 
