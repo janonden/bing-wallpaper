@@ -2,6 +2,10 @@
 
 ![](images/2024-06/20240617_HummingThistle_1920x1080.jpg)
 
+#### 20240617 Fort Cigogne, archipel des Glénans, Bretagne (© Gerard SIOEN/Getty Images)
+
+![](images/2024-06/20240617_FortCigogne_1920x1080.jpg)
+
 #### 20240616 Ruinenberg, ein Hügel im Potsdamer Stadtteil Bornstedt (© Sabina Berezina/Getty Images)
 
 ![](images/2024-06/20240616_Ruinenberg_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240609 Bardenas Reales Biosphere Reserve and Natural Park, Bardenas, Navarra, Spain (© Aliaume Chapelle/Tandem Stills + Motion)
 
 ![](images/2024-06/20240609_BardenasBiosphere_1920x1080.jpg)
-
-#### 20240608 Confluence of Easter Creek and Killik River, Gates of the Arctic National Park, Alaska (© Patrick J. Endres/Getty Images)
-
-![](images/2024-06/20240608_KillikRiverAlaska_1920x1080.jpg)
 
 
 

@@ -2,6 +2,10 @@
 
 ![](20240617_HummingThistle_1920x1080.jpg)
 
+#### 20240617 Fort Cigogne, archipel des Glénans, Bretagne (© Gerard SIOEN/Getty Images)
+
+![](20240617_FortCigogne_1920x1080.jpg)
+
 #### 20240616 Ruinenberg, ein Hügel im Potsdamer Stadtteil Bornstedt (© Sabina Berezina/Getty Images)
 
 ![](20240616_Ruinenberg_1920x1080.jpg)
