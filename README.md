@@ -1,3 +1,11 @@
+#### 20240619 サンタ・マリア・デル・フィオーレ大聖堂, イタリア (© Elena Pueyo/Getty Images)
+
+![](images/2024-06/20240619_FlorenceDuomo_1920x1080.jpg)
+
+#### 20240619 库克斯港的水塔，德国 (© Andreas Vogel/Alamy)
+
+![](images/2024-06/20240619_CuxhavenTower_1920x1080.jpg)
+
 #### 20240618 Lupine fields and church at sunrise, Snæfellsnes Peninsula, Iceland (© Matteo Colombo/Getty Images)
 
 ![](images/2024-06/20240618_LupinIceland_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20240611 アジサイ, 神奈川県 鎌倉市 (© baphotte/Getty Images)
 
 ![](images/2024-06/20240611_Ajisai_1920x1080.jpg)
-
-#### 20240610 Osaka at night, Japan (© wichianduangsri/Getty Images)
-
-![](images/2024-06/20240610_OsakaNight_1920x1080.jpg)
-
-#### 20240610 龙舟池日出，集美区，厦门，中国 (© outcast85/Getty images)
-
-![](images/2024-06/20240610_DragonBoatFestival_1920x1080.jpg)
 
 
 

@@ -1,3 +1,11 @@
+#### 20240619 サンタ・マリア・デル・フィオーレ大聖堂, イタリア (© Elena Pueyo/Getty Images)
+
+![](20240619_FlorenceDuomo_1920x1080.jpg)
+
+#### 20240619 库克斯港的水塔，德国 (© Andreas Vogel/Alamy)
+
+![](20240619_CuxhavenTower_1920x1080.jpg)
+
 #### 20240618 Lupine fields and church at sunrise, Snæfellsnes Peninsula, Iceland (© Matteo Colombo/Getty Images)
 
 ![](20240618_LupinIceland_1920x1080.jpg)
