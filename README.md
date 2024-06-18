@@ -1,4 +1,4 @@
-#### 20240618 日出时的羽扇豆田和教堂，斯奈山半岛，冰岛 (© Matteo Colombo/Getty Images)
+#### 20240618 Lupine fields and church at sunrise, Snæfellsnes Peninsula, Iceland (© Matteo Colombo/Getty Images)
 
 ![](images/2024-06/20240618_LupinIceland_1920x1080.jpg)
 
