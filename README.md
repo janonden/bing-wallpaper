@@ -2,6 +2,10 @@
 
 ![](images/2024-06/20240619_LewaGiraffe_1920x1080.jpg)
 
+#### 20240619 Jacob Lawrence's mosaic 'Community,' Joseph P. Addabbo Federal Building, Jamaica, Queens, New York (© Alpha Stock/Alamy)
+
+![](images/2024-06/20240619_LawrenceMosaic_1920x1080.jpg)
+
 #### 20240619 サンタ・マリア・デル・フィオーレ大聖堂, イタリア (© Elena Pueyo/Getty Images)
 
 ![](images/2024-06/20240619_FlorenceDuomo_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240612 Milky Way over Big Bend National Park, Texas (© wisanuboonrawd/Adobe Stock)
 
 ![](images/2024-06/20240612_BigBendMilkyWay_1920x1080.jpg)
-
-#### 20240611 Gemsbok in the savanna, Botswana (© Karine Aigner/Tandem Stills + Motion)
-
-![](images/2024-06/20240611_GemsbokBotswana_1920x1080.jpg)
 
 
 

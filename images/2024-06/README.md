@@ -2,6 +2,10 @@
 
 ![](20240619_LewaGiraffe_1920x1080.jpg)
 
+#### 20240619 Jacob Lawrence's mosaic 'Community,' Joseph P. Addabbo Federal Building, Jamaica, Queens, New York (© Alpha Stock/Alamy)
+
+![](20240619_LawrenceMosaic_1920x1080.jpg)
+
 #### 20240619 サンタ・マリア・デル・フィオーレ大聖堂, イタリア (© Elena Pueyo/Getty Images)
 
 ![](20240619_FlorenceDuomo_1920x1080.jpg)
