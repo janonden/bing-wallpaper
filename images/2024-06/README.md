@@ -1,3 +1,7 @@
+#### 20240619 Reticulated giraffe mother greeting calf, Lewa Wildlife Conservancy, Kenya (© Sean Crane/Minden Pictures)
+
+![](20240619_LewaGiraffe_1920x1080.jpg)
+
 #### 20240619 サンタ・マリア・デル・フィオーレ大聖堂, イタリア (© Elena Pueyo/Getty Images)
 
 ![](20240619_FlorenceDuomo_1920x1080.jpg)

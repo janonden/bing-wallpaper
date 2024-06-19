@@ -1,3 +1,7 @@
+#### 20240619 Reticulated giraffe mother greeting calf, Lewa Wildlife Conservancy, Kenya (© Sean Crane/Minden Pictures)
+
+![](images/2024-06/20240619_LewaGiraffe_1920x1080.jpg)
+
 #### 20240619 サンタ・マリア・デル・フィオーレ大聖堂, イタリア (© Elena Pueyo/Getty Images)
 
 ![](images/2024-06/20240619_FlorenceDuomo_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240611 Gemsbok in the savanna, Botswana (© Karine Aigner/Tandem Stills + Motion)
 
 ![](images/2024-06/20240611_GemsbokBotswana_1920x1080.jpg)
-
-#### 20240611 アジサイ, 神奈川県 鎌倉市 (© baphotte/Getty Images)
-
-![](images/2024-06/20240611_Ajisai_1920x1080.jpg)
 
 
 
