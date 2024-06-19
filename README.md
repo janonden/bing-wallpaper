@@ -1,3 +1,7 @@
+#### 20240620 科基诺，古代巨石观测站，北马其顿 (© stoimilov/Shutterstock)
+
+![](images/2024-06/20240620_KokinoMacedonia_1920x1080.jpg)
+
 #### 20240619 Reticulated giraffe mother greeting calf, Lewa Wildlife Conservancy, Kenya (© Sean Crane/Minden Pictures)
 
 ![](images/2024-06/20240619_LewaGiraffe_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240613 Mosaic façade in the Registan, Samarkand, Uzbekistan (© da-kuk/Getty Images)
 
 ![](images/2024-06/20240613_RegistanUzbekistan_1920x1080.jpg)
-
-#### 20240612 Milky Way over Big Bend National Park, Texas (© wisanuboonrawd/Adobe Stock)
-
-![](images/2024-06/20240612_BigBendMilkyWay_1920x1080.jpg)
 
 
 

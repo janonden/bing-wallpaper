@@ -1,3 +1,7 @@
+#### 20240620 科基诺，古代巨石观测站，北马其顿 (© stoimilov/Shutterstock)
+
+![](20240620_KokinoMacedonia_1920x1080.jpg)
+
 #### 20240619 Reticulated giraffe mother greeting calf, Lewa Wildlife Conservancy, Kenya (© Sean Crane/Minden Pictures)
 
 ![](20240619_LewaGiraffe_1920x1080.jpg)
