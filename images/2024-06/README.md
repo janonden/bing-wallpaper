@@ -1,4 +1,4 @@
-#### 20240620 科基诺，古代巨石观测站，北马其顿 (© stoimilov/Shutterstock)
+#### 20240620 Kokino, an ancient megalithic observatory, North Macedonia (© stoimilov/Shutterstock)
 
 ![](20240620_KokinoMacedonia_1920x1080.jpg)
 
