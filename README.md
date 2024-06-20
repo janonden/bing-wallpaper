@@ -1,3 +1,7 @@
+#### 20240621 蓝色水面上的渔船航拍图，郴州市，湖南省，中国 (© Haitong Yu/Getty images)
+
+![](images/2024-06/20240621_SummerSolstice_1920x1080.jpg)
+
 #### 20240620 Kokino, an ancient megalithic observatory, North Macedonia (© stoimilov/Shutterstock)
 
 ![](images/2024-06/20240620_KokinoMacedonia_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240614 首都ダッカの鳥瞰図, バングラデシュ (© Azim Khan Ronnie/Amazing Aerial Agency)
 
 ![](images/2024-06/20240614_DhakaBangladesh_1920x1080.jpg)
-
-#### 20240613 Mosaic façade in the Registan, Samarkand, Uzbekistan (© da-kuk/Getty Images)
-
-![](images/2024-06/20240613_RegistanUzbekistan_1920x1080.jpg)
 
 
 
