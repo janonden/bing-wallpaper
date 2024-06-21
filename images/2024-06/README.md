@@ -2,6 +2,10 @@
 
 ![](20240621_SummerSolstice_1920x1080.jpg)
 
+#### 20240621 Pont-Neuf à Toulouse (© benkrut/Getty Images)
+
+![](20240621_MusicDayToulouse_1920x1080.jpg)
+
 #### 20240620 Kokino, an ancient megalithic observatory, North Macedonia (© stoimilov/Shutterstock)
 
 ![](20240620_KokinoMacedonia_1920x1080.jpg)
