@@ -6,6 +6,10 @@
 
 ![](images/2024-06/20240621_MusicDayToulouse_1920x1080.jpg)
 
+#### 20240621 Interior exhibits of the Canadian Museum of History (© Inspired By Maps/Shutterstock)
+
+![](images/2024-06/20240621_IndPeopleDay_1920x1080.jpg)
+
 #### 20240620 Kokino, an ancient megalithic observatory, North Macedonia (© stoimilov/Shutterstock)
 
 ![](images/2024-06/20240620_KokinoMacedonia_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240614 佩姬湾灯塔，新斯科舍省，加拿大 (© Pugalenthi/Getty Images)
 
 ![](images/2024-06/20240614_PeggysCove_1920x1080.jpg)
-
-#### 20240614 Flag display at the Washington Monument, Washington, DC  (© tristanbnz/Adobe Stock)
-
-![](images/2024-06/20240614_FlagsDC_1920x1080.jpg)
 
 
 

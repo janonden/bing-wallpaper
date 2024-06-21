@@ -6,6 +6,10 @@
 
 ![](20240621_MusicDayToulouse_1920x1080.jpg)
 
+#### 20240621 Interior exhibits of the Canadian Museum of History (© Inspired By Maps/Shutterstock)
+
+![](20240621_IndPeopleDay_1920x1080.jpg)
+
 #### 20240620 Kokino, an ancient megalithic observatory, North Macedonia (© stoimilov/Shutterstock)
 
 ![](20240620_KokinoMacedonia_1920x1080.jpg)
