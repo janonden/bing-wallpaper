@@ -1,3 +1,7 @@
+#### 20240622 亚马逊雨林，巴西 (© Claus Meyer/plainpicture)
+
+![](images/2024-06/20240622_BrazilRainforest_1920x1080.jpg)
+
 #### 20240621 蓝色水面上的渔船航拍图，郴州市，湖南省，中国 (© Haitong Yu/Getty images)
 
 ![](images/2024-06/20240621_SummerSolstice_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240615 Surfer riding a wave in Nazaré, Portugal (© Rui Caria/Getty Images)
 
 ![](images/2024-06/20240615_NazareWave_1920x1080.jpg)
-
-#### 20240614 佩姬湾灯塔，新斯科舍省，加拿大 (© Pugalenthi/Getty Images)
-
-![](images/2024-06/20240614_PeggysCove_1920x1080.jpg)
 
 
 
