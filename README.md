@@ -1,3 +1,7 @@
+#### 20240623 湖畔に咲き誇るラベンダーと富士山, 河口湖 (© DoctorEgg/Getty Images)
+
+![](images/2024-06/20240623_Lavender_1920x1080.jpg)
+
 #### 20240622 Amazon rainforest, Brazil (© Claus Meyer/plainpicture)
 
 ![](images/2024-06/20240622_BrazilRainforest_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240616 Red fox father and kit, Washington (© Chase Dekker/Minden Pictures)
 
 ![](images/2024-06/20240616_RedFoxDad_1920x1080.jpg)
-
-#### 20240615 Surfer riding a wave in Nazaré, Portugal (© Rui Caria/Getty Images)
-
-![](images/2024-06/20240615_NazareWave_1920x1080.jpg)
 
 
 

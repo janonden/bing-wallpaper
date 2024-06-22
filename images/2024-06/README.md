@@ -1,3 +1,7 @@
+#### 20240623 湖畔に咲き誇るラベンダーと富士山, 河口湖 (© DoctorEgg/Getty Images)
+
+![](20240623_Lavender_1920x1080.jpg)
+
 #### 20240622 Amazon rainforest, Brazil (© Claus Meyer/plainpicture)
 
 ![](20240622_BrazilRainforest_1920x1080.jpg)
