@@ -1,4 +1,4 @@
-#### 20240622 亚马逊雨林，巴西 (© Claus Meyer/plainpicture)
+#### 20240622 Amazon rainforest, Brazil (© Claus Meyer/plainpicture)
 
 ![](20240622_BrazilRainforest_1920x1080.jpg)
 
