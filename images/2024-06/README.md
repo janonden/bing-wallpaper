@@ -70,7 +70,7 @@
 
 ![](20240614_FlagsDC_1920x1080.jpg)
 
-#### 20240614 首都ダッカの鳥瞰図, バングラデシュ (© Azim Khan Ronnie/Amazing Aerial Agency)
+#### 20240614 Aerial view of an intersection in Dhaka, Bangladesh (© Azim Khan Ronnie/Amazing Aerial Agency)
 
 ![](20240614_DhakaBangladesh_1920x1080.jpg)
 
