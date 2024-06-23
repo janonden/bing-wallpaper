@@ -1,3 +1,7 @@
+#### 20240624 克里穆图的火山口湖，弗洛勒斯岛，印度尼西亚 (© Shane P. White/Minden Pictures)
+
+![](20240624_FloresIsland_1920x1080.jpg)
+
 #### 20240623 湖畔に咲き誇るラベンダーと富士山, 河口湖 (© DoctorEgg/Getty Images)
 
 ![](20240623_Lavender_1920x1080.jpg)

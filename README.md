@@ -1,3 +1,7 @@
+#### 20240624 克里穆图的火山口湖，弗洛勒斯岛，印度尼西亚 (© Shane P. White/Minden Pictures)
+
+![](images/2024-06/20240624_FloresIsland_1920x1080.jpg)
+
 #### 20240623 湖畔に咲き誇るラベンダーと富士山, 河口湖 (© DoctorEgg/Getty Images)
 
 ![](images/2024-06/20240623_Lavender_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240616 Ruinenberg, ein Hügel im Potsdamer Stadtteil Bornstedt (© Sabina Berezina/Getty Images)
 
 ![](images/2024-06/20240616_Ruinenberg_1920x1080.jpg)
-
-#### 20240616 Red fox father and kit, Washington (© Chase Dekker/Minden Pictures)
-
-![](images/2024-06/20240616_RedFoxDad_1920x1080.jpg)
 
 
 
