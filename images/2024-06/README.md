@@ -10,6 +10,10 @@
 
 ![](20240623_Lavender_1920x1080.jpg)
 
+#### 20240623 Aerial view of an intersection in Dhaka, Bangladesh (© Azim Khan Ronnie/Amazing Aerial Agency)
+
+![](20240623_DhakaBangladesh_1920x1080.jpg)
+
 #### 20240622 Amazon rainforest, Brazil (© Claus Meyer/plainpicture)
 
 ![](20240622_BrazilRainforest_1920x1080.jpg)
