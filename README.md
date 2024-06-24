@@ -1,4 +1,4 @@
-#### 20240624 克里穆图的火山口湖，弗洛勒斯岛，印度尼西亚 (© Shane P. White/Minden Pictures)
+#### 20240624 Volcanic crater lakes on Kelimutu, Flores, Indonesia (© Shane P. White/Minden Pictures)
 
 ![](images/2024-06/20240624_FloresIsland_1920x1080.jpg)
 
