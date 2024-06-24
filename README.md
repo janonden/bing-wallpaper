@@ -1,3 +1,7 @@
+#### 20240625 火浪岩层，火焰谷州立公园，内华达州，美国 (© Clint Losee/Tandem Stills + Motion)
+
+![](images/2024-06/20240625_FireWave_1920x1080.jpg)
+
 #### 20240624 Volcanic crater lakes on Kelimutu, Flores, Indonesia (© Shane P. White/Minden Pictures)
 
 ![](images/2024-06/20240624_FloresIsland_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240617 Fort Cigogne, archipel des Glénans, Bretagne (© Gerard SIOEN/Getty Images)
 
 ![](images/2024-06/20240617_FortCigogne_1920x1080.jpg)
-
-#### 20240616 Ruinenberg, ein Hügel im Potsdamer Stadtteil Bornstedt (© Sabina Berezina/Getty Images)
-
-![](images/2024-06/20240616_Ruinenberg_1920x1080.jpg)
 
 
 

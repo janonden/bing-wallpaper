@@ -1,3 +1,7 @@
+#### 20240625 火浪岩层，火焰谷州立公园，内华达州，美国 (© Clint Losee/Tandem Stills + Motion)
+
+![](20240625_FireWave_1920x1080.jpg)
+
 #### 20240624 Volcanic crater lakes on Kelimutu, Flores, Indonesia (© Shane P. White/Minden Pictures)
 
 ![](20240624_FloresIsland_1920x1080.jpg)
