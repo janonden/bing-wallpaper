@@ -1,4 +1,4 @@
-#### 20240625 火浪岩层，火焰谷州立公园，内华达州，美国 (© Clint Losee/Tandem Stills + Motion)
+#### 20240625 Fire Wave, a rock formation in Valley of Fire State Park, Nevada (© Clint Losee/Tandem Stills + Motion)
 
 ![](images/2024-06/20240625_FireWave_1920x1080.jpg)
 
