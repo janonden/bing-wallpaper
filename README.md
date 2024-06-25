@@ -1,3 +1,11 @@
+#### 20240626 ペヴリル城, イングランド (© James Osmond/Alamy)
+
+![](images/2024-06/20240626_SpringCaveDale_1920x1080.jpg)
+
+#### 20240626 考氏鳍竺鲷与海葵，蓝碧海峡，北苏拉威西，印度尼西亚 (© Constantinos Petrinos/NPL/Minden Pictures)
+
+![](images/2024-06/20240626_CardinalfishAnemone_1920x1080.jpg)
+
 #### 20240625 Fire Wave, a rock formation in Valley of Fire State Park, Nevada (© Clint Losee/Tandem Stills + Motion)
 
 ![](images/2024-06/20240625_FireWave_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20240619 库克斯港的水塔，德国 (© Andreas Vogel/Alamy)
 
 ![](images/2024-06/20240619_CuxhavenTower_1920x1080.jpg)
-
-#### 20240618 Lupine fields and church at sunrise, Snæfellsnes Peninsula, Iceland (© Matteo Colombo/Getty Images)
-
-![](images/2024-06/20240618_LupinIceland_1920x1080.jpg)
-
-#### 20240617 Green-crowned brilliant hummingbird with giant thistle, Cerro de la Muerte, Costa Rica (© adrian hepworth/Alamy)
-
-![](images/2024-06/20240617_HummingThistle_1920x1080.jpg)
 
 
 
