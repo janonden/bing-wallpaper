@@ -1,3 +1,7 @@
+#### 20240627 菖蒲, 山形県 長井市 (© gyro/Getty Images)
+
+![](20240627_Ayame_1920x1080.jpg)
+
 #### 20240626 ペヴリル城, イングランド (© James Osmond/Alamy)
 
 ![](20240626_SpringCaveDale_1920x1080.jpg)

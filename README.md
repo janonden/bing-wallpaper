@@ -1,3 +1,7 @@
+#### 20240627 菖蒲, 山形県 長井市 (© gyro/Getty Images)
+
+![](images/2024-06/20240627_Ayame_1920x1080.jpg)
+
 #### 20240626 ペヴリル城, イングランド (© James Osmond/Alamy)
 
 ![](images/2024-06/20240626_SpringCaveDale_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240619 サンタ・マリア・デル・フィオーレ大聖堂, イタリア (© Elena Pueyo/Getty Images)
 
 ![](images/2024-06/20240619_FlorenceDuomo_1920x1080.jpg)
-
-#### 20240619 库克斯港的水塔，德国 (© Andreas Vogel/Alamy)
-
-![](images/2024-06/20240619_CuxhavenTower_1920x1080.jpg)
 
 
 
