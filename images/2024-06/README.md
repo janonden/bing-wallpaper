@@ -2,7 +2,7 @@
 
 ![](20240626_SpringCaveDale_1920x1080.jpg)
 
-#### 20240626 考氏鳍竺鲷与海葵，蓝碧海峡，北苏拉威西，印度尼西亚 (© Constantinos Petrinos/NPL/Minden Pictures)
+#### 20240626 Juvenile Banggai cardinalfish with sea anemone, Lembeh Strait, North Sulawesi, Indonesia (© Constantinos Petrinos/NPL/Minden Pictures)
 
 ![](20240626_CardinalfishAnemone_1920x1080.jpg)
 
