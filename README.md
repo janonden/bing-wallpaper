@@ -54,7 +54,7 @@
 
 ![](images/2024-06/20240619_LawrenceMosaic_1920x1080.jpg)
 
-#### 20240619 サンタ・マリア・デル・フィオーレ大聖堂, イタリア (© Elena Pueyo/Getty Images)
+#### 20240619 Duomo Santa Maria del Fiore at dusk, Florence, Italy (© Elena Pueyo/Getty Images)
 
 ![](images/2024-06/20240619_FlorenceDuomo_1920x1080.jpg)
 
