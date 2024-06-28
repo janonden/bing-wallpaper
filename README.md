@@ -1,3 +1,11 @@
+#### 20240629 コルシカ島のサイクリストたち, フランス (© Pascal Pochard-Casabianca/AFP via Getty Images)
+
+![](images/2024-06/20240629_TourCorsica_1920x1080.jpg)
+
+#### 20240629 宁哈根的山毛榉林，梅克伦堡-前波美拉尼亚州，德国 (© Martin Ruegner/Getty Images)
+
+![](images/2024-06/20240629_NienhagenMecklenburg_1920x1080.jpg)
+
 #### 20240628 Drapeau arc-en-ciel brandi devant la tour Eiffel lors de la marche des fiertés (© Yuriko Nakao/Getty Images)
 
 ![](images/2024-06/20240628_ParisPrideParade_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20240621 蓝色水面上的渔船航拍图，郴州市，湖南省，中国 (© Haitong Yu/Getty images)
 
 ![](images/2024-06/20240621_SummerSolstice_1920x1080.jpg)
-
-#### 20240621 Pont-Neuf à Toulouse (© benkrut/Getty Images)
-
-![](images/2024-06/20240621_MusicDayToulouse_1920x1080.jpg)
-
-#### 20240621 Interior exhibits of the Canadian Museum of History (© Inspired By Maps/Shutterstock)
-
-![](images/2024-06/20240621_IndPeopleDay_1920x1080.jpg)
 
 
 
