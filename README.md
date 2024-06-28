@@ -1,3 +1,7 @@
+#### 20240628 Drapeau arc-en-ciel brandi devant la tour Eiffel lors de la marche des fiertés (© Yuriko Nakao/Getty Images)
+
+![](images/2024-06/20240628_ParisPrideParade_1920x1080.jpg)
+
 #### 20240628 クリストファー・パークに掲げられたプライドフラッグ, 米国 ニューヨーク州 (© Noam Galai/Getty Images)
 
 ![](images/2024-06/20240628_ChristopherPark_1920x1080.jpg)
@@ -5,6 +9,10 @@
 #### 20240628 诺曼底海岸的绍塞群岛，法国 (© Tuul & Bruno Morandi/Getty Images)
 
 ![](images/2024-06/20240628_ChauseyIslands_1920x1080.jpg)
+
+#### 20240628 Die Allianz Arena in Regenbogenfarben beleuchtet, München, Deutschland (© Marci Kost/Getty Images)
+
+![](images/2024-06/20240628_AllianzArena_1920x1080.jpg)
 
 #### 20240627 菖蒲, 山形県 長井市 (© gyro/Getty Images)
 
@@ -49,14 +57,6 @@
 #### 20240621 Interior exhibits of the Canadian Museum of History (© Inspired By Maps/Shutterstock)
 
 ![](images/2024-06/20240621_IndPeopleDay_1920x1080.jpg)
-
-#### 20240620 Kokino, an ancient megalithic observatory, North Macedonia (© stoimilov/Shutterstock)
-
-![](images/2024-06/20240620_KokinoMacedonia_1920x1080.jpg)
-
-#### 20240619 Reticulated giraffe mother greeting calf, Lewa Wildlife Conservancy, Kenya (© Sean Crane/Minden Pictures)
-
-![](images/2024-06/20240619_LewaGiraffe_1920x1080.jpg)
 
 
 
