@@ -22,6 +22,10 @@
 
 ![](20240628_AllianzArena_1920x1080.jpg)
 
+#### 20240627 Duomo Santa Maria del Fiore at dusk, Florence, Italy (© Elena Pueyo/Getty Images)
+
+![](20240627_FlorenceDuomo_1920x1080.jpg)
+
 #### 20240627 菖蒲, 山形県 長井市 (© gyro/Getty Images)
 
 ![](20240627_Ayame_1920x1080.jpg)
