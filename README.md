@@ -2,7 +2,7 @@
 
 ![](images/2024-06/20240628_ParisPrideParade_1920x1080.jpg)
 
-#### 20240628 クリストファー・パークに掲げられたプライドフラッグ, 米国 ニューヨーク州 (© Noam Galai/Getty Images)
+#### 20240628 Pride flags at Christopher Park, Stonewall National Monument, New York City (© Noam Galai/Getty Images)
 
 ![](images/2024-06/20240628_ChristopherPark_1920x1080.jpg)
 
