@@ -1,4 +1,4 @@
-#### 20240629 コルシカ島のサイクリストたち, フランス (© Pascal Pochard-Casabianca/AFP via Getty Images)
+#### 20240629 Cyclists in the 2013 Tour de France, Corsica, France (© Pascal Pochard-Casabianca/AFP via Getty Images)
 
 ![](20240629_TourCorsica_1920x1080.jpg)
 
