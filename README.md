@@ -1,3 +1,7 @@
+#### 20240630 乌布寺庙的石雕,巴厘岛,印度尼西亚 (© R. Schönebaum/plainpicture)
+
+![](images/2024-06/20240630_UbudBali_1920x1080.jpg)
+
 #### 20240629 Cyclists in the 2013 Tour de France, Corsica, France (© Pascal Pochard-Casabianca/AFP via Getty Images)
 
 ![](images/2024-06/20240629_TourCorsica_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240623 Aerial view of an intersection in Dhaka, Bangladesh (© Azim Khan Ronnie/Amazing Aerial Agency)
 
 ![](images/2024-06/20240623_DhakaBangladesh_1920x1080.jpg)
-
-#### 20240622 Amazon rainforest, Brazil (© Claus Meyer/plainpicture)
-
-![](images/2024-06/20240622_BrazilRainforest_1920x1080.jpg)
 
 
 
