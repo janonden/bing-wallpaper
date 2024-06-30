@@ -1,4 +1,4 @@
-#### 20240630 乌布寺庙的石雕,巴厘岛,印度尼西亚 (© R. Schönebaum/plainpicture)
+#### 20240630 Stone carving at a temple in Ubud, Bali, Indonesia (© R. Schönebaum/plainpicture)
 
 ![](images/2024-06/20240630_UbudBali_1920x1080.jpg)
 
