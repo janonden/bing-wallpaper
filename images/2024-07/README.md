@@ -6,3 +6,7 @@
 
 ![](20240701_FisgardLighthouse_1920x1080.jpg)
 
+#### 20240701 Canada Day firework show behind the National Gallery of Canada, Ottawa (© gqxue/iStock Editorial/Gettty Images)
+
+![](20240701_CanadaDayOttawa_1920x1080.jpg)
+

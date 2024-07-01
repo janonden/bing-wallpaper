@@ -6,6 +6,10 @@
 
 ![](images/2024-07/20240701_FisgardLighthouse_1920x1080.jpg)
 
+#### 20240701 Canada Day firework show behind the National Gallery of Canada, Ottawa (© gqxue/iStock Editorial/Gettty Images)
+
+![](images/2024-07/20240701_CanadaDayOttawa_1920x1080.jpg)
+
 #### 20240630 Stone carving at a temple in Ubud, Bali, Indonesia (© R. Schönebaum/plainpicture)
 
 ![](images/2024-06/20240630_UbudBali_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240625 Fire Wave, a rock formation in Valley of Fire State Park, Nevada (© Clint Losee/Tandem Stills + Motion)
 
 ![](images/2024-06/20240625_FireWave_1920x1080.jpg)
-
-#### 20240624 Volcanic crater lakes on Kelimutu, Flores, Indonesia (© Shane P. White/Minden Pictures)
-
-![](images/2024-06/20240624_FloresIsland_1920x1080.jpg)
 
 
 
