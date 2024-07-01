@@ -1,3 +1,7 @@
+#### 20240702 意大利卡，桑蒂蓬塞的一座古罗马城市，塞维利亚，安达卢西亚，西班牙 (© Moses Palermo/Amazing Aerial Agency)
+
+![](images/2024-07/20240702_ItalicaRuins_1920x1080.jpg)
+
 #### 20240701 Schloss Heidelberg, Heidelberg, Baden-Württemberg (© Hans Blossey/Alamy)
 
 ![](images/2024-07/20240701_HeidelbergCastle_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240626 Juvenile Banggai cardinalfish with sea anemone, Lembeh Strait, North Sulawesi, Indonesia (© Constantinos Petrinos/NPL/Minden Pictures)
 
 ![](images/2024-06/20240626_CardinalfishAnemone_1920x1080.jpg)
-
-#### 20240625 Fire Wave, a rock formation in Valley of Fire State Park, Nevada (© Clint Losee/Tandem Stills + Motion)
-
-![](images/2024-06/20240625_FireWave_1920x1080.jpg)
 
 
 
