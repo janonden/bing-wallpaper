@@ -1,3 +1,7 @@
+#### 20240701 Schloss Heidelberg, Heidelberg, Baden-Württemberg (© Hans Blossey/Alamy)
+
+![](images/2024-07/20240701_HeidelbergCastle_1920x1080.jpg)
+
 #### 20240701 菲斯加德灯塔，埃斯奎莫尔特港，科尔伍德，不列颠哥伦比亚省，加拿大 (© davemantel/Getty Images)
 
 ![](images/2024-07/20240701_FisgardLighthouse_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240624 Volcanic crater lakes on Kelimutu, Flores, Indonesia (© Shane P. White/Minden Pictures)
 
 ![](images/2024-06/20240624_FloresIsland_1920x1080.jpg)
-
-#### 20240623 湖畔に咲き誇るラベンダーと富士山, 河口湖 (© DoctorEgg/Getty Images)
-
-![](images/2024-06/20240623_Lavender_1920x1080.jpg)
 
 
 
