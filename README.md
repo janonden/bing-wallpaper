@@ -2,7 +2,7 @@
 
 ![](images/2024-07/20240701_HeidelbergCastle_1920x1080.jpg)
 
-#### 20240701 菲斯加德灯塔，埃斯奎莫尔特港，科尔伍德，不列颠哥伦比亚省，加拿大 (© davemantel/Getty Images)
+#### 20240701 Fisgard Lighthouse, Esquimalt Harbor, Colwood, British Columbia, Canada (© davemantel/Getty Images)
 
 ![](images/2024-07/20240701_FisgardLighthouse_1920x1080.jpg)
 
