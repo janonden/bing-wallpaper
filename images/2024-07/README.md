@@ -1,3 +1,7 @@
+#### 20240703 猫鼬家族 (© anetapics/Shutterstock)
+
+![](20240703_MeerkatManor_1920x1080.jpg)
+
 #### 20240702 The Roman amphitheater of Italica, near Seville, Spain (© Moses Palermo/Amazing Aerial Agency)
 
 ![](20240702_ItalicaRuins_1920x1080.jpg)

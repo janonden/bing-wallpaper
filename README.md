@@ -1,3 +1,7 @@
+#### 20240703 猫鼬家族 (© anetapics/Shutterstock)
+
+![](images/2024-07/20240703_MeerkatManor_1920x1080.jpg)
+
 #### 20240702 The Roman amphitheater of Italica, near Seville, Spain (© Moses Palermo/Amazing Aerial Agency)
 
 ![](images/2024-07/20240702_ItalicaRuins_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240626 ペヴリル城, イングランド (© James Osmond/Alamy)
 
 ![](images/2024-06/20240626_SpringCaveDale_1920x1080.jpg)
-
-#### 20240626 Juvenile Banggai cardinalfish with sea anemone, Lembeh Strait, North Sulawesi, Indonesia (© Constantinos Petrinos/NPL/Minden Pictures)
-
-![](images/2024-06/20240626_CardinalfishAnemone_1920x1080.jpg)
 
 
 
