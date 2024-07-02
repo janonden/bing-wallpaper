@@ -1,4 +1,4 @@
-#### 20240702 意大利卡，桑蒂蓬塞的一座古罗马城市，塞维利亚，安达卢西亚，西班牙 (© Moses Palermo/Amazing Aerial Agency)
+#### 20240702 The Roman amphitheater of Italica, near Seville, Spain (© Moses Palermo/Amazing Aerial Agency)
 
 ![](images/2024-07/20240702_ItalicaRuins_1920x1080.jpg)
 
