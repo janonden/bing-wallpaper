@@ -1,3 +1,11 @@
+#### 20240704 扎哈拉德拉谢拉，安达卢西亚，西班牙 (© Francesco Carovillano/eStock Photo)
+
+![](20240704_ZaharaDeLaSierra_1920x1080.jpg)
+
+#### 20240704 ムーカンチャイ県, ベトナム (© Kiatanan Sugsompian/Getty Images)
+
+![](20240704_YenBaiTerraces_1920x1080.jpg)
+
 #### 20240703 Meerkat family (© anetapics/Shutterstock)
 
 ![](20240703_MeerkatManor_1920x1080.jpg)

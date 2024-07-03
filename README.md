@@ -1,3 +1,11 @@
+#### 20240704 扎哈拉德拉谢拉，安达卢西亚，西班牙 (© Francesco Carovillano/eStock Photo)
+
+![](images/2024-07/20240704_ZaharaDeLaSierra_1920x1080.jpg)
+
+#### 20240704 ムーカンチャイ県, ベトナム (© Kiatanan Sugsompian/Getty Images)
+
+![](images/2024-07/20240704_YenBaiTerraces_1920x1080.jpg)
+
 #### 20240703 Meerkat family (© anetapics/Shutterstock)
 
 ![](images/2024-07/20240703_MeerkatManor_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20240627 Duomo Santa Maria del Fiore at dusk, Florence, Italy (© Elena Pueyo/Getty Images)
 
 ![](images/2024-06/20240627_FlorenceDuomo_1920x1080.jpg)
-
-#### 20240627 菖蒲, 山形県 長井市 (© gyro/Getty Images)
-
-![](images/2024-06/20240627_Ayame_1920x1080.jpg)
-
-#### 20240626 ペヴリル城, イングランド (© James Osmond/Alamy)
-
-![](images/2024-06/20240626_SpringCaveDale_1920x1080.jpg)
 
 
 
