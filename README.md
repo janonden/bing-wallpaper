@@ -1,3 +1,7 @@
+#### 20240705 丹翠雨林的诺亚海滩，昆士兰州，澳大利亚 (© bjeayes/Getty Images)
+
+![](images/2024-07/20240705_NoahBeach_1920x1080.jpg)
+
 #### 20240704 扎哈拉德拉谢拉，安达卢西亚，西班牙 (© Francesco Carovillano/eStock Photo)
 
 ![](images/2024-07/20240704_ZaharaDeLaSierra_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240628 Pride flags at Christopher Park, Stonewall National Monument, New York City (© Noam Galai/Getty Images)
 
 ![](images/2024-06/20240628_ChristopherPark_1920x1080.jpg)
-
-#### 20240628 诺曼底海岸的绍塞群岛，法国 (© Tuul & Bruno Morandi/Getty Images)
-
-![](images/2024-06/20240628_ChauseyIslands_1920x1080.jpg)
 
 
 
