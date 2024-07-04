@@ -6,6 +6,10 @@
 
 ![](images/2024-07/20240704_YenBaiTerraces_1920x1080.jpg)
 
+#### 20240704 Abbaye Notre-Dame de Sénanque, Gordes, Provence (© Brzozowska/Getty Images)
+
+![](images/2024-07/20240704_SenanqueAbbey_1920x1080.jpg)
+
 #### 20240703 Meerkat family (© anetapics/Shutterstock)
 
 ![](images/2024-07/20240703_MeerkatManor_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240628 Die Allianz Arena in Regenbogenfarben beleuchtet, München, Deutschland (© Marci Kost/Getty Images)
 
 ![](images/2024-06/20240628_AllianzArena_1920x1080.jpg)
-
-#### 20240627 Duomo Santa Maria del Fiore at dusk, Florence, Italy (© Elena Pueyo/Getty Images)
-
-![](images/2024-06/20240627_FlorenceDuomo_1920x1080.jpg)
 
 
 
