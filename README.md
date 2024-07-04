@@ -10,6 +10,10 @@
 
 ![](images/2024-07/20240704_SenanqueAbbey_1920x1080.jpg)
 
+#### 20240704 Fireworks over the Hudson River on the Fourth of July, New York (© New York on Air/Shutterstock)
+
+![](images/2024-07/20240704_HudsonFireworks_1920x1080.jpg)
+
 #### 20240703 Meerkat family (© anetapics/Shutterstock)
 
 ![](images/2024-07/20240703_MeerkatManor_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240628 诺曼底海岸的绍塞群岛，法国 (© Tuul & Bruno Morandi/Getty Images)
 
 ![](images/2024-06/20240628_ChauseyIslands_1920x1080.jpg)
-
-#### 20240628 Die Allianz Arena in Regenbogenfarben beleuchtet, München, Deutschland (© Marci Kost/Getty Images)
-
-![](images/2024-06/20240628_AllianzArena_1920x1080.jpg)
 
 
 
