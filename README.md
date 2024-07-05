@@ -1,3 +1,7 @@
+#### 20240706 从康威河眺望康威城堡，威尔士 (© David Chapman/Alamy Stock Photo)
+
+![](images/2024-07/20240706_ConwyRiver_1920x1080.jpg)
+
 #### 20240705 Noah Beach in Daintree Rainforest, Queensland, Australia (© bjeayes/Getty Images)
 
 ![](images/2024-07/20240705_NoahBeach_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240628 Drapeau arc-en-ciel brandi devant la tour Eiffel lors de la marche des fiertés (© Yuriko Nakao/Getty Images)
 
 ![](images/2024-06/20240628_ParisPrideParade_1920x1080.jpg)
-
-#### 20240628 Pride flags at Christopher Park, Stonewall National Monument, New York City (© Noam Galai/Getty Images)
-
-![](images/2024-06/20240628_ChristopherPark_1920x1080.jpg)
 
 
 

@@ -1,3 +1,7 @@
+#### 20240706 从康威河眺望康威城堡，威尔士 (© David Chapman/Alamy Stock Photo)
+
+![](20240706_ConwyRiver_1920x1080.jpg)
+
 #### 20240705 Noah Beach in Daintree Rainforest, Queensland, Australia (© bjeayes/Getty Images)
 
 ![](20240705_NoahBeach_1920x1080.jpg)
