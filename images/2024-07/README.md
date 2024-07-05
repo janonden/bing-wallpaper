@@ -1,4 +1,4 @@
-#### 20240705 丹翠雨林的诺亚海滩，昆士兰州，澳大利亚 (© bjeayes/Getty Images)
+#### 20240705 Noah Beach in Daintree Rainforest, Queensland, Australia (© bjeayes/Getty Images)
 
 ![](20240705_NoahBeach_1920x1080.jpg)
 
