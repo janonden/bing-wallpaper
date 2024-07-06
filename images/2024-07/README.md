@@ -1,3 +1,7 @@
+#### 20240707 越中おわら節の踊り, 東京 (© Keith Tsuji/特派員/Getty Images)
+
+![](20240707_Tanabata_1920x1080.jpg)
+
 #### 20240706 Conwy Castle looking over the River Conwy, Wales (© David Chapman/Alamy)
 
 ![](20240706_ConwyRiver_1920x1080.jpg)
