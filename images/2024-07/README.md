@@ -1,3 +1,7 @@
+#### 20240708 野生蓝莓 (© Baac3nes/Getty Images)
+
+![](20240708_NorwayBlueberries_1920x1080.jpg)
+
 #### 20240707 越中おわら節の踊り, 東京 (© Keith Tsuji/特派員/Getty Images)
 
 ![](20240707_Tanabata_1920x1080.jpg)

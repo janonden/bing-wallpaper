@@ -1,3 +1,7 @@
+#### 20240708 野生蓝莓 (© Baac3nes/Getty Images)
+
+![](images/2024-07/20240708_NorwayBlueberries_1920x1080.jpg)
+
 #### 20240707 越中おわら節の踊り, 東京 (© Keith Tsuji/特派員/Getty Images)
 
 ![](images/2024-07/20240707_Tanabata_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240629 Cyclists in the 2013 Tour de France, Corsica, France (© Pascal Pochard-Casabianca/AFP via Getty Images)
 
 ![](images/2024-06/20240629_TourCorsica_1920x1080.jpg)
-
-#### 20240629 宁哈根的山毛榉林，梅克伦堡-前波美拉尼亚州，德国 (© Martin Ruegner/Getty Images)
-
-![](images/2024-06/20240629_NienhagenMecklenburg_1920x1080.jpg)
 
 
 
