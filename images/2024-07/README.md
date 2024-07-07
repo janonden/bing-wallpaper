@@ -14,7 +14,7 @@
 
 ![](20240704_ZaharaDeLaSierra_1920x1080.jpg)
 
-#### 20240704 ムーカンチャイ県, ベトナム (© Kiatanan Sugsompian/Getty Images)
+#### 20240704 Rice terraces of Mù Cang Chải, Yên Bái province, Vietnam (© Kiatanan Sugsompian/Getty Images)
 
 ![](20240704_YenBaiTerraces_1920x1080.jpg)
 
