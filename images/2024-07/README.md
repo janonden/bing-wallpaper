@@ -1,3 +1,7 @@
+#### 20240708 Pont de pierre, Bordeaux (© SergiyN/Getty Images)
+
+![](20240708_PontBordeaux_1920x1080.jpg)
+
 #### 20240708 野生蓝莓 (© Baac3nes/Getty Images)
 
 ![](20240708_NorwayBlueberries_1920x1080.jpg)

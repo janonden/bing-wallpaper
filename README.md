@@ -1,3 +1,7 @@
+#### 20240708 Pont de pierre, Bordeaux (© SergiyN/Getty Images)
+
+![](images/2024-07/20240708_PontBordeaux_1920x1080.jpg)
+
 #### 20240708 野生蓝莓 (© Baac3nes/Getty Images)
 
 ![](images/2024-07/20240708_NorwayBlueberries_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240630 Stone carving at a temple in Ubud, Bali, Indonesia (© R. Schönebaum/plainpicture)
 
 ![](images/2024-06/20240630_UbudBali_1920x1080.jpg)
-
-#### 20240629 Cyclists in the 2013 Tour de France, Corsica, France (© Pascal Pochard-Casabianca/AFP via Getty Images)
-
-![](images/2024-06/20240629_TourCorsica_1920x1080.jpg)
 
 
 
