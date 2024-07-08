@@ -2,7 +2,7 @@
 
 ![](images/2024-07/20240708_PontBordeaux_1920x1080.jpg)
 
-#### 20240708 野生蓝莓 (© Baac3nes/Getty Images)
+#### 20240708 Blueberries growing in the wild (© Baac3nes/Getty Images)
 
 ![](images/2024-07/20240708_NorwayBlueberries_1920x1080.jpg)
 
