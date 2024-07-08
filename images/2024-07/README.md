@@ -1,3 +1,7 @@
+#### 20240709 阿根廷拉里奥哈省塔兰帕亚国家公园 (© Gonzalo Azumendi/Getty Images)
+
+![](20240709_TalampayaNP_1920x1080.jpg)
+
 #### 20240708 Pont de pierre, Bordeaux (© SergiyN/Getty Images)
 
 ![](20240708_PontBordeaux_1920x1080.jpg)
