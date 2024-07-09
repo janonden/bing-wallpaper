@@ -1,3 +1,11 @@
+#### 20240710 浅草寺のほおずき市, 東京 (© c11yg/Getty Images)
+
+![](images/2024-07/20240710_Lanternplant_1920x1080.jpg)
+
+#### 20240710 领簇舌巨嘴鸟，哥斯达黎加 (© Juan Carlos Vindas/Getty Images)
+
+![](images/2024-07/20240710_CollaredAracari_1920x1080.jpg)
+
 #### 20240709 Talampaya National Park, La Rioja province, Argentina (© Gonzalo Azumendi/Getty Images)
 
 ![](images/2024-07/20240709_TalampayaNP_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20240701 Schloss Heidelberg, Heidelberg, Baden-Württemberg (© Hans Blossey/Alamy)
 
 ![](images/2024-07/20240701_HeidelbergCastle_1920x1080.jpg)
-
-#### 20240701 Fisgard Lighthouse, Esquimalt Harbor, Colwood, British Columbia, Canada (© davemantel/Getty Images)
-
-![](images/2024-07/20240701_FisgardLighthouse_1920x1080.jpg)
-
-#### 20240701 Canada Day firework show behind the National Gallery of Canada, Ottawa (© gqxue/iStock Editorial/Gettty Images)
-
-![](images/2024-07/20240701_CanadaDayOttawa_1920x1080.jpg)
 
 
 
