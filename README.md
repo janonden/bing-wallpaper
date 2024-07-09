@@ -1,4 +1,4 @@
-#### 20240709 阿根廷拉里奥哈省塔兰帕亚国家公园 (© Gonzalo Azumendi/Getty Images)
+#### 20240709 Talampaya National Park, La Rioja province, Argentina (© Gonzalo Azumendi/Getty Images)
 
 ![](images/2024-07/20240709_TalampayaNP_1920x1080.jpg)
 
