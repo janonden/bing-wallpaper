@@ -2,7 +2,7 @@
 
 ![](images/2024-07/20240710_Lanternplant_1920x1080.jpg)
 
-#### 20240710 领簇舌巨嘴鸟，哥斯达黎加 (© Juan Carlos Vindas/Getty Images)
+#### 20240710 Collared aracari, Costa Rica (© Juan Carlos Vindas/Getty Images)
 
 ![](images/2024-07/20240710_CollaredAracari_1920x1080.jpg)
 
