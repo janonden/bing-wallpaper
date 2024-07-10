@@ -1,3 +1,7 @@
+#### 20240711 甘吉，西西里岛，意大利 (© Andrea Caruso/Amazing Aerial Agency)
+
+![](20240711_GangiSicily_1920x1080.jpg)
+
 #### 20240710 浅草寺のほおずき市, 東京 (© c11yg/Getty Images)
 
 ![](20240710_Lanternplant_1920x1080.jpg)

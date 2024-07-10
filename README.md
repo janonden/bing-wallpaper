@@ -1,3 +1,7 @@
+#### 20240711 甘吉，西西里岛，意大利 (© Andrea Caruso/Amazing Aerial Agency)
+
+![](images/2024-07/20240711_GangiSicily_1920x1080.jpg)
+
 #### 20240710 浅草寺のほおずき市, 東京 (© c11yg/Getty Images)
 
 ![](images/2024-07/20240710_Lanternplant_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240702 The Roman amphitheater of Italica, near Seville, Spain (© Moses Palermo/Amazing Aerial Agency)
 
 ![](images/2024-07/20240702_ItalicaRuins_1920x1080.jpg)
-
-#### 20240701 Schloss Heidelberg, Heidelberg, Baden-Württemberg (© Hans Blossey/Alamy)
-
-![](images/2024-07/20240701_HeidelbergCastle_1920x1080.jpg)
 
 
 
