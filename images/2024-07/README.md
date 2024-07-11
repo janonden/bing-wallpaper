@@ -1,4 +1,4 @@
-#### 20240711 甘吉，西西里岛，意大利 (© Andrea Caruso/Amazing Aerial Agency)
+#### 20240711 Gangi, Sicily, Italy (© Andrea Caruso/Amazing Aerial Agency)
 
 ![](20240711_GangiSicily_1920x1080.jpg)
 
