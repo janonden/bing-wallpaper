@@ -1,3 +1,7 @@
+#### 20240712 雷尼尔山国家公园的野花，华盛顿州，美国 (© RomanKhomlyak/Getty Images)
+
+![](images/2024-07/20240712_RainierWildflowers_1920x1080.jpg)
+
 #### 20240711 Gangi, Sicily, Italy (© Andrea Caruso/Amazing Aerial Agency)
 
 ![](images/2024-07/20240711_GangiSicily_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240703 Meerkat family (© anetapics/Shutterstock)
 
 ![](images/2024-07/20240703_MeerkatManor_1920x1080.jpg)
-
-#### 20240702 The Roman amphitheater of Italica, near Seville, Spain (© Moses Palermo/Amazing Aerial Agency)
-
-![](images/2024-07/20240702_ItalicaRuins_1920x1080.jpg)
 
 
 

@@ -1,3 +1,7 @@
+#### 20240712 雷尼尔山国家公园的野花，华盛顿州，美国 (© RomanKhomlyak/Getty Images)
+
+![](20240712_RainierWildflowers_1920x1080.jpg)
+
 #### 20240711 Gangi, Sicily, Italy (© Andrea Caruso/Amazing Aerial Agency)
 
 ![](20240711_GangiSicily_1920x1080.jpg)
