@@ -1,3 +1,7 @@
+#### 20240713 卡帕多西亚的童话烟囱和窑洞，土耳其 (© Storm Is Me/Shutterstock)
+
+![](20240713_CappadociaRocks_1920x1080.jpg)
+
 #### 20240712 Wildflowers in Mount Rainier National Park, Washington (© RomanKhomlyak/Getty Images)
 
 ![](20240712_RainierWildflowers_1920x1080.jpg)

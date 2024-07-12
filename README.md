@@ -1,3 +1,7 @@
+#### 20240713 卡帕多西亚的童话烟囱和窑洞，土耳其 (© Storm Is Me/Shutterstock)
+
+![](images/2024-07/20240713_CappadociaRocks_1920x1080.jpg)
+
 #### 20240712 Wildflowers in Mount Rainier National Park, Washington (© RomanKhomlyak/Getty Images)
 
 ![](images/2024-07/20240712_RainierWildflowers_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240704 Fireworks over the Hudson River on the Fourth of July, New York (© New York on Air/Shutterstock)
 
 ![](images/2024-07/20240704_HudsonFireworks_1920x1080.jpg)
-
-#### 20240703 Meerkat family (© anetapics/Shutterstock)
-
-![](images/2024-07/20240703_MeerkatManor_1920x1080.jpg)
 
 
 
