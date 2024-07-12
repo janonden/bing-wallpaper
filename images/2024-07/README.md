@@ -1,4 +1,4 @@
-#### 20240712 雷尼尔山国家公园的野花，华盛顿州，美国 (© RomanKhomlyak/Getty Images)
+#### 20240712 Wildflowers in Mount Rainier National Park, Washington (© RomanKhomlyak/Getty Images)
 
 ![](20240712_RainierWildflowers_1920x1080.jpg)
 
