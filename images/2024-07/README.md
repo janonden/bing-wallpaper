@@ -1,3 +1,11 @@
+#### 20240714 女王花园群岛的镰形真鲨，古巴 (© Christian Vizl/Tandem Stills + Motion)
+
+![](20240714_SilkyShark_1920x1080.jpg)
+
+#### 20240714 ベルリンの「博物館島」, ドイツ (© Rudy Balasko/Shutterstock)
+
+![](20240714_MuseumIsland_1920x1080.jpg)
+
 #### 20240713 Fairy chimneys and cave dwellings in Cappadocia, Türkiye (© Storm Is Me/Shutterstock)
 
 ![](20240713_CappadociaRocks_1920x1080.jpg)

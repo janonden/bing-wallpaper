@@ -1,3 +1,11 @@
+#### 20240714 女王花园群岛的镰形真鲨，古巴 (© Christian Vizl/Tandem Stills + Motion)
+
+![](images/2024-07/20240714_SilkyShark_1920x1080.jpg)
+
+#### 20240714 ベルリンの「博物館島」, ドイツ (© Rudy Balasko/Shutterstock)
+
+![](images/2024-07/20240714_MuseumIsland_1920x1080.jpg)
+
 #### 20240713 Fairy chimneys and cave dwellings in Cappadocia, Türkiye (© Storm Is Me/Shutterstock)
 
 ![](images/2024-07/20240713_CappadociaRocks_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20240704 Rice terraces of Mù Cang Chải, Yên Bái province, Vietnam (© Kiatanan Sugsompian/Getty Images)
 
 ![](images/2024-07/20240704_YenBaiTerraces_1920x1080.jpg)
-
-#### 20240704 Abbaye Notre-Dame de Sénanque, Gordes, Provence (© Brzozowska/Getty Images)
-
-![](images/2024-07/20240704_SenanqueAbbey_1920x1080.jpg)
-
-#### 20240704 Fireworks over the Hudson River on the Fourth of July, New York (© New York on Air/Shutterstock)
-
-![](images/2024-07/20240704_HudsonFireworks_1920x1080.jpg)
 
 
 
