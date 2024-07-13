@@ -1,4 +1,4 @@
-#### 20240713 卡帕多西亚的童话烟囱和窑洞，土耳其 (© Storm Is Me/Shutterstock)
+#### 20240713 Fairy chimneys and cave dwellings in Cappadocia, Türkiye (© Storm Is Me/Shutterstock)
 
 ![](20240713_CappadociaRocks_1920x1080.jpg)
 
