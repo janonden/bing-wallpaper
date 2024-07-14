@@ -10,6 +10,10 @@
 
 ![](images/2024-07/20240714_MuseumIsland_1920x1080.jpg)
 
+#### 20240714 Volcanic vineyard in the La Geria wine region of Lanzarote, Canary Islands, Spain (© Pol Albarrán/Getty Images)
+
+![](images/2024-07/20240714_LaGeriaLanzarote_1920x1080.jpg)
+
 #### 20240714 Münchner Opernfestspiele, München (© B.O'Kane/Alamy Stock Photo)
 
 ![](images/2024-07/20240714_IntNatTheatreMunich_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240707 越中おわら節の踊り, 東京 (© Keith Tsuji/特派員/Getty Images)
 
 ![](images/2024-07/20240707_Tanabata_1920x1080.jpg)
-
-#### 20240706 Conwy Castle looking over the River Conwy, Wales (© David Chapman/Alamy)
-
-![](images/2024-07/20240706_ConwyRiver_1920x1080.jpg)
 
 
 

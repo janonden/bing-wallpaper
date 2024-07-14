@@ -10,6 +10,10 @@
 
 ![](20240714_MuseumIsland_1920x1080.jpg)
 
+#### 20240714 Volcanic vineyard in the La Geria wine region of Lanzarote, Canary Islands, Spain (© Pol Albarrán/Getty Images)
+
+![](20240714_LaGeriaLanzarote_1920x1080.jpg)
+
 #### 20240714 Münchner Opernfestspiele, München (© B.O'Kane/Alamy Stock Photo)
 
 ![](20240714_IntNatTheatreMunich_1920x1080.jpg)
