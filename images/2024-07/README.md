@@ -1,3 +1,7 @@
+#### 20240715 立石公园，神奈川县，日本 (© blew_s/Shutterstock)
+
+![](20240715_TateishiPark_1920x1080.jpg)
+
 #### 20240714 女王花园群岛的镰形真鲨，古巴 (© Christian Vizl/Tandem Stills + Motion)
 
 ![](20240714_SilkyShark_1920x1080.jpg)

@@ -1,3 +1,7 @@
+#### 20240715 立石公园，神奈川县，日本 (© blew_s/Shutterstock)
+
+![](images/2024-07/20240715_TateishiPark_1920x1080.jpg)
+
 #### 20240714 女王花园群岛的镰形真鲨，古巴 (© Christian Vizl/Tandem Stills + Motion)
 
 ![](images/2024-07/20240714_SilkyShark_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240708 Blueberries growing in the wild (© Baac3nes/Getty Images)
 
 ![](images/2024-07/20240708_NorwayBlueberries_1920x1080.jpg)
-
-#### 20240707 越中おわら節の踊り, 東京 (© Keith Tsuji/特派員/Getty Images)
-
-![](images/2024-07/20240707_Tanabata_1920x1080.jpg)
 
 
 
