@@ -6,6 +6,14 @@
 
 ![](20240714_MuseumIsland_1920x1080.jpg)
 
+#### 20240714 Münchner Opernfestspiele, München (© B.O'Kane/Alamy Stock Photo)
+
+![](20240714_IntNatTheatreMunich_1920x1080.jpg)
+
+#### 20240714 La Patrouille de France au-dessus de la pyramide du Louvre pendant la cérémonie du 14 juillet, Paris (© Aurélien Meunier/Getty Images)
+
+![](20240714_BastilleDayParis_1920x1080.jpg)
+
 #### 20240713 Fairy chimneys and cave dwellings in Cappadocia, Türkiye (© Storm Is Me/Shutterstock)
 
 ![](20240713_CappadociaRocks_1920x1080.jpg)

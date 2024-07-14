@@ -6,6 +6,14 @@
 
 ![](images/2024-07/20240714_MuseumIsland_1920x1080.jpg)
 
+#### 20240714 Münchner Opernfestspiele, München (© B.O'Kane/Alamy Stock Photo)
+
+![](images/2024-07/20240714_IntNatTheatreMunich_1920x1080.jpg)
+
+#### 20240714 La Patrouille de France au-dessus de la pyramide du Louvre pendant la cérémonie du 14 juillet, Paris (© Aurélien Meunier/Getty Images)
+
+![](images/2024-07/20240714_BastilleDayParis_1920x1080.jpg)
+
 #### 20240713 Fairy chimneys and cave dwellings in Cappadocia, Türkiye (© Storm Is Me/Shutterstock)
 
 ![](images/2024-07/20240713_CappadociaRocks_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20240705 Noah Beach in Daintree Rainforest, Queensland, Australia (© bjeayes/Getty Images)
 
 ![](images/2024-07/20240705_NoahBeach_1920x1080.jpg)
-
-#### 20240704 扎哈拉德拉谢拉，安达卢西亚，西班牙 (© Francesco Carovillano/eStock Photo)
-
-![](images/2024-07/20240704_ZaharaDeLaSierra_1920x1080.jpg)
-
-#### 20240704 Rice terraces of Mù Cang Chải, Yên Bái province, Vietnam (© Kiatanan Sugsompian/Getty Images)
-
-![](images/2024-07/20240704_YenBaiTerraces_1920x1080.jpg)
 
 
 
