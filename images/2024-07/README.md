@@ -2,6 +2,10 @@
 
 ![](20240714_SilkyShark_1920x1080.jpg)
 
+#### 20240714 Baia del Silenzio in Sestri Levante, Liguria, Italy (© StevanZZ/Getty Images)
+
+![](20240714_SestriLevante_1920x1080.jpg)
+
 #### 20240714 ベルリンの「博物館島」, ドイツ (© Rudy Balasko/Shutterstock)
 
 ![](20240714_MuseumIsland_1920x1080.jpg)

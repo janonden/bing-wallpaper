@@ -2,6 +2,10 @@
 
 ![](images/2024-07/20240714_SilkyShark_1920x1080.jpg)
 
+#### 20240714 Baia del Silenzio in Sestri Levante, Liguria, Italy (© StevanZZ/Getty Images)
+
+![](images/2024-07/20240714_SestriLevante_1920x1080.jpg)
+
 #### 20240714 ベルリンの「博物館島」, ドイツ (© Rudy Balasko/Shutterstock)
 
 ![](images/2024-07/20240714_MuseumIsland_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240706 Conwy Castle looking over the River Conwy, Wales (© David Chapman/Alamy)
 
 ![](images/2024-07/20240706_ConwyRiver_1920x1080.jpg)
-
-#### 20240705 Noah Beach in Daintree Rainforest, Queensland, Australia (© bjeayes/Getty Images)
-
-![](images/2024-07/20240705_NoahBeach_1920x1080.jpg)
 
 
 
