@@ -1,3 +1,7 @@
+#### 20240716 斯卡拉布雷的新石器时代遗迹,奥克尼群岛,苏格兰 (© Paul Williams - FunkyStock/Getty Images)
+
+![](20240716_AncientOrkney_1920x1080.jpg)
+
 #### 20240715 Tateishi Park, Kanagawa Prefecture, Japan (© blew_s/Shutterstock)
 
 ![](20240715_TateishiPark_1920x1080.jpg)
