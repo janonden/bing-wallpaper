@@ -1,4 +1,4 @@
-#### 20240715 立石公园，神奈川县，日本 (© blew_s/Shutterstock)
+#### 20240715 Tateishi Park, Kanagawa Prefecture, Japan (© blew_s/Shutterstock)
 
 ![](images/2024-07/20240715_TateishiPark_1920x1080.jpg)
 
