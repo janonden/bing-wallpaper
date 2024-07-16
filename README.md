@@ -1,3 +1,7 @@
+#### 20240716 Summer Milky Way over the badlands formations at Dinosaur Provincial Park, Alberta, Canada (© Alan Dyer/Stocktrek Images/Getty Images)
+
+![](images/2024-07/20240716_DinosaurProvPark_1920x1080.jpg)
+
 #### 20240716 斯卡拉布雷的新石器时代遗迹,奥克尼群岛,苏格兰 (© Paul Williams - FunkyStock/Getty Images)
 
 ![](images/2024-07/20240716_AncientOrkney_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240709 Talampaya National Park, La Rioja province, Argentina (© Gonzalo Azumendi/Getty Images)
 
 ![](images/2024-07/20240709_TalampayaNP_1920x1080.jpg)
-
-#### 20240708 Pont de pierre, Bordeaux (© SergiyN/Getty Images)
-
-![](images/2024-07/20240708_PontBordeaux_1920x1080.jpg)
 
 
 
