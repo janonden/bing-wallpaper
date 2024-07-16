@@ -1,3 +1,11 @@
+#### 20240717 德国中世纪城市罗滕堡 (© kanuman/Getty Images)
+
+![](20240717_MedievalRothenburg_1920x1080.jpg)
+
+#### 20240717 提灯で飾られた山鉾, 京都府 京都市 (© Cameron Hilker/Alamy Stock Photo)
+
+![](20240717_GionFestival_1920x1080.jpg)
+
 #### 20240716 Summer Milky Way over the badlands formations at Dinosaur Provincial Park, Alberta, Canada (© Alan Dyer/Stocktrek Images/Getty Images)
 
 ![](20240716_DinosaurProvPark_1920x1080.jpg)

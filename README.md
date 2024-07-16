@@ -1,3 +1,11 @@
+#### 20240717 德国中世纪城市罗滕堡 (© kanuman/Getty Images)
+
+![](images/2024-07/20240717_MedievalRothenburg_1920x1080.jpg)
+
+#### 20240717 提灯で飾られた山鉾, 京都府 京都市 (© Cameron Hilker/Alamy Stock Photo)
+
+![](images/2024-07/20240717_GionFestival_1920x1080.jpg)
+
 #### 20240716 Summer Milky Way over the badlands formations at Dinosaur Provincial Park, Alberta, Canada (© Alan Dyer/Stocktrek Images/Getty Images)
 
 ![](images/2024-07/20240716_DinosaurProvPark_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20240710 浅草寺のほおずき市, 東京 (© c11yg/Getty Images)
 
 ![](images/2024-07/20240710_Lanternplant_1920x1080.jpg)
-
-#### 20240710 Collared aracari, Costa Rica (© Juan Carlos Vindas/Getty Images)
-
-![](images/2024-07/20240710_CollaredAracari_1920x1080.jpg)
-
-#### 20240709 Talampaya National Park, La Rioja province, Argentina (© Gonzalo Azumendi/Getty Images)
-
-![](images/2024-07/20240709_TalampayaNP_1920x1080.jpg)
 
 
 
