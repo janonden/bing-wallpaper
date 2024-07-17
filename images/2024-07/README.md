@@ -1,4 +1,4 @@
-#### 20240717 德国中世纪城市罗滕堡 (© kanuman/Getty Images)
+#### 20240717 Medieval city of Rothenburg ob der Tauber, Germany (© kanuman/Getty Images)
 
 ![](20240717_MedievalRothenburg_1920x1080.jpg)
 
