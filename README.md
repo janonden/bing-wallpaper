@@ -1,3 +1,7 @@
+#### 20240718 Coral reef in the Indian Ocean, Mayotte, France (© Gabriel Barathieu/Minden Pictures)
+
+![](images/2024-07/20240718_MayotteCoral_1920x1080.jpg)
+
 #### 20240717 Medieval city of Rothenburg ob der Tauber, Germany (© kanuman/Getty Images)
 
 ![](images/2024-07/20240717_MedievalRothenburg_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240711 Gangi, Sicily, Italy (© Andrea Caruso/Amazing Aerial Agency)
 
 ![](images/2024-07/20240711_GangiSicily_1920x1080.jpg)
-
-#### 20240710 浅草寺のほおずき市, 東京 (© c11yg/Getty Images)
-
-![](images/2024-07/20240710_Lanternplant_1920x1080.jpg)
 
 
 

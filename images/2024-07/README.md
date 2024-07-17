@@ -1,3 +1,7 @@
+#### 20240718 Coral reef in the Indian Ocean, Mayotte, France (© Gabriel Barathieu/Minden Pictures)
+
+![](20240718_MayotteCoral_1920x1080.jpg)
+
 #### 20240717 Medieval city of Rothenburg ob der Tauber, Germany (© kanuman/Getty Images)
 
 ![](20240717_MedievalRothenburg_1920x1080.jpg)
