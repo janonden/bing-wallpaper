@@ -1,3 +1,7 @@
+#### 20240719 河岸上的一只年轻美洲虎，潘塔纳尔，巴西 (© Tambako the Jaguar/Getty Images)
+
+![](20240719_YoungJaguar_1920x1080.jpg)
+
 #### 20240718 Coral reef in the Indian Ocean, Mayotte, France (© Gabriel Barathieu/Minden Pictures)
 
 ![](20240718_MayotteCoral_1920x1080.jpg)
