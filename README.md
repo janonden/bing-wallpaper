@@ -2,7 +2,7 @@
 
 ![](images/2024-07/20240719_YoungJaguar_1920x1080.jpg)
 
-#### 20240718 Coral reef in the Indian Ocean, Mayotte, France (© Gabriel Barathieu/Minden Pictures)
+#### 20240718 Coral reef in the Indian Ocean, overseas department of Mayotte, France (© Gabriel Barathieu/Minden Pictures)
 
 ![](images/2024-07/20240718_MayotteCoral_1920x1080.jpg)
 
