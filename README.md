@@ -1,3 +1,7 @@
+#### 20240721 肯杜瓦村的木制渔船，桑给巴尔，坦桑尼亚 (© Lubos Paukeje/Alamy Stock Photo)
+
+![](images/2024-07/20240721_ZanzibarBoats_1920x1080.jpg)
+
 #### 20240720 The moon (© Victor Blum/Getty Images)
 
 ![](images/2024-07/20240720_MineralMoon_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240714 La Patrouille de France au-dessus de la pyramide du Louvre pendant la cérémonie du 14 juillet, Paris (© Aurélien Meunier/Getty Images)
 
 ![](images/2024-07/20240714_BastilleDayParis_1920x1080.jpg)
-
-#### 20240713 Fairy chimneys and cave dwellings in Cappadocia, Türkiye (© Storm Is Me/Shutterstock)
-
-![](images/2024-07/20240713_CappadociaRocks_1920x1080.jpg)
 
 
 
