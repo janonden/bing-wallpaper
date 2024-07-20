@@ -1,4 +1,4 @@
-#### 20240720 月球 (© Victor Blum/Getty Images)
+#### 20240720 The moon (© Victor Blum/Getty Images)
 
 ![](20240720_MineralMoon_1920x1080.jpg)
 
