@@ -1,3 +1,7 @@
+#### 20240722 树上的中国小熊猫, 成都, 四川省, 中国 (© Jackyenjoyphotography/Getty Images)
+
+![](images/2024-07/20240722_TheGreatHeat_1920x1080.jpg)
+
 #### 20240721 Wooden fishing boats at Kendwa, Zanzibar, Tanzania (© Lubos Paukeje/Alamy)
 
 ![](images/2024-07/20240721_ZanzibarBoats_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240714 Münchner Opernfestspiele, München (© B.O'Kane/Alamy Stock Photo)
 
 ![](images/2024-07/20240714_IntNatTheatreMunich_1920x1080.jpg)
-
-#### 20240714 La Patrouille de France au-dessus de la pyramide du Louvre pendant la cérémonie du 14 juillet, Paris (© Aurélien Meunier/Getty Images)
-
-![](images/2024-07/20240714_BastilleDayParis_1920x1080.jpg)
 
 
 
