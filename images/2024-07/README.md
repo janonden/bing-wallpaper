@@ -1,4 +1,4 @@
-#### 20240721 肯杜瓦村的木制渔船，桑给巴尔，坦桑尼亚 (© Lubos Paukeje/Alamy Stock Photo)
+#### 20240721 Wooden fishing boats at Kendwa, Zanzibar, Tanzania (© Lubos Paukeje/Alamy)
 
 ![](20240721_ZanzibarBoats_1920x1080.jpg)
 
