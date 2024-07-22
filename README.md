@@ -1,3 +1,7 @@
+#### 20240723 迈索尼城堡，麦西尼亚州，希腊 (© Andrew Mayovskyy/Shutterstock)
+
+![](images/2024-07/20240723_MethoniCastle_1920x1080.jpg)
+
 #### 20240722 Strandkörbe auf der Insel Rügen, Deutschland (© Peter Adams/Getty images)
 
 ![](images/2024-07/20240722_WickerBeachBaskets_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240714 女王花园群岛的镰形真鲨，古巴 (© Christian Vizl/Tandem Stills + Motion)
 
 ![](images/2024-07/20240714_SilkyShark_1920x1080.jpg)
-
-#### 20240714 Baia del Silenzio in Sestri Levante, Liguria, Italy (© StevanZZ/Getty Images)
-
-![](images/2024-07/20240714_SestriLevante_1920x1080.jpg)
 
 
 

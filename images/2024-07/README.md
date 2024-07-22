@@ -1,3 +1,7 @@
+#### 20240723 迈索尼城堡，麦西尼亚州，希腊 (© Andrew Mayovskyy/Shutterstock)
+
+![](20240723_MethoniCastle_1920x1080.jpg)
+
 #### 20240722 Strandkörbe auf der Insel Rügen, Deutschland (© Peter Adams/Getty images)
 
 ![](20240722_WickerBeachBaskets_1920x1080.jpg)
