@@ -10,6 +10,10 @@
 
 ![](20240722_SaintFrancois_1920x1080.jpg)
 
+#### 20240722 Hammock camping on a lake in Central Florida (© Mac Stone/Tandem Stills + Motion)
+
+![](20240722_HammockCamping_1920x1080.jpg)
+
 #### 20240721 Wooden fishing boats at Kendwa, Zanzibar, Tanzania (© Lubos Paukeje/Alamy)
 
 ![](20240721_ZanzibarBoats_1920x1080.jpg)

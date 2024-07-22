@@ -10,6 +10,10 @@
 
 ![](images/2024-07/20240722_SaintFrancois_1920x1080.jpg)
 
+#### 20240722 Hammock camping on a lake in Central Florida (© Mac Stone/Tandem Stills + Motion)
+
+![](images/2024-07/20240722_HammockCamping_1920x1080.jpg)
+
 #### 20240721 Wooden fishing boats at Kendwa, Zanzibar, Tanzania (© Lubos Paukeje/Alamy)
 
 ![](images/2024-07/20240721_ZanzibarBoats_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240714 Baia del Silenzio in Sestri Levante, Liguria, Italy (© StevanZZ/Getty Images)
 
 ![](images/2024-07/20240714_SestriLevante_1920x1080.jpg)
-
-#### 20240714 ベルリンの「博物館島」, ドイツ (© Rudy Balasko/Shutterstock)
-
-![](images/2024-07/20240714_MuseumIsland_1920x1080.jpg)
 
 
 
