@@ -1,3 +1,11 @@
+#### 20240724 川越氷川神社, 埼玉県 川越市 (© Joshua Hawley/Shutterstock)
+
+![](images/2024-07/20240724_WindBell_1920x1080.jpg)
+
+#### 20240724 北约克郡的黑面羊羊群，英格兰 (© R A Kearton/Getty Images)
+
+![](images/2024-07/20240724_SheepCousins_1920x1080.jpg)
+
 #### 20240723 Methoni Castle, Messenia, Greece (© Andrew Mayovskyy/Shutterstock)
 
 ![](images/2024-07/20240723_MethoniCastle_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20240716 The Neolithic settlement of Skara Brae, Orkney, Scotland (© Paul Williams - FunkyStock/Getty Images)
 
 ![](images/2024-07/20240716_AncientOrkney_1920x1080.jpg)
-
-#### 20240715 Tateishi Park, Kanagawa Prefecture, Japan (© blew_s/Shutterstock)
-
-![](images/2024-07/20240715_TateishiPark_1920x1080.jpg)
-
-#### 20240714 女王花园群岛的镰形真鲨，古巴 (© Christian Vizl/Tandem Stills + Motion)
-
-![](images/2024-07/20240714_SilkyShark_1920x1080.jpg)
 
 
 

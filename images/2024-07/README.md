@@ -1,3 +1,11 @@
+#### 20240724 川越氷川神社, 埼玉県 川越市 (© Joshua Hawley/Shutterstock)
+
+![](20240724_WindBell_1920x1080.jpg)
+
+#### 20240724 北约克郡的黑面羊羊群，英格兰 (© R A Kearton/Getty Images)
+
+![](20240724_SheepCousins_1920x1080.jpg)
+
 #### 20240723 Methoni Castle, Messenia, Greece (© Andrew Mayovskyy/Shutterstock)
 
 ![](20240723_MethoniCastle_1920x1080.jpg)
