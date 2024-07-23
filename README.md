@@ -1,4 +1,4 @@
-#### 20240723 迈索尼城堡，麦西尼亚州，希腊 (© Andrew Mayovskyy/Shutterstock)
+#### 20240723 Methoni Castle, Messenia, Greece (© Andrew Mayovskyy/Shutterstock)
 
 ![](images/2024-07/20240723_MethoniCastle_1920x1080.jpg)
 
