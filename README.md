@@ -2,7 +2,7 @@
 
 ![](images/2024-07/20240724_WindBell_1920x1080.jpg)
 
-#### 20240724 北约克郡的黑面羊羊群，英格兰 (© R A Kearton/Getty Images)
+#### 20240724 Flock of Swaledale sheep in North Yorkshire, England (© R A Kearton/Getty Images)
 
 ![](images/2024-07/20240724_SheepCousins_1920x1080.jpg)
 
