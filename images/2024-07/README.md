@@ -1,3 +1,7 @@
+#### 20240725 大烟山国家公园的森林小道，田纳西州，美国 (© putmanphoto/Getty Images)
+
+![](20240725_SmokyMountainTrail_1920x1080.jpg)
+
 #### 20240724 川越氷川神社, 埼玉県 川越市 (© Joshua Hawley/Shutterstock)
 
 ![](20240724_WindBell_1920x1080.jpg)

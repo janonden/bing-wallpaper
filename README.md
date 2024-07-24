@@ -1,3 +1,7 @@
+#### 20240725 大烟山国家公园的森林小道，田纳西州，美国 (© putmanphoto/Getty Images)
+
+![](images/2024-07/20240725_SmokyMountainTrail_1920x1080.jpg)
+
 #### 20240724 川越氷川神社, 埼玉県 川越市 (© Joshua Hawley/Shutterstock)
 
 ![](images/2024-07/20240724_WindBell_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240716 Summer Milky Way over the badlands formations at Dinosaur Provincial Park, Alberta, Canada (© Alan Dyer/Stocktrek Images/Getty Images)
 
 ![](images/2024-07/20240716_DinosaurProvPark_1920x1080.jpg)
-
-#### 20240716 The Neolithic settlement of Skara Brae, Orkney, Scotland (© Paul Williams - FunkyStock/Getty Images)
-
-![](images/2024-07/20240716_AncientOrkney_1920x1080.jpg)
 
 
 
