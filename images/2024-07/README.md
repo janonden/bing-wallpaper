@@ -1,3 +1,7 @@
+#### 20240726 塞纳河上的新桥，巴黎，法国 (© f11photo/Getty Images)
+
+![](20240726_PontNeuf_1920x1080.jpg)
+
 #### 20240725 Forest path in Great Smoky Mountains National Park, Tennessee (© putmanphoto/Getty Images)
 
 ![](20240725_SmokyMountainTrail_1920x1080.jpg)

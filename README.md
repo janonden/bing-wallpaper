@@ -1,3 +1,7 @@
+#### 20240726 塞纳河上的新桥，巴黎，法国 (© f11photo/Getty Images)
+
+![](images/2024-07/20240726_PontNeuf_1920x1080.jpg)
+
 #### 20240725 Forest path in Great Smoky Mountains National Park, Tennessee (© putmanphoto/Getty Images)
 
 ![](images/2024-07/20240725_SmokyMountainTrail_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240717 提灯で飾られた山鉾, 京都府 京都市 (© Cameron Hilker/Alamy Stock Photo)
 
 ![](images/2024-07/20240717_GionFestival_1920x1080.jpg)
-
-#### 20240716 Summer Milky Way over the badlands formations at Dinosaur Provincial Park, Alberta, Canada (© Alan Dyer/Stocktrek Images/Getty Images)
-
-![](images/2024-07/20240716_DinosaurProvPark_1920x1080.jpg)
 
 
 
