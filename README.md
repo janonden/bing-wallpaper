@@ -1,4 +1,4 @@
-#### 20240725 大烟山国家公园的森林小道，田纳西州，美国 (© putmanphoto/Getty Images)
+#### 20240725 Forest path in Great Smoky Mountains National Park, Tennessee (© putmanphoto/Getty Images)
 
 ![](images/2024-07/20240725_SmokyMountainTrail_1920x1080.jpg)
 
