@@ -1,3 +1,7 @@
+#### 20240727 摩泽尔河谷的葡萄园，莱茵兰-法尔茨，德国 (© Jorg Greuel/Getty Images)
+
+![](20240727_RhinelandVineyards_1920x1080.jpg)
+
 #### 20240726 Pont Neuf over the Seine, Paris, France (© f11photo/Getty Images)
 
 ![](20240726_PontNeuf_1920x1080.jpg)

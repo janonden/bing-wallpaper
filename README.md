@@ -1,3 +1,7 @@
+#### 20240727 摩泽尔河谷的葡萄园，莱茵兰-法尔茨，德国 (© Jorg Greuel/Getty Images)
+
+![](images/2024-07/20240727_RhinelandVineyards_1920x1080.jpg)
+
 #### 20240726 Pont Neuf over the Seine, Paris, France (© f11photo/Getty Images)
 
 ![](images/2024-07/20240726_PontNeuf_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240718 Coral reef in the Indian Ocean, overseas department of Mayotte, France (© Gabriel Barathieu/Minden Pictures)
 
 ![](images/2024-07/20240718_MayotteCoral_1920x1080.jpg)
-
-#### 20240717 Medieval city of Rothenburg ob der Tauber, Germany (© kanuman/Getty Images)
-
-![](images/2024-07/20240717_MedievalRothenburg_1920x1080.jpg)
 
 
 
