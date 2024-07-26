@@ -1,4 +1,4 @@
-#### 20240726 塞纳河上的新桥，巴黎，法国 (© f11photo/Getty Images)
+#### 20240726 Pont Neuf over the Seine, Paris, France (© f11photo/Getty Images)
 
 ![](images/2024-07/20240726_PontNeuf_1920x1080.jpg)
 
