@@ -2,6 +2,10 @@
 
 ![](images/2024-07/20240726_PontNeuf_1920x1080.jpg)
 
+#### 20240726 Coucher de soleil sur la Seine avec la Conciergerie, Paris (© Britus/iStock/Getty Images Plus)
+
+![](images/2024-07/20240726_ParisOlympicGames_1920x1080.jpg)
+
 #### 20240725 Forest path in Great Smoky Mountains National Park, Tennessee (© putmanphoto/Getty Images)
 
 ![](images/2024-07/20240725_SmokyMountainTrail_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240717 Medieval city of Rothenburg ob der Tauber, Germany (© kanuman/Getty Images)
 
 ![](images/2024-07/20240717_MedievalRothenburg_1920x1080.jpg)
-
-#### 20240717 提灯で飾られた山鉾, 京都府 京都市 (© Cameron Hilker/Alamy Stock Photo)
-
-![](images/2024-07/20240717_GionFestival_1920x1080.jpg)
 
 
 

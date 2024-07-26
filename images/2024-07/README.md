@@ -2,6 +2,10 @@
 
 ![](20240726_PontNeuf_1920x1080.jpg)
 
+#### 20240726 Coucher de soleil sur la Seine avec la Conciergerie, Paris (© Britus/iStock/Getty Images Plus)
+
+![](20240726_ParisOlympicGames_1920x1080.jpg)
+
 #### 20240725 Forest path in Great Smoky Mountains National Park, Tennessee (© putmanphoto/Getty Images)
 
 ![](20240725_SmokyMountainTrail_1920x1080.jpg)
