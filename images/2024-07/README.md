@@ -1,3 +1,7 @@
+#### 20240728 斯科讷省海滩上的浴场小屋，瑞典 (© Martin Wahlborg/Getty Images)
+
+![](20240728_BeachHutsSweden_1920x1080.jpg)
+
 #### 20240727 Vineyards in the Mosel Valley, Rhineland-Palatinate, Germany (© Jorg Greuel/Getty Images)
 
 ![](20240727_RhinelandVineyards_1920x1080.jpg)

@@ -1,3 +1,7 @@
+#### 20240728 斯科讷省海滩上的浴场小屋，瑞典 (© Martin Wahlborg/Getty Images)
+
+![](images/2024-07/20240728_BeachHutsSweden_1920x1080.jpg)
+
 #### 20240727 Vineyards in the Mosel Valley, Rhineland-Palatinate, Germany (© Jorg Greuel/Getty Images)
 
 ![](images/2024-07/20240727_RhinelandVineyards_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240719 A young jaguar on a riverbank, Pantanal, Brazil (© Tambako the Jaguar/Getty Images)
 
 ![](images/2024-07/20240719_YoungJaguar_1920x1080.jpg)
-
-#### 20240718 Coral reef in the Indian Ocean, overseas department of Mayotte, France (© Gabriel Barathieu/Minden Pictures)
-
-![](images/2024-07/20240718_MayotteCoral_1920x1080.jpg)
 
 
 
