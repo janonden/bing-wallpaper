@@ -1,4 +1,4 @@
-#### 20240727 摩泽尔河谷的葡萄园，莱茵兰-法尔茨，德国 (© Jorg Greuel/Getty Images)
+#### 20240727 Vineyards in the Mosel Valley, Rhineland-Palatinate, Germany (© Jorg Greuel/Getty Images)
 
 ![](images/2024-07/20240727_RhinelandVineyards_1920x1080.jpg)
 
