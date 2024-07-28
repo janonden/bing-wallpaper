@@ -1,4 +1,4 @@
-#### 20240728 斯科讷省海滩上的浴场小屋，瑞典 (© Martin Wahlborg/Getty Images)
+#### 20240728 Bathing huts on the beach in Skåne County, Sweden (© Martin Wahlborg/Getty Images)
 
 ![](images/2024-07/20240728_BeachHutsSweden_1920x1080.jpg)
 
