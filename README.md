@@ -1,3 +1,7 @@
+#### 20240729 科贝国家公园的老虎兄弟，北阿坎德邦，印度 (© Sourabh Bharti/Getty Images)
+
+![](images/2024-07/20240729_CorbettTigers_1920x1080.jpg)
+
 #### 20240728 Bathing huts on the beach in Skåne County, Sweden (© Martin Wahlborg/Getty Images)
 
 ![](images/2024-07/20240728_BeachHutsSweden_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240720 The moon (© Victor Blum/Getty Images)
 
 ![](images/2024-07/20240720_MineralMoon_1920x1080.jpg)
-
-#### 20240719 A young jaguar on a riverbank, Pantanal, Brazil (© Tambako the Jaguar/Getty Images)
-
-![](images/2024-07/20240719_YoungJaguar_1920x1080.jpg)
 
 
 
