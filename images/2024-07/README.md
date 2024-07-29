@@ -1,4 +1,4 @@
-#### 20240729 科贝国家公园的老虎兄弟，北阿坎德邦，印度 (© Sourabh Bharti/Getty Images)
+#### 20240729 Tiger siblings in Jim Corbett National Park, Uttarakhand, India (© Sourabh Bharti/Getty Images)
 
 ![](20240729_CorbettTigers_1920x1080.jpg)
 
