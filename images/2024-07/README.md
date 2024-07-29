@@ -1,3 +1,7 @@
+#### 20240730 圣吉米尼亚诺，锡耶纳，托斯卡纳大区，意大利亚 (© MNStudio/Shutterstock)
+
+![](20240730_GimignanoTuscany_1920x1080.jpg)
+
 #### 20240729 Tiger siblings in Jim Corbett National Park, Uttarakhand, India (© Sourabh Bharti/Getty Images)
 
 ![](20240729_CorbettTigers_1920x1080.jpg)

@@ -1,3 +1,7 @@
+#### 20240730 圣吉米尼亚诺，锡耶纳，托斯卡纳大区，意大利亚 (© MNStudio/Shutterstock)
+
+![](images/2024-07/20240730_GimignanoTuscany_1920x1080.jpg)
+
 #### 20240729 Tiger siblings in Jim Corbett National Park, Uttarakhand, India (© Sourabh Bharti/Getty Images)
 
 ![](images/2024-07/20240729_CorbettTigers_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240721 Wooden fishing boats at Kendwa, Zanzibar, Tanzania (© Lubos Paukeje/Alamy)
 
 ![](images/2024-07/20240721_ZanzibarBoats_1920x1080.jpg)
-
-#### 20240720 The moon (© Victor Blum/Getty Images)
-
-![](images/2024-07/20240720_MineralMoon_1920x1080.jpg)
 
 
 
