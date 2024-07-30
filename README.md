@@ -6,7 +6,7 @@
 
 ![](images/2024-07/20240730_GrayWolfPups_1920x1080.jpg)
 
-#### 20240730 圣吉米尼亚诺，锡耶纳，托斯卡纳大区，意大利亚 (© MNStudio/Shutterstock)
+#### 20240730 San Gimignano, Siena, Tuscany, Italy (© MNStudio/Shutterstock)
 
 ![](images/2024-07/20240730_GimignanoTuscany_1920x1080.jpg)
 
