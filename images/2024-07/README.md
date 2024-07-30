@@ -1,3 +1,11 @@
+#### 20240730 Impala et pic-bœuf à bec rouge, Afrique du Sud (© Matrishva Vyas/Getty Images)
+
+![](20240730_ImpalaOxpecker_1920x1080.jpg)
+
+#### 20240730 Spielende Wolfswelpen in Deutschland (© Westend61/Getty Images)
+
+![](20240730_GrayWolfPups_1920x1080.jpg)
+
 #### 20240730 圣吉米尼亚诺，锡耶纳，托斯卡纳大区，意大利亚 (© MNStudio/Shutterstock)
 
 ![](20240730_GimignanoTuscany_1920x1080.jpg)

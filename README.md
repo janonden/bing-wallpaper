@@ -1,3 +1,11 @@
+#### 20240730 Impala et pic-bœuf à bec rouge, Afrique du Sud (© Matrishva Vyas/Getty Images)
+
+![](images/2024-07/20240730_ImpalaOxpecker_1920x1080.jpg)
+
+#### 20240730 Spielende Wolfswelpen in Deutschland (© Westend61/Getty Images)
+
+![](images/2024-07/20240730_GrayWolfPups_1920x1080.jpg)
+
 #### 20240730 圣吉米尼亚诺，锡耶纳，托斯卡纳大区，意大利亚 (© MNStudio/Shutterstock)
 
 ![](images/2024-07/20240730_GimignanoTuscany_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20240722 Coucher de soleil sur la plage de l'Anse Champagne à Saint-François, Guadeloupe, Caraïbes (© Fyletto/Getty Images)
 
 ![](images/2024-07/20240722_SaintFrancois_1920x1080.jpg)
-
-#### 20240722 Hammock camping on a lake in Central Florida (© Mac Stone/Tandem Stills + Motion)
-
-![](images/2024-07/20240722_HammockCamping_1920x1080.jpg)
-
-#### 20240721 Wooden fishing boats at Kendwa, Zanzibar, Tanzania (© Lubos Paukeje/Alamy)
-
-![](images/2024-07/20240721_ZanzibarBoats_1920x1080.jpg)
 
 
 
