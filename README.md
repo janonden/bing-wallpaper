@@ -1,4 +1,4 @@
-#### 20240731 石林，日落点，布莱斯峡谷国家公园，犹他州，美国 (© Tim Fitzharris/Minden Pictures)
+#### 20240731 Hoodoos, Sunset Point, Bryce Canyon National Park, Utah (© Tim Fitzharris/Minden Pictures)
 
 ![](images/2024-07/20240731_HoodoosBryce_1920x1080.jpg)
 
