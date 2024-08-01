@@ -1,3 +1,7 @@
+#### 20240802 象鼻湾，维尔京群岛国家公园，圣约翰岛 (© wheatley/Getty Images)
+
+![](images/2024-08/20240802_TrunkBay_1920x1080.jpg)
+
 #### 20240801 豪華絢爛なねぷた, 青森県 弘前市 (© David Parker/Alamy)
 
 ![](images/2024-08/20240801_Nebuta_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240724 Flock of Swaledale sheep in North Yorkshire, England (© R A Kearton/Getty Images)
 
 ![](images/2024-07/20240724_SheepCousins_1920x1080.jpg)
-
-#### 20240723 Methoni Castle, Messenia, Greece (© Andrew Mayovskyy/Shutterstock)
-
-![](images/2024-07/20240723_MethoniCastle_1920x1080.jpg)
 
 
 
