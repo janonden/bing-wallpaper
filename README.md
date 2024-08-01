@@ -2,7 +2,7 @@
 
 ![](images/2024-08/20240801_Nebuta_1920x1080.jpg)
 
-#### 20240801 卡普泰湖水上市场，兰加马蒂，孟加拉 (© Azim Khan Ronnie/Amazing Aerial Agency)
+#### 20240801 Floating market, Kaptai Lake, Rangamati, Bangladesh (© Azim Khan Ronnie/Amazing Aerial Agency)
 
 ![](images/2024-08/20240801_KaptaiLake_1920x1080.jpg)
 
