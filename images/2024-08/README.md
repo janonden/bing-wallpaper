@@ -1,4 +1,4 @@
-#### 20240802 象鼻湾，维尔京群岛国家公园，圣约翰岛 (© wheatley/Getty Images)
+#### 20240802 Trunk Bay, St. John, Virgin Islands National Park (© cdwheatley/Getty Images)
 
 ![](20240802_TrunkBay_1920x1080.jpg)
 
