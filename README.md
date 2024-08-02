@@ -2,6 +2,10 @@
 
 ![](images/2024-08/20240803_WulongKarst_1920x1080.jpg)
 
+#### 20240803 Sunset over Anse Champagne beach in Saint-François, Guadeloupe, Caribbean (© Fyletto/Getty Images)
+
+![](images/2024-08/20240803_SaintFrancois_1920x1080.jpg)
+
 #### 20240802 Trunk Bay, St. John, Virgin Islands National Park (© cdwheatley/Getty Images)
 
 ![](images/2024-08/20240802_TrunkBay_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240726 Coucher de soleil sur la Seine avec la Conciergerie, Paris (© Britus/iStock/Getty Images Plus)
 
 ![](images/2024-07/20240726_ParisOlympicGames_1920x1080.jpg)
-
-#### 20240725 Forest path in Great Smoky Mountains National Park, Tennessee (© putmanphoto/Getty Images)
-
-![](images/2024-07/20240725_SmokyMountainTrail_1920x1080.jpg)
 
 
 
