@@ -1,3 +1,7 @@
+#### 20240803 天生三桥，重庆武隆岩溶国家地质公园，中国 (© Pav-Pro Photography Ltd/Shutterstock)
+
+![](images/2024-08/20240803_WulongKarst_1920x1080.jpg)
+
 #### 20240802 Trunk Bay, St. John, Virgin Islands National Park (© cdwheatley/Getty Images)
 
 ![](images/2024-08/20240802_TrunkBay_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240725 Forest path in Great Smoky Mountains National Park, Tennessee (© putmanphoto/Getty Images)
 
 ![](images/2024-07/20240725_SmokyMountainTrail_1920x1080.jpg)
-
-#### 20240724 川越氷川神社, 埼玉県 川越市 (© Joshua Hawley/Shutterstock)
-
-![](images/2024-07/20240724_WindBell_1920x1080.jpg)
 
 
 
