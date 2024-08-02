@@ -2,6 +2,10 @@
 
 ![](20240802_TrunkBay_1920x1080.jpg)
 
+#### 20240802 A family of Canadian geese swimming in a lake in Banff National Park, Alberta (© Chase Dekker Wild-Life Images/Moment/Getty Images)
+
+![](20240802_GeesefamilyBanff_1920x1080.jpg)
+
 #### 20240801 豪華絢爛なねぷた, 青森県 弘前市 (© David Parker/Alamy)
 
 ![](20240801_Nebuta_1920x1080.jpg)

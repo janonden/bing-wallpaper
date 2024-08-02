@@ -2,6 +2,10 @@
 
 ![](images/2024-08/20240802_TrunkBay_1920x1080.jpg)
 
+#### 20240802 A family of Canadian geese swimming in a lake in Banff National Park, Alberta (© Chase Dekker Wild-Life Images/Moment/Getty Images)
+
+![](images/2024-08/20240802_GeesefamilyBanff_1920x1080.jpg)
+
 #### 20240801 豪華絢爛なねぷた, 青森県 弘前市 (© David Parker/Alamy)
 
 ![](images/2024-08/20240801_Nebuta_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240724 川越氷川神社, 埼玉県 川越市 (© Joshua Hawley/Shutterstock)
 
 ![](images/2024-07/20240724_WindBell_1920x1080.jpg)
-
-#### 20240724 Flock of Swaledale sheep in North Yorkshire, England (© R A Kearton/Getty Images)
-
-![](images/2024-07/20240724_SheepCousins_1920x1080.jpg)
 
 
 
