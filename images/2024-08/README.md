@@ -2,6 +2,10 @@
 
 ![](20240803_WulongKarst_1920x1080.jpg)
 
+#### 20240803 Faon chevreuil, Normandie (© slowmotiongli/Getty Images)
+
+![](20240803_SummerDeer_1920x1080.jpg)
+
 #### 20240803 Sunset over Anse Champagne beach in Saint-François, Guadeloupe, Caribbean (© Fyletto/Getty Images)
 
 ![](20240803_SaintFrancois_1920x1080.jpg)
