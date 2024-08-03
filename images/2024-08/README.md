@@ -1,4 +1,4 @@
-#### 20240803 天生三桥，重庆武隆岩溶国家地质公园，中国 (© Pav-Pro Photography Ltd/Shutterstock)
+#### 20240803 Three Natural Bridges, Wulong Karst National Geology Park, China (© Pav-Pro Photography Ltd/Shutterstock)
 
 ![](20240803_WulongKarst_1920x1080.jpg)
 
