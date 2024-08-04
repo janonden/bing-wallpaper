@@ -2,7 +2,7 @@
 
 ![](20240731_HoodoosBryce_1920x1080.jpg)
 
-#### 20240730 Impala et pic-bœuf à bec rouge, Afrique du Sud (© Matrishva Vyas/Getty Images)
+#### 20240730 Impala and red-billed oxpecker, South Africa (© Matrishva Vyas/Getty Images)
 
 ![](20240730_ImpalaOxpecker_1920x1080.jpg)
 
