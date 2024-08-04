@@ -1,3 +1,7 @@
+#### 20240804 Sellin Seebrücke, Sellin, Rügen (© SW Travel Imagery/Alamy Foto de stock)
+
+![](20240804_SellinSeebruecke_1920x1080.jpg)
+
 #### 20240803 Three Natural Bridges, Wulong Karst National Geology Park, China (© Pav-Pro Photography Ltd/Shutterstock)
 
 ![](20240803_WulongKarst_1920x1080.jpg)

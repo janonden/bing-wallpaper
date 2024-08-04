@@ -1,3 +1,7 @@
+#### 20240804 Sellin Seebrücke, Sellin, Rügen (© SW Travel Imagery/Alamy Foto de stock)
+
+![](images/2024-08/20240804_SellinSeebruecke_1920x1080.jpg)
+
 #### 20240803 Three Natural Bridges, Wulong Karst National Geology Park, China (© Pav-Pro Photography Ltd/Shutterstock)
 
 ![](images/2024-08/20240803_WulongKarst_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240727 Vineyards in the Mosel Valley, Rhineland-Palatinate, Germany (© Jorg Greuel/Getty Images)
 
 ![](images/2024-07/20240727_RhinelandVineyards_1920x1080.jpg)
-
-#### 20240726 Pont Neuf over the Seine, Paris, France (© f11photo/Getty Images)
-
-![](images/2024-07/20240726_PontNeuf_1920x1080.jpg)
 
 
 
