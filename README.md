@@ -1,3 +1,7 @@
+#### 20240805 薰衣草田，赫特福德郡 ，英格兰，英国 (© George W Johnson/Getty Images)
+
+![](images/2024-08/20240805_HertfordshireLavender_1920x1080.jpg)
+
 #### 20240804 Sellin Seebrücke, Sellin, Rügen (© SW Travel Imagery/Alamy Foto de stock)
 
 ![](images/2024-08/20240804_SellinSeebruecke_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240728 Bathing huts on the beach in Skåne County, Sweden (© Martin Wahlborg/Getty Images)
 
 ![](images/2024-07/20240728_BeachHutsSweden_1920x1080.jpg)
-
-#### 20240727 Vineyards in the Mosel Valley, Rhineland-Palatinate, Germany (© Jorg Greuel/Getty Images)
-
-![](images/2024-07/20240727_RhinelandVineyards_1920x1080.jpg)
 
 
 
