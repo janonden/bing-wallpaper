@@ -1,3 +1,11 @@
+#### 20240806 巨大な吹き流し, 宮城県 仙台市 (© rujin/Shutterstock)
+
+![](images/2024-08/20240806_SendaiTanabata_1920x1080.jpg)
+
+#### 20240806 莫洛基尼，毛伊岛，夏威夷，美国 (© Douglas Peebles/eStock Photo)
+
+![](images/2024-08/20240806_MolokiniHawaii_1920x1080.jpg)
+
 #### 20240805 Lavender field, Hertfordshire, England (© George W Johnson/Getty Images)
 
 ![](images/2024-08/20240805_HertfordshireLavender_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20240730 San Gimignano, Siena, Tuscany, Italy (© MNStudio/Shutterstock)
 
 ![](images/2024-07/20240730_GimignanoTuscany_1920x1080.jpg)
-
-#### 20240729 Tiger siblings in Jim Corbett National Park, Uttarakhand, India (© Sourabh Bharti/Getty Images)
-
-![](images/2024-07/20240729_CorbettTigers_1920x1080.jpg)
-
-#### 20240728 Bathing huts on the beach in Skåne County, Sweden (© Martin Wahlborg/Getty Images)
-
-![](images/2024-07/20240728_BeachHutsSweden_1920x1080.jpg)
 
 
 

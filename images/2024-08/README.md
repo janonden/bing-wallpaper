@@ -1,3 +1,11 @@
+#### 20240806 巨大な吹き流し, 宮城県 仙台市 (© rujin/Shutterstock)
+
+![](20240806_SendaiTanabata_1920x1080.jpg)
+
+#### 20240806 莫洛基尼，毛伊岛，夏威夷，美国 (© Douglas Peebles/eStock Photo)
+
+![](20240806_MolokiniHawaii_1920x1080.jpg)
+
 #### 20240805 Lavender field, Hertfordshire, England (© George W Johnson/Getty Images)
 
 ![](20240805_HertfordshireLavender_1920x1080.jpg)
