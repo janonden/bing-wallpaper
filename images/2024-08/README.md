@@ -1,4 +1,4 @@
-#### 20240805 薰衣草田，赫特福德郡 ，英格兰，英国 (© George W Johnson/Getty Images)
+#### 20240805 Lavender field, Hertfordshire, England (© George W Johnson/Getty Images)
 
 ![](20240805_HertfordshireLavender_1920x1080.jpg)
 
