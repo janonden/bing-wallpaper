@@ -1,3 +1,7 @@
+#### 20240807 圣约瑟夫北码头内灯和外灯，密歇根州，美国 (© Kenneth Keifer/Getty Images)
+
+![](20240807_MichiganLighthouse_1920x1080.jpg)
+
 #### 20240806 巨大な吹き流し, 宮城県 仙台市 (© rujin/Shutterstock)
 
 ![](20240806_SendaiTanabata_1920x1080.jpg)
