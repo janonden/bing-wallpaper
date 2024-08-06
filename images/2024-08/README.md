@@ -2,7 +2,7 @@
 
 ![](20240806_SendaiTanabata_1920x1080.jpg)
 
-#### 20240806 莫洛基尼，毛伊岛，夏威夷，美国 (© Douglas Peebles/eStock Photo)
+#### 20240806 Molokini Crater, Maui, Hawaii (© Douglas Peebles/eStock Photo)
 
 ![](20240806_MolokiniHawaii_1920x1080.jpg)
 
