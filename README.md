@@ -1,3 +1,7 @@
+#### 20240808 横斑腹小鸮，曼谷，泰国 (© Tfilm/Getty Images)
+
+![](images/2024-08/20240808_SpottedOwlet_1920x1080.jpg)
+
 #### 20240807 St. Joseph North Pier Inner and Outer Lights, Michigan (© Kenneth Keifer/Getty Images)
 
 ![](images/2024-08/20240807_MichiganLighthouse_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240730 Impala and red-billed oxpecker, South Africa (© Matrishva Vyas/Getty Images)
 
 ![](images/2024-07/20240730_ImpalaOxpecker_1920x1080.jpg)
-
-#### 20240730 Spielende Wolfswelpen in Deutschland (© Westend61/Getty Images)
-
-![](images/2024-07/20240730_GrayWolfPups_1920x1080.jpg)
 
 
 

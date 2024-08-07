@@ -1,3 +1,7 @@
+#### 20240808 横斑腹小鸮，曼谷，泰国 (© Tfilm/Getty Images)
+
+![](20240808_SpottedOwlet_1920x1080.jpg)
+
 #### 20240807 St. Joseph North Pier Inner and Outer Lights, Michigan (© Kenneth Keifer/Getty Images)
 
 ![](20240807_MichiganLighthouse_1920x1080.jpg)
