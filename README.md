@@ -1,4 +1,4 @@
-#### 20240807 圣约瑟夫北码头内灯和外灯，密歇根州，美国 (© Kenneth Keifer/Getty Images)
+#### 20240807 St. Joseph North Pier Inner and Outer Lights, Michigan (© Kenneth Keifer/Getty Images)
 
 ![](images/2024-08/20240807_MichiganLighthouse_1920x1080.jpg)
 
