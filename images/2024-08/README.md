@@ -1,4 +1,4 @@
-#### 20240808 横斑腹小鸮，曼谷，泰国 (© Tfilm/Getty Images)
+#### 20240808 Spotted owlet, Bangkok, Thailand (© Tfilm/Getty Images)
 
 ![](20240808_SpottedOwlet_1920x1080.jpg)
 
