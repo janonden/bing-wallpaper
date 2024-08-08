@@ -1,3 +1,7 @@
+#### 20240809 库斯科附近的萨克塞华曼印加遗址，秘鲁 (© SL_Photography/Getty Images)
+
+![](20240809_IncaRuinPeru_1920x1080.jpg)
+
 #### 20240808 Spotted owlet, Bangkok, Thailand (© Tfilm/Getty Images)
 
 ![](20240808_SpottedOwlet_1920x1080.jpg)

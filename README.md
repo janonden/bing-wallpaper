@@ -1,3 +1,7 @@
+#### 20240809 库斯科附近的萨克塞华曼印加遗址，秘鲁 (© SL_Photography/Getty Images)
+
+![](images/2024-08/20240809_IncaRuinPeru_1920x1080.jpg)
+
 #### 20240808 Spotted owlet, Bangkok, Thailand (© Tfilm/Getty Images)
 
 ![](images/2024-08/20240808_SpottedOwlet_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240731 Hoodoos, Sunset Point, Bryce Canyon National Park, Utah (© Tim Fitzharris/Minden Pictures)
 
 ![](images/2024-07/20240731_HoodoosBryce_1920x1080.jpg)
-
-#### 20240730 Impala and red-billed oxpecker, South Africa (© Matrishva Vyas/Getty Images)
-
-![](images/2024-07/20240730_ImpalaOxpecker_1920x1080.jpg)
 
 
 
