@@ -1,3 +1,11 @@
+#### 20240810 ケネディ湖州立公園, カナダ ブリティッシュコロンビア州 (© EB Adventure Photography/Shutterstock)
+
+![](images/2024-08/20240810_TofinoVancouver_1920x1080.jpg)
+
+#### 20240810 约书亚树国家公园，加利福尼亚州，美国 (© Chris Moore - Exploring Light Photography/TANDEM Stills + Motion)
+
+![](images/2024-08/20240810_JoshuaTreeNP_1920x1080.jpg)
+
 #### 20240809 Inca ruin of Sacsayhuamán near Cusco, Peru (© SL_Photography/Getty Images)
 
 ![](images/2024-08/20240809_IncaRuinPeru_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20240801 豪華絢爛なねぷた, 青森県 弘前市 (© David Parker/Alamy)
 
 ![](images/2024-08/20240801_Nebuta_1920x1080.jpg)
-
-#### 20240801 Floating market, Kaptai Lake, Rangamati, Bangladesh (© Azim Khan Ronnie/Amazing Aerial Agency)
-
-![](images/2024-08/20240801_KaptaiLake_1920x1080.jpg)
-
-#### 20240731 Hoodoos, Sunset Point, Bryce Canyon National Park, Utah (© Tim Fitzharris/Minden Pictures)
-
-![](images/2024-07/20240731_HoodoosBryce_1920x1080.jpg)
 
 
 

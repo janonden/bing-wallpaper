@@ -1,3 +1,11 @@
+#### 20240810 ケネディ湖州立公園, カナダ ブリティッシュコロンビア州 (© EB Adventure Photography/Shutterstock)
+
+![](20240810_TofinoVancouver_1920x1080.jpg)
+
+#### 20240810 约书亚树国家公园，加利福尼亚州，美国 (© Chris Moore - Exploring Light Photography/TANDEM Stills + Motion)
+
+![](20240810_JoshuaTreeNP_1920x1080.jpg)
+
 #### 20240809 Inca ruin of Sacsayhuamán near Cusco, Peru (© SL_Photography/Getty Images)
 
 ![](20240809_IncaRuinPeru_1920x1080.jpg)
