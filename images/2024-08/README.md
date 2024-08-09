@@ -1,4 +1,4 @@
-#### 20240809 库斯科附近的萨克塞华曼印加遗址，秘鲁 (© SL_Photography/Getty Images)
+#### 20240809 Inca ruin of Sacsayhuamán near Cusco, Peru (© SL_Photography/Getty Images)
 
 ![](20240809_IncaRuinPeru_1920x1080.jpg)
 
