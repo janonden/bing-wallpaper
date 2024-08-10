@@ -38,6 +38,10 @@
 
 ![](20240804_SellinSeebruecke_1920x1080.jpg)
 
+#### 20240804 San Gimignano, Sienne, Toscane, Italie (© MNStudio/Shutterstock)
+
+![](20240804_GimignanoTuscany_1920x1080.jpg)
+
 #### 20240803 Three Natural Bridges, Wulong Karst National Geology Park, China (© Pav-Pro Photography Ltd/Shutterstock)
 
 ![](20240803_WulongKarst_1920x1080.jpg)

@@ -38,6 +38,10 @@
 
 ![](images/2024-08/20240804_SellinSeebruecke_1920x1080.jpg)
 
+#### 20240804 San Gimignano, Sienne, Toscane, Italie (© MNStudio/Shutterstock)
+
+![](images/2024-08/20240804_GimignanoTuscany_1920x1080.jpg)
+
 #### 20240803 Three Natural Bridges, Wulong Karst National Geology Park, China (© Pav-Pro Photography Ltd/Shutterstock)
 
 ![](images/2024-08/20240803_WulongKarst_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240802 Trunk Bay, St. John, Virgin Islands National Park (© cdwheatley/Getty Images)
 
 ![](images/2024-08/20240802_TrunkBay_1920x1080.jpg)
-
-#### 20240802 A family of Canadian geese swimming in a lake in Banff National Park, Alberta (© Chase Dekker Wild-Life Images/Moment/Getty Images)
-
-![](images/2024-08/20240802_GeesefamilyBanff_1920x1080.jpg)
 
 
 
