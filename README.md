@@ -2,7 +2,7 @@
 
 ![](images/2024-08/20240810_TofinoVancouver_1920x1080.jpg)
 
-#### 20240810 约书亚树国家公园，加利福尼亚州，美国 (© Chris Moore - Exploring Light Photography/TANDEM Stills + Motion)
+#### 20240810 Joshua Tree National Park, California (© Chris Moore - Exploring Light Photography/Tandem Stills + Motion)
 
 ![](images/2024-08/20240810_JoshuaTreeNP_1920x1080.jpg)
 
