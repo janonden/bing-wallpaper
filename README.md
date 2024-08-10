@@ -1,3 +1,7 @@
+#### 20240811 草津白根山, 群馬県 吾妻郡 (© Twenty47studio/Getty Images)
+
+![](images/2024-08/20240811_MountainDay_1920x1080.jpg)
+
 #### 20240810 ケネディ湖州立公園, カナダ ブリティッシュコロンビア州 (© EB Adventure Photography/Shutterstock)
 
 ![](images/2024-08/20240810_TofinoVancouver_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240803 Sunset over Anse Champagne beach in Saint-François, Guadeloupe, Caribbean (© Fyletto/Getty Images)
 
 ![](images/2024-08/20240803_SaintFrancois_1920x1080.jpg)
-
-#### 20240802 Trunk Bay, St. John, Virgin Islands National Park (© cdwheatley/Getty Images)
-
-![](images/2024-08/20240802_TrunkBay_1920x1080.jpg)
 
 
 

@@ -1,3 +1,7 @@
+#### 20240811 草津白根山, 群馬県 吾妻郡 (© Twenty47studio/Getty Images)
+
+![](20240811_MountainDay_1920x1080.jpg)
+
 #### 20240810 ケネディ湖州立公園, カナダ ブリティッシュコロンビア州 (© EB Adventure Photography/Shutterstock)
 
 ![](20240810_TofinoVancouver_1920x1080.jpg)
