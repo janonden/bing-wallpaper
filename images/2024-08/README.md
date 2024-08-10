@@ -6,6 +6,10 @@
 
 ![](20240810_JoshuaTreeNP_1920x1080.jpg)
 
+#### 20240810 Luftaufnahme der Elbphilharmonie in Hamburg (© Michael Abid/Alamy)
+
+![](20240810_Elbphilharmonie_1920x1080.jpg)
+
 #### 20240809 Inca ruin of Sacsayhuamán near Cusco, Peru (© SL_Photography/Getty Images)
 
 ![](20240809_IncaRuinPeru_1920x1080.jpg)

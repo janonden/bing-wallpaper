@@ -6,6 +6,10 @@
 
 ![](images/2024-08/20240810_JoshuaTreeNP_1920x1080.jpg)
 
+#### 20240810 Luftaufnahme der Elbphilharmonie in Hamburg (© Michael Abid/Alamy)
+
+![](images/2024-08/20240810_Elbphilharmonie_1920x1080.jpg)
+
 #### 20240809 Inca ruin of Sacsayhuamán near Cusco, Peru (© SL_Photography/Getty Images)
 
 ![](images/2024-08/20240809_IncaRuinPeru_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240802 A family of Canadian geese swimming in a lake in Banff National Park, Alberta (© Chase Dekker Wild-Life Images/Moment/Getty Images)
 
 ![](images/2024-08/20240802_GeesefamilyBanff_1920x1080.jpg)
-
-#### 20240801 豪華絢爛なねぷた, 青森県 弘前市 (© David Parker/Alamy)
-
-![](images/2024-08/20240801_Nebuta_1920x1080.jpg)
 
 
 
