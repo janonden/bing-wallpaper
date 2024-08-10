@@ -42,6 +42,10 @@
 
 ![](images/2024-08/20240804_SellinSeebruecke_1920x1080.jpg)
 
+#### 20240804 Impala and red-billed oxpecker, South Africa (© Matrishva Vyas/Getty Images)
+
+![](images/2024-08/20240804_ImpalaOxpecker_1920x1080.jpg)
+
 #### 20240804 San Gimignano, Sienne, Toscane, Italie (© MNStudio/Shutterstock)
 
 ![](images/2024-08/20240804_GimignanoTuscany_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240803 Faon chevreuil, Normandie (© slowmotiongli/Getty Images)
 
 ![](images/2024-08/20240803_SummerDeer_1920x1080.jpg)
-
-#### 20240803 Sunset over Anse Champagne beach in Saint-François, Guadeloupe, Caribbean (© Fyletto/Getty Images)
-
-![](images/2024-08/20240803_SaintFrancois_1920x1080.jpg)
 
 
 

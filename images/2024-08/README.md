@@ -42,6 +42,10 @@
 
 ![](20240804_SellinSeebruecke_1920x1080.jpg)
 
+#### 20240804 Impala and red-billed oxpecker, South Africa (© Matrishva Vyas/Getty Images)
+
+![](20240804_ImpalaOxpecker_1920x1080.jpg)
+
 #### 20240804 San Gimignano, Sienne, Toscane, Italie (© MNStudio/Shutterstock)
 
 ![](20240804_GimignanoTuscany_1920x1080.jpg)
