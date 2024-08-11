@@ -1,3 +1,7 @@
+#### 20240812 非洲象，肯尼亚安博塞利国家公园 (© Ruzdi Ekenheim/Getty Images)
+
+![](images/2024-08/20240812_ElephantsAmboseli_1920x1080.jpg)
+
 #### 20240811 草津白根山, 群馬県 吾妻郡 (© Twenty47studio/Getty Images)
 
 ![](images/2024-08/20240811_MountainDay_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240803 Three Natural Bridges, Wulong Karst National Geology Park, China (© Pav-Pro Photography Ltd/Shutterstock)
 
 ![](images/2024-08/20240803_WulongKarst_1920x1080.jpg)
-
-#### 20240803 Faon chevreuil, Normandie (© slowmotiongli/Getty Images)
-
-![](images/2024-08/20240803_SummerDeer_1920x1080.jpg)
 
 
 

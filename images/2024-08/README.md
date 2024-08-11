@@ -1,3 +1,7 @@
+#### 20240812 非洲象，肯尼亚安博塞利国家公园 (© Ruzdi Ekenheim/Getty Images)
+
+![](20240812_ElephantsAmboseli_1920x1080.jpg)
+
 #### 20240811 草津白根山, 群馬県 吾妻郡 (© Twenty47studio/Getty Images)
 
 ![](20240811_MountainDay_1920x1080.jpg)
