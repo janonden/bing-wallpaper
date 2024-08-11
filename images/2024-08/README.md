@@ -2,7 +2,7 @@
 
 ![](20240811_MountainDay_1920x1080.jpg)
 
-#### 20240810 ケネディ湖州立公園, カナダ ブリティッシュコロンビア州 (© EB Adventure Photography/Shutterstock)
+#### 20240810 Wooden path to Kennedy Lake, Vancouver Island, BC, Canada (© EB Adventure Photography/Shutterstock)
 
 ![](20240810_TofinoVancouver_1920x1080.jpg)
 
