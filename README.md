@@ -1,4 +1,4 @@
-#### 20240812 非洲象，肯尼亚安博塞利国家公园 (© Ruzdi Ekenheim/Getty Images)
+#### 20240812 African elephants, Amboseli National Park, Kenya (© Ruzdi Ekenheim/Getty Images)
 
 ![](images/2024-08/20240812_ElephantsAmboseli_1920x1080.jpg)
 
