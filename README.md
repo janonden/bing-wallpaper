@@ -1,3 +1,7 @@
+#### 20240813 特拉斯契卡自然公园悬崖，杜吉奥托克岛，克罗地亚 (© Ilija Ascic/Shutterstock)
+
+![](images/2024-08/20240813_DugiOtokCroatia_1920x1080.jpg)
+
 #### 20240812 African elephants, Amboseli National Park, Kenya (© Ruzdi Ekenheim/Getty Images)
 
 ![](images/2024-08/20240812_ElephantsAmboseli_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240804 San Gimignano, Sienne, Toscane, Italie (© MNStudio/Shutterstock)
 
 ![](images/2024-08/20240804_GimignanoTuscany_1920x1080.jpg)
-
-#### 20240803 Three Natural Bridges, Wulong Karst National Geology Park, China (© Pav-Pro Photography Ltd/Shutterstock)
-
-![](images/2024-08/20240803_WulongKarst_1920x1080.jpg)
 
 
 

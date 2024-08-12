@@ -1,3 +1,7 @@
+#### 20240813 特拉斯契卡自然公园悬崖，杜吉奥托克岛，克罗地亚 (© Ilija Ascic/Shutterstock)
+
+![](20240813_DugiOtokCroatia_1920x1080.jpg)
+
 #### 20240812 African elephants, Amboseli National Park, Kenya (© Ruzdi Ekenheim/Getty Images)
 
 ![](20240812_ElephantsAmboseli_1920x1080.jpg)
