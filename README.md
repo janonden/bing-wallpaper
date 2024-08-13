@@ -1,3 +1,7 @@
+#### 20240813 Citadelle de Port Louis, Lorient, Morbihan, France (© Philippe TURPIN/Getty Images)
+
+![](images/2024-08/20240813_LorientCelticFestival_1920x1080.jpg)
+
 #### 20240813 特拉斯契卡自然公园悬崖，杜吉奥托克岛，克罗地亚 (© Ilija Ascic/Shutterstock)
 
 ![](images/2024-08/20240813_DugiOtokCroatia_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240804 Impala and red-billed oxpecker, South Africa (© Matrishva Vyas/Getty Images)
 
 ![](images/2024-08/20240804_ImpalaOxpecker_1920x1080.jpg)
-
-#### 20240804 San Gimignano, Sienne, Toscane, Italie (© MNStudio/Shutterstock)
-
-![](images/2024-08/20240804_GimignanoTuscany_1920x1080.jpg)
 
 
 
