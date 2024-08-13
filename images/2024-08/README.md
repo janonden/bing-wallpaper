@@ -1,3 +1,7 @@
+#### 20240814 澳洲魔蜥，瓦塔卡国家公园，澳大利亚 (© Yva Momatiuk and John Eastcott/Minden Pictures)
+
+![](20240814_WatarrkaLizard_1920x1080.jpg)
+
 #### 20240813 Citadelle de Port Louis, Lorient, Morbihan, France (© Philippe TURPIN/Getty Images)
 
 ![](20240813_LorientCelticFestival_1920x1080.jpg)

@@ -1,3 +1,7 @@
+#### 20240814 澳洲魔蜥，瓦塔卡国家公园，澳大利亚 (© Yva Momatiuk and John Eastcott/Minden Pictures)
+
+![](images/2024-08/20240814_WatarrkaLizard_1920x1080.jpg)
+
 #### 20240813 Citadelle de Port Louis, Lorient, Morbihan, France (© Philippe TURPIN/Getty Images)
 
 ![](images/2024-08/20240813_LorientCelticFestival_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240804 Sellin Seebrücke, Sellin, Rügen (© SW Travel Imagery/Alamy Foto de stock)
 
 ![](images/2024-08/20240804_SellinSeebruecke_1920x1080.jpg)
-
-#### 20240804 Impala and red-billed oxpecker, South Africa (© Matrishva Vyas/Getty Images)
-
-![](images/2024-08/20240804_ImpalaOxpecker_1920x1080.jpg)
 
 
 
