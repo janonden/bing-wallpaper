@@ -1,4 +1,4 @@
-#### 20240814 澳洲魔蜥，瓦塔卡国家公园，澳大利亚 (© Yva Momatiuk and John Eastcott/Minden Pictures)
+#### 20240814 Thorny devil, Watarrka National Park, Australia (© Yva Momatiuk and John Eastcott/Minden Pictures)
 
 ![](images/2024-08/20240814_WatarrkaLizard_1920x1080.jpg)
 
