@@ -1,3 +1,7 @@
+#### 20240815 韩松洞，风牙者榜国家公园，越南 (© Geng Xu/Getty Images)
+
+![](images/2024-08/20240815_HangCave_1920x1080.jpg)
+
 #### 20240814 Thorny devil, Watarrka National Park, Australia (© Yva Momatiuk and John Eastcott/Minden Pictures)
 
 ![](images/2024-08/20240814_WatarrkaLizard_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240805 Lavender field, Hertfordshire, England (© George W Johnson/Getty Images)
 
 ![](images/2024-08/20240805_HertfordshireLavender_1920x1080.jpg)
-
-#### 20240804 Sellin Seebrücke, Sellin, Rügen (© SW Travel Imagery/Alamy Foto de stock)
-
-![](images/2024-08/20240804_SellinSeebruecke_1920x1080.jpg)
 
 
 
