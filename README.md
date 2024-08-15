@@ -1,3 +1,11 @@
+#### 20240816 长岛温泉乐园的过山车，三重县，日本 (© Japanese amateur photographer/Getty Images)
+
+![](images/2024-08/20240816_JapanRollerCoaster_1920x1080.jpg)
+
+#### 20240816 大文字山の大文字, 京都 (© Masako Ishida/Getty Images)
+
+![](images/2024-08/20240816_Gozan_1920x1080.jpg)
+
 #### 20240815 Hang Sơn Đoòng cave, Phong Nha-Kẻ Bàng National Park, Vietnam (© Geng Xu/Getty Images)
 
 ![](images/2024-08/20240815_HangCave_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20240806 巨大な吹き流し, 宮城県 仙台市 (© rujin/Shutterstock)
 
 ![](images/2024-08/20240806_SendaiTanabata_1920x1080.jpg)
-
-#### 20240806 Molokini Crater, Maui, Hawaii (© Douglas Peebles/eStock Photo)
-
-![](images/2024-08/20240806_MolokiniHawaii_1920x1080.jpg)
-
-#### 20240805 Lavender field, Hertfordshire, England (© George W Johnson/Getty Images)
-
-![](images/2024-08/20240805_HertfordshireLavender_1920x1080.jpg)
 
 
 

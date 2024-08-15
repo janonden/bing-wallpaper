@@ -1,3 +1,11 @@
+#### 20240816 长岛温泉乐园的过山车，三重县，日本 (© Japanese amateur photographer/Getty Images)
+
+![](20240816_JapanRollerCoaster_1920x1080.jpg)
+
+#### 20240816 大文字山の大文字, 京都 (© Masako Ishida/Getty Images)
+
+![](20240816_Gozan_1920x1080.jpg)
+
 #### 20240815 Hang Sơn Đoòng cave, Phong Nha-Kẻ Bàng National Park, Vietnam (© Geng Xu/Getty Images)
 
 ![](20240815_HangCave_1920x1080.jpg)
