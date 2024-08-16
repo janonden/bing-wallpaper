@@ -6,6 +6,10 @@
 
 ![](images/2024-08/20240816_Gozan_1920x1080.jpg)
 
+#### 20240816 Canadian International Air Show at the Canadian National Exhibition, in Toronto, Ontario (© Tony Florio/Alamy Stock Photo)
+
+![](images/2024-08/20240816_CNE_1920x1080.jpg)
+
 #### 20240816 Papillon et fleur de lavande au lever du soleil, France (© Konstanttin/Getty Images)
 
 ![](images/2024-08/20240816_ButterflyFlower_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240808 Spotted owlet, Bangkok, Thailand (© Tfilm/Getty Images)
 
 ![](images/2024-08/20240808_SpottedOwlet_1920x1080.jpg)
-
-#### 20240807 St. Joseph North Pier Inner and Outer Lights, Michigan (© Kenneth Keifer/Getty Images)
-
-![](images/2024-08/20240807_MichiganLighthouse_1920x1080.jpg)
 
 
 

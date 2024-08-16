@@ -6,6 +6,10 @@
 
 ![](20240816_Gozan_1920x1080.jpg)
 
+#### 20240816 Canadian International Air Show at the Canadian National Exhibition, in Toronto, Ontario (© Tony Florio/Alamy Stock Photo)
+
+![](20240816_CNE_1920x1080.jpg)
+
 #### 20240816 Papillon et fleur de lavande au lever du soleil, France (© Konstanttin/Getty Images)
 
 ![](20240816_ButterflyFlower_1920x1080.jpg)
