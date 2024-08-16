@@ -1,3 +1,7 @@
+#### 20240817 阿尔凡齐纳灯塔，阿尔加维，葡萄牙 (© Andreas Kunz/Getty Images)
+
+![](20240817_AlfanzinaLighthouse_1920x1080.jpg)
+
 #### 20240816 Roller coaster in Nagashima Spa Land, Mie prefecture, Japan (© Japanese amateur photographer/Getty Images)
 
 ![](20240816_JapanRollerCoaster_1920x1080.jpg)

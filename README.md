@@ -1,3 +1,7 @@
+#### 20240817 阿尔凡齐纳灯塔，阿尔加维，葡萄牙 (© Andreas Kunz/Getty Images)
+
+![](images/2024-08/20240817_AlfanzinaLighthouse_1920x1080.jpg)
+
 #### 20240816 Roller coaster in Nagashima Spa Land, Mie prefecture, Japan (© Japanese amateur photographer/Getty Images)
 
 ![](images/2024-08/20240816_JapanRollerCoaster_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240809 Inca ruin of Sacsayhuamán near Cusco, Peru (© SL_Photography/Getty Images)
 
 ![](images/2024-08/20240809_IncaRuinPeru_1920x1080.jpg)
-
-#### 20240808 Spotted owlet, Bangkok, Thailand (© Tfilm/Getty Images)
-
-![](images/2024-08/20240808_SpottedOwlet_1920x1080.jpg)
 
 
 
