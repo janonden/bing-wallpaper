@@ -1,4 +1,4 @@
-#### 20240816 长岛温泉乐园的过山车，三重县，日本 (© Japanese amateur photographer/Getty Images)
+#### 20240816 Roller coaster in Nagashima Spa Land, Mie prefecture, Japan (© Japanese amateur photographer/Getty Images)
 
 ![](20240816_JapanRollerCoaster_1920x1080.jpg)
 
