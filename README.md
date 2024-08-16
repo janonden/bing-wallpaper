@@ -6,6 +6,10 @@
 
 ![](images/2024-08/20240816_Gozan_1920x1080.jpg)
 
+#### 20240816 Papillon et fleur de lavande au lever du soleil, France (© Konstanttin/Getty Images)
+
+![](images/2024-08/20240816_ButterflyFlower_1920x1080.jpg)
+
 #### 20240815 Hang Sơn Đoòng cave, Phong Nha-Kẻ Bàng National Park, Vietnam (© Geng Xu/Getty Images)
 
 ![](images/2024-08/20240815_HangCave_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240807 St. Joseph North Pier Inner and Outer Lights, Michigan (© Kenneth Keifer/Getty Images)
 
 ![](images/2024-08/20240807_MichiganLighthouse_1920x1080.jpg)
-
-#### 20240806 巨大な吹き流し, 宮城県 仙台市 (© rujin/Shutterstock)
-
-![](images/2024-08/20240806_SendaiTanabata_1920x1080.jpg)
 
 
 

@@ -6,6 +6,10 @@
 
 ![](20240816_Gozan_1920x1080.jpg)
 
+#### 20240816 Papillon et fleur de lavande au lever du soleil, France (© Konstanttin/Getty Images)
+
+![](20240816_ButterflyFlower_1920x1080.jpg)
+
 #### 20240815 Hang Sơn Đoòng cave, Phong Nha-Kẻ Bàng National Park, Vietnam (© Geng Xu/Getty Images)
 
 ![](20240815_HangCave_1920x1080.jpg)
