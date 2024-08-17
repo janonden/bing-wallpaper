@@ -1,4 +1,4 @@
-#### 20240817 阿尔凡齐纳灯塔，阿尔加维，葡萄牙 (© Andreas Kunz/Getty Images)
+#### 20240817 Alfanzina Lighthouse, Algarve, Portugal (© Andreas Kunz/Getty Images)
 
 ![](images/2024-08/20240817_AlfanzinaLighthouse_1920x1080.jpg)
 
