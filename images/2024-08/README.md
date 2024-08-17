@@ -1,3 +1,7 @@
+#### 20240818 日落时的亨廷顿海滩码头，加利福尼亚州，美国 (© Stan Moniz Photography/TANDEM Stills + Motion)
+
+![](20240818_HuntingtonBeach_1920x1080.jpg)
+
 #### 20240817 Alfanzina Lighthouse, Algarve, Portugal (© Andreas Kunz/Getty Images)
 
 ![](20240817_AlfanzinaLighthouse_1920x1080.jpg)

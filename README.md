@@ -1,3 +1,7 @@
+#### 20240818 日落时的亨廷顿海滩码头，加利福尼亚州，美国 (© Stan Moniz Photography/TANDEM Stills + Motion)
+
+![](images/2024-08/20240818_HuntingtonBeach_1920x1080.jpg)
+
 #### 20240817 Alfanzina Lighthouse, Algarve, Portugal (© Andreas Kunz/Getty Images)
 
 ![](images/2024-08/20240817_AlfanzinaLighthouse_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240810 Luftaufnahme der Elbphilharmonie in Hamburg (© Michael Abid/Alamy)
 
 ![](images/2024-08/20240810_Elbphilharmonie_1920x1080.jpg)
-
-#### 20240809 Inca ruin of Sacsayhuamán near Cusco, Peru (© SL_Photography/Getty Images)
-
-![](images/2024-08/20240809_IncaRuinPeru_1920x1080.jpg)
 
 
 
