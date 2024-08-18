@@ -1,3 +1,7 @@
+#### 20240819 Bufadero de la Garita，大加那利岛，西班牙 (© Marco Bottigelli/Getty Images)
+
+![](images/2024-08/20240819_RegataSanGines_1920x1080.jpg)
+
 #### 20240818 Huntington Beach Pier, California, at sunset (© Stan Moniz Photography/Tandem Stills + Motion)
 
 ![](images/2024-08/20240818_HuntingtonBeach_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240810 Wooden path to Kennedy Lake, Vancouver Island, BC, Canada (© EB Adventure Photography/Shutterstock)
 
 ![](images/2024-08/20240810_TofinoVancouver_1920x1080.jpg)
-
-#### 20240810 Joshua Tree National Park, California (© Chris Moore - Exploring Light Photography/Tandem Stills + Motion)
-
-![](images/2024-08/20240810_JoshuaTreeNP_1920x1080.jpg)
 
 
 

@@ -1,3 +1,7 @@
+#### 20240819 Bufadero de la Garita，大加那利岛，西班牙 (© Marco Bottigelli/Getty Images)
+
+![](20240819_RegataSanGines_1920x1080.jpg)
+
 #### 20240818 Huntington Beach Pier, California, at sunset (© Stan Moniz Photography/Tandem Stills + Motion)
 
 ![](20240818_HuntingtonBeach_1920x1080.jpg)
