@@ -1,4 +1,4 @@
-#### 20240818 日落时的亨廷顿海滩码头，加利福尼亚州，美国 (© Stan Moniz Photography/TANDEM Stills + Motion)
+#### 20240818 Huntington Beach Pier, California, at sunset (© Stan Moniz Photography/Tandem Stills + Motion)
 
 ![](images/2024-08/20240818_HuntingtonBeach_1920x1080.jpg)
 
