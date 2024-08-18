@@ -2,6 +2,10 @@
 
 ![](20240818_HuntingtonBeach_1920x1080.jpg)
 
+#### 20240818 Externsteine im Teutoburger Wald, Nordrhein-Westfalen (© MoJoLo/Panther Media GmbH/Alamy Stock Photo)
+
+![](20240818_ExternsteineTeutoburg_1920x1080.jpg)
+
 #### 20240817 Alfanzina Lighthouse, Algarve, Portugal (© Andreas Kunz/Getty Images)
 
 ![](20240817_AlfanzinaLighthouse_1920x1080.jpg)

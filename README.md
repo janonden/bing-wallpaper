@@ -2,6 +2,10 @@
 
 ![](images/2024-08/20240818_HuntingtonBeach_1920x1080.jpg)
 
+#### 20240818 Externsteine im Teutoburger Wald, Nordrhein-Westfalen (© MoJoLo/Panther Media GmbH/Alamy Stock Photo)
+
+![](images/2024-08/20240818_ExternsteineTeutoburg_1920x1080.jpg)
+
 #### 20240817 Alfanzina Lighthouse, Algarve, Portugal (© Andreas Kunz/Getty Images)
 
 ![](images/2024-08/20240817_AlfanzinaLighthouse_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240810 Joshua Tree National Park, California (© Chris Moore - Exploring Light Photography/Tandem Stills + Motion)
 
 ![](images/2024-08/20240810_JoshuaTreeNP_1920x1080.jpg)
-
-#### 20240810 Luftaufnahme der Elbphilharmonie in Hamburg (© Michael Abid/Alamy)
-
-![](images/2024-08/20240810_Elbphilharmonie_1920x1080.jpg)
 
 
 
