@@ -1,3 +1,7 @@
+#### 20240819 Two Atlantic puffins, Elliston, Newfoundland, Canada (© Daphne Roberts Photography/Getty Images)
+
+![](20240819_TwoPuffins_1920x1080.jpg)
+
 #### 20240819 Bufadero de la Garita，大加那利岛，西班牙 (© Marco Bottigelli/Getty Images)
 
 ![](20240819_RegataSanGines_1920x1080.jpg)

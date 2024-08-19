@@ -1,3 +1,7 @@
+#### 20240819 Two Atlantic puffins, Elliston, Newfoundland, Canada (© Daphne Roberts Photography/Getty Images)
+
+![](images/2024-08/20240819_TwoPuffins_1920x1080.jpg)
+
 #### 20240819 Bufadero de la Garita，大加那利岛，西班牙 (© Marco Bottigelli/Getty Images)
 
 ![](images/2024-08/20240819_RegataSanGines_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240811 草津白根山, 群馬県 吾妻郡 (© Twenty47studio/Getty Images)
 
 ![](images/2024-08/20240811_MountainDay_1920x1080.jpg)
-
-#### 20240810 Wooden path to Kennedy Lake, Vancouver Island, BC, Canada (© EB Adventure Photography/Shutterstock)
-
-![](images/2024-08/20240810_TofinoVancouver_1920x1080.jpg)
 
 
 
