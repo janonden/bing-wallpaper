@@ -1,3 +1,7 @@
+#### 20240820 大提顿国家公园日出,怀俄明州,美国 (© Kurt Budliger/TANDEM Stills + Motion)
+
+![](20240820_TetonSunrise_1920x1080.jpg)
+
 #### 20240819 Two Atlantic puffins, Elliston, Newfoundland, Canada (© Daphne Roberts Photography/Getty Images)
 
 ![](20240819_TwoPuffins_1920x1080.jpg)

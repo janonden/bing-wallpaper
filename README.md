@@ -1,3 +1,7 @@
+#### 20240820 大提顿国家公园日出,怀俄明州,美国 (© Kurt Budliger/TANDEM Stills + Motion)
+
+![](images/2024-08/20240820_TetonSunrise_1920x1080.jpg)
+
 #### 20240819 Two Atlantic puffins, Elliston, Newfoundland, Canada (© Daphne Roberts Photography/Getty Images)
 
 ![](images/2024-08/20240819_TwoPuffins_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240813 Cliffs of Telašćica Nature Park, Dugi Otok Island, Croatia (© Ilija Ascic/Shutterstock)
 
 ![](images/2024-08/20240813_DugiOtokCroatia_1920x1080.jpg)
-
-#### 20240812 African elephants, Amboseli National Park, Kenya (© Ruzdi Ekenheim/Getty Images)
-
-![](images/2024-08/20240812_ElephantsAmboseli_1920x1080.jpg)
 
 
 
