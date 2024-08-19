@@ -6,6 +6,10 @@
 
 ![](20240819_RegataSanGines_1920x1080.jpg)
 
+#### 20240819 Museum of Flight, Seattle, Washington (© George Rose/Getty Images)
+
+![](20240819_FlightMuseum_1920x1080.jpg)
+
 #### 20240818 Huntington Beach Pier, California, at sunset (© Stan Moniz Photography/Tandem Stills + Motion)
 
 ![](20240818_HuntingtonBeach_1920x1080.jpg)

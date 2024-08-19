@@ -6,6 +6,10 @@
 
 ![](images/2024-08/20240819_RegataSanGines_1920x1080.jpg)
 
+#### 20240819 Museum of Flight, Seattle, Washington (© George Rose/Getty Images)
+
+![](images/2024-08/20240819_FlightMuseum_1920x1080.jpg)
+
 #### 20240818 Huntington Beach Pier, California, at sunset (© Stan Moniz Photography/Tandem Stills + Motion)
 
 ![](images/2024-08/20240818_HuntingtonBeach_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240812 African elephants, Amboseli National Park, Kenya (© Ruzdi Ekenheim/Getty Images)
 
 ![](images/2024-08/20240812_ElephantsAmboseli_1920x1080.jpg)
-
-#### 20240811 草津白根山, 群馬県 吾妻郡 (© Twenty47studio/Getty Images)
-
-![](images/2024-08/20240811_MountainDay_1920x1080.jpg)
 
 
 
