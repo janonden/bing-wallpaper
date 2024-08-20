@@ -1,4 +1,4 @@
-#### 20240820 大提顿国家公园日出,怀俄明州,美国 (© Kurt Budliger/TANDEM Stills + Motion)
+#### 20240820 Sunrise at Grand Teton National Park, Wyoming (© Kurt Budliger/Tandem Stills + Motion)
 
 ![](20240820_TetonSunrise_1920x1080.jpg)
 
