@@ -1,3 +1,7 @@
+#### 20240821 纳斯卡鲣鸟，沃尔夫岛，加拉帕戈斯群岛，厄瓜多尔 (© Tui De Roy/Minden Pictures)
+
+![](20240821_NazcaBooby_1920x1080.jpg)
+
 #### 20240820 Sunrise at Grand Teton National Park, Wyoming (© Kurt Budliger/Tandem Stills + Motion)
 
 ![](20240820_TetonSunrise_1920x1080.jpg)

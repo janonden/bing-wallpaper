@@ -1,3 +1,7 @@
+#### 20240821 纳斯卡鲣鸟，沃尔夫岛，加拉帕戈斯群岛，厄瓜多尔 (© Tui De Roy/Minden Pictures)
+
+![](images/2024-08/20240821_NazcaBooby_1920x1080.jpg)
+
 #### 20240820 Sunrise at Grand Teton National Park, Wyoming (© Kurt Budliger/Tandem Stills + Motion)
 
 ![](images/2024-08/20240820_TetonSunrise_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240813 Citadelle de Port Louis, Lorient, Morbihan, France (© Philippe TURPIN/Getty Images)
 
 ![](images/2024-08/20240813_LorientCelticFestival_1920x1080.jpg)
-
-#### 20240813 Cliffs of Telašćica Nature Park, Dugi Otok Island, Croatia (© Ilija Ascic/Shutterstock)
-
-![](images/2024-08/20240813_DugiOtokCroatia_1920x1080.jpg)
 
 
 
