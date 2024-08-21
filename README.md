@@ -1,4 +1,4 @@
-#### 20240821 纳斯卡鲣鸟，沃尔夫岛，加拉帕戈斯群岛，厄瓜多尔 (© Tui De Roy/Minden Pictures)
+#### 20240821 Nazca boobies, Wolf Island, Galápagos Islands, Ecuador (© Tui De Roy/Minden Pictures)
 
 ![](images/2024-08/20240821_NazcaBooby_1920x1080.jpg)
 
