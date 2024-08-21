@@ -1,3 +1,7 @@
+#### 20240822 海洋城日出时的鸟瞰图，马里兰州，美国 (© Kevin Olson/Amazing Aerial Agency)
+
+![](images/2024-08/20240822_OceanCityMD_1920x1080.jpg)
+
 #### 20240821 Nazca boobies, Wolf Island, Galápagos Islands, Ecuador (© Tui De Roy/Minden Pictures)
 
 ![](images/2024-08/20240821_NazcaBooby_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240814 Thorny devil, Watarrka National Park, Australia (© Yva Momatiuk and John Eastcott/Minden Pictures)
 
 ![](images/2024-08/20240814_WatarrkaLizard_1920x1080.jpg)
-
-#### 20240813 Citadelle de Port Louis, Lorient, Morbihan, France (© Philippe TURPIN/Getty Images)
-
-![](images/2024-08/20240813_LorientCelticFestival_1920x1080.jpg)
 
 
 

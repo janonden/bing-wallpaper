@@ -1,3 +1,7 @@
+#### 20240822 海洋城日出时的鸟瞰图，马里兰州，美国 (© Kevin Olson/Amazing Aerial Agency)
+
+![](20240822_OceanCityMD_1920x1080.jpg)
+
 #### 20240821 Nazca boobies, Wolf Island, Galápagos Islands, Ecuador (© Tui De Roy/Minden Pictures)
 
 ![](20240821_NazcaBooby_1920x1080.jpg)
