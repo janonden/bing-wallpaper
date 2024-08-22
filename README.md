@@ -1,4 +1,4 @@
-#### 20240822 海洋城日出时的鸟瞰图，马里兰州，美国 (© Kevin Olson/Amazing Aerial Agency)
+#### 20240822 Ocean City, Maryland, at sunrise (© Kevin Olson/Amazing Aerial Agency)
 
 ![](images/2024-08/20240822_OceanCityMD_1920x1080.jpg)
 
