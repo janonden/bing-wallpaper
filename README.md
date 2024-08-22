@@ -1,3 +1,11 @@
+#### 20240823 帕侬蓝寺，武里南府，泰国 (© Banjongseal324/Getty Images)
+
+![](images/2024-08/20240823_PrasatPhanom_1920x1080.jpg)
+
+#### 20240823 厳島神社, 広島県 廿日市市 (© Matsuo Sato/Shutterstock)
+
+![](images/2024-08/20240823_Fireworks_1920x1080.jpg)
+
 #### 20240822 Ocean City, Maryland, at sunrise (© Kevin Olson/Amazing Aerial Agency)
 
 ![](images/2024-08/20240822_OceanCityMD_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20240816 Papillon et fleur de lavande au lever du soleil, France (© Konstanttin/Getty Images)
 
 ![](images/2024-08/20240816_ButterflyFlower_1920x1080.jpg)
-
-#### 20240815 Hang Sơn Đoòng cave, Phong Nha-Kẻ Bàng National Park, Vietnam (© Geng Xu/Getty Images)
-
-![](images/2024-08/20240815_HangCave_1920x1080.jpg)
-
-#### 20240814 Thorny devil, Watarrka National Park, Australia (© Yva Momatiuk and John Eastcott/Minden Pictures)
-
-![](images/2024-08/20240814_WatarrkaLizard_1920x1080.jpg)
 
 
 

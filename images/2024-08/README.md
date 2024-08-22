@@ -1,3 +1,11 @@
+#### 20240823 帕侬蓝寺，武里南府，泰国 (© Banjongseal324/Getty Images)
+
+![](20240823_PrasatPhanom_1920x1080.jpg)
+
+#### 20240823 厳島神社, 広島県 廿日市市 (© Matsuo Sato/Shutterstock)
+
+![](20240823_Fireworks_1920x1080.jpg)
+
 #### 20240822 Ocean City, Maryland, at sunrise (© Kevin Olson/Amazing Aerial Agency)
 
 ![](20240822_OceanCityMD_1920x1080.jpg)
