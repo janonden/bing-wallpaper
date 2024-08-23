@@ -1,4 +1,4 @@
-#### 20240823 帕侬蓝寺，武里南府，泰国 (© Banjongseal324/Getty Images)
+#### 20240823 Prasat Phanom Rung temple ruins, Buriram province, Thailand (© Banjongseal324/Getty Images)
 
 ![](images/2024-08/20240823_PrasatPhanom_1920x1080.jpg)
 
