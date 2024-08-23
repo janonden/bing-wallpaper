@@ -1,3 +1,11 @@
+#### 20240824 卡塔丁森林和水域国家纪念碑，佩诺布斯科特县，缅因州，美国 (© Cavan Images/Alamy Stock Photo)
+
+![](images/2024-08/20240824_KatahdinWoods_1920x1080.jpg)
+
+#### 20240824 三千院のわらべ地蔵, 京都 (© Klaus-Werner Friedrich/Alamy)
+
+![](images/2024-08/20240824_JizoFestival_1920x1080.jpg)
+
 #### 20240823 Prasat Phanom Rung temple ruins, Buriram province, Thailand (© Banjongseal324/Getty Images)
 
 ![](images/2024-08/20240823_PrasatPhanom_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20240816 大文字山の大文字, 京都 (© Masako Ishida/Getty Images)
 
 ![](images/2024-08/20240816_Gozan_1920x1080.jpg)
-
-#### 20240816 Canadian International Air Show at the Canadian National Exhibition, in Toronto, Ontario (© Tony Florio/Alamy Stock Photo)
-
-![](images/2024-08/20240816_CNE_1920x1080.jpg)
-
-#### 20240816 Papillon et fleur de lavande au lever du soleil, France (© Konstanttin/Getty Images)
-
-![](images/2024-08/20240816_ButterflyFlower_1920x1080.jpg)
 
 
 
