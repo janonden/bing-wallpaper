@@ -1,3 +1,7 @@
+#### 20240825 急流湖的日出，冰川国家公园，蒙大拿州，美国 (© Jason Savage/Tandem Stills + Motion)
+
+![](images/2024-08/20240825_SwiftcurrentLake_1920x1080.jpg)
+
 #### 20240824 Museumsinsel auf der Spree und Fernsehturm, Berlin (© TomasSereda/Getty Images)
 
 ![](images/2024-08/20240824_MuseumsinselSpree_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240817 Alfanzina Lighthouse, Algarve, Portugal (© Andreas Kunz/Getty Images)
 
 ![](images/2024-08/20240817_AlfanzinaLighthouse_1920x1080.jpg)
-
-#### 20240816 Roller coaster in Nagashima Spa Land, Mie prefecture, Japan (© Japanese amateur photographer/Getty Images)
-
-![](images/2024-08/20240816_JapanRollerCoaster_1920x1080.jpg)
 
 
 
