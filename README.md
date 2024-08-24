@@ -2,7 +2,7 @@
 
 ![](images/2024-08/20240824_MuseumsinselSpree_1920x1080.jpg)
 
-#### 20240824 卡塔丁森林和水域国家纪念碑，佩诺布斯科特县，缅因州，美国 (© Cavan Images/Alamy Stock Photo)
+#### 20240824 Katahdin Woods and Waters National Monument, Penobscot County, Maine (© Cavan Images/Alamy)
 
 ![](images/2024-08/20240824_KatahdinWoods_1920x1080.jpg)
 
