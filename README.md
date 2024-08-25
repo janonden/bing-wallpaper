@@ -1,3 +1,11 @@
+#### 20240825 Drohnenansicht der Weinberge im Remstal, Baden-Württemberg (© Westend61/Getty Images)
+
+![](images/2024-08/20240825_VineyardsinRemstalvalley_1920x1080.jpg)
+
+#### 20240825 Reflet du ciel sur le lac Blanc, Alpes françaises, Monte Bianco en arrière-plan, Chamonix (© Smitt/Getty Image)
+
+![](images/2024-08/20240825_TrailMontBlanc_1920x1080.jpg)
+
 #### 20240825 急流湖的日出，冰川国家公园，蒙大拿州，美国 (© Jason Savage/Tandem Stills + Motion)
 
 ![](images/2024-08/20240825_SwiftcurrentLake_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20240818 Huntington Beach Pier, California, at sunset (© Stan Moniz Photography/Tandem Stills + Motion)
 
 ![](images/2024-08/20240818_HuntingtonBeach_1920x1080.jpg)
-
-#### 20240818 Externsteine im Teutoburger Wald, Nordrhein-Westfalen (© MoJoLo/Panther Media GmbH/Alamy Stock Photo)
-
-![](images/2024-08/20240818_ExternsteineTeutoburg_1920x1080.jpg)
-
-#### 20240817 Alfanzina Lighthouse, Algarve, Portugal (© Andreas Kunz/Getty Images)
-
-![](images/2024-08/20240817_AlfanzinaLighthouse_1920x1080.jpg)
 
 
 

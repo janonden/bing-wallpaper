@@ -1,3 +1,11 @@
+#### 20240825 Drohnenansicht der Weinberge im Remstal, Baden-Württemberg (© Westend61/Getty Images)
+
+![](20240825_VineyardsinRemstalvalley_1920x1080.jpg)
+
+#### 20240825 Reflet du ciel sur le lac Blanc, Alpes françaises, Monte Bianco en arrière-plan, Chamonix (© Smitt/Getty Image)
+
+![](20240825_TrailMontBlanc_1920x1080.jpg)
+
 #### 20240825 急流湖的日出，冰川国家公园，蒙大拿州，美国 (© Jason Savage/Tandem Stills + Motion)
 
 ![](20240825_SwiftcurrentLake_1920x1080.jpg)
