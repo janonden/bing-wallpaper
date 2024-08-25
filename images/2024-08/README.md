@@ -6,7 +6,7 @@
 
 ![](20240825_TrailMontBlanc_1920x1080.jpg)
 
-#### 20240825 急流湖的日出，冰川国家公园，蒙大拿州，美国 (© Jason Savage/Tandem Stills + Motion)
+#### 20240825 Sunrise over Swiftcurrent Lake, Glacier National Park, Montana (© Jason Savage/Tandem Stills + Motion)
 
 ![](20240825_SwiftcurrentLake_1920x1080.jpg)
 
