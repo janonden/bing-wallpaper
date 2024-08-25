@@ -1,3 +1,7 @@
+#### 20240826 巴尔米拉环礁国家野生动物保护区，中太平洋 (© Ian Shive/Tandem Stills + Motion)
+
+![](images/2024-08/20240826_PalmyraAtoll_1920x1080.jpg)
+
 #### 20240825 Drohnenansicht der Weinberge im Remstal, Baden-Württemberg (© Westend61/Getty Images)
 
 ![](images/2024-08/20240825_VineyardsinRemstalvalley_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240819 Museum of Flight, Seattle, Washington (© George Rose/Getty Images)
 
 ![](images/2024-08/20240819_FlightMuseum_1920x1080.jpg)
-
-#### 20240818 Huntington Beach Pier, California, at sunset (© Stan Moniz Photography/Tandem Stills + Motion)
-
-![](images/2024-08/20240818_HuntingtonBeach_1920x1080.jpg)
 
 
 

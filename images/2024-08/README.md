@@ -1,3 +1,7 @@
+#### 20240826 巴尔米拉环礁国家野生动物保护区，中太平洋 (© Ian Shive/Tandem Stills + Motion)
+
+![](20240826_PalmyraAtoll_1920x1080.jpg)
+
 #### 20240825 Drohnenansicht der Weinberge im Remstal, Baden-Württemberg (© Westend61/Getty Images)
 
 ![](20240825_VineyardsinRemstalvalley_1920x1080.jpg)
