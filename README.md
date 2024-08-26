@@ -1,4 +1,4 @@
-#### 20240826 巴尔米拉环礁国家野生动物保护区，中太平洋 (© Ian Shive/Tandem Stills + Motion)
+#### 20240826 Palmyra Atoll National Wildlife Refuge, Central Pacific Ocean (© Ian Shive/Tandem Stills + Motion)
 
 ![](images/2024-08/20240826_PalmyraAtoll_1920x1080.jpg)
 
