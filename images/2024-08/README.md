@@ -1,3 +1,7 @@
+#### 20240827 黑色凯门鳄幼崽，坦博帕塔国家保护区，秘鲁 (© Maxime Aliaga/Minden Pictures)
+
+![](20240827_YoungCaiman_1920x1080.jpg)
+
 #### 20240826 Palmyra Atoll National Wildlife Refuge, Central Pacific Ocean (© Ian Shive/Tandem Stills + Motion)
 
 ![](20240826_PalmyraAtoll_1920x1080.jpg)

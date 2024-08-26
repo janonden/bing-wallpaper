@@ -1,3 +1,7 @@
+#### 20240827 黑色凯门鳄幼崽，坦博帕塔国家保护区，秘鲁 (© Maxime Aliaga/Minden Pictures)
+
+![](images/2024-08/20240827_YoungCaiman_1920x1080.jpg)
+
 #### 20240826 Palmyra Atoll National Wildlife Refuge, Central Pacific Ocean (© Ian Shive/Tandem Stills + Motion)
 
 ![](images/2024-08/20240826_PalmyraAtoll_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240819 Bufadero de la Garita，大加那利岛，西班牙 (© Marco Bottigelli/Getty Images)
 
 ![](images/2024-08/20240819_RegataSanGines_1920x1080.jpg)
-
-#### 20240819 Museum of Flight, Seattle, Washington (© George Rose/Getty Images)
-
-![](images/2024-08/20240819_FlightMuseum_1920x1080.jpg)
 
 
 
