@@ -1,3 +1,7 @@
+#### 20240828 蒙马特和圣心大教堂，巴黎，法国 (© Tuul & Bruno Morandi/Getty Images)
+
+![](images/2024-08/20240828_ParalympicsParis_1920x1080.jpg)
+
 #### 20240827 Young black caiman, Tambopata National Reserve, Peru (© Maxime Aliaga/Minden Pictures)
 
 ![](images/2024-08/20240827_YoungCaiman_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240819 Two Atlantic puffins, Elliston, Newfoundland, Canada (© Daphne Roberts Photography/Getty Images)
 
 ![](images/2024-08/20240819_TwoPuffins_1920x1080.jpg)
-
-#### 20240819 Bufadero de la Garita，大加那利岛，西班牙 (© Marco Bottigelli/Getty Images)
-
-![](images/2024-08/20240819_RegataSanGines_1920x1080.jpg)
 
 
 

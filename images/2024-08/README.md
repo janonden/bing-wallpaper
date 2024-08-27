@@ -1,3 +1,7 @@
+#### 20240828 蒙马特和圣心大教堂，巴黎，法国 (© Tuul & Bruno Morandi/Getty Images)
+
+![](20240828_ParalympicsParis_1920x1080.jpg)
+
 #### 20240827 Young black caiman, Tambopata National Reserve, Peru (© Maxime Aliaga/Minden Pictures)
 
 ![](20240827_YoungCaiman_1920x1080.jpg)
