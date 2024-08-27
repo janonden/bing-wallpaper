@@ -1,4 +1,4 @@
-#### 20240827 黑色凯门鳄幼崽，坦博帕塔国家保护区，秘鲁 (© Maxime Aliaga/Minden Pictures)
+#### 20240827 Young black caiman, Tambopata National Reserve, Peru (© Maxime Aliaga/Minden Pictures)
 
 ![](images/2024-08/20240827_YoungCaiman_1920x1080.jpg)
 
