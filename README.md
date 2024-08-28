@@ -1,3 +1,7 @@
+#### 20240829 富利特堡-德拉罗卡，加泰罗尼亚，西班牙 (© Eloi_Omella/Getty Images)
+
+![](images/2024-08/20240829_CastellfollitSpain_1920x1080.jpg)
+
 #### 20240828 Pont Neuf sur la Seine, Paris, France (© f11photo/Getty Images)
 
 ![](images/2024-08/20240828_PontNeuf_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240821 Nazca boobies, Wolf Island, Galápagos Islands, Ecuador (© Tui De Roy/Minden Pictures)
 
 ![](images/2024-08/20240821_NazcaBooby_1920x1080.jpg)
-
-#### 20240820 Sunrise at Grand Teton National Park, Wyoming (© Kurt Budliger/Tandem Stills + Motion)
-
-![](images/2024-08/20240820_TetonSunrise_1920x1080.jpg)
 
 
 
