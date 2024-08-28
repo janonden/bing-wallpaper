@@ -1,3 +1,7 @@
+#### 20240828 Pont Neuf sur la Seine, Paris, France (© f11photo/Getty Images)
+
+![](20240828_PontNeuf_1920x1080.jpg)
+
 #### 20240828 蒙马特和圣心大教堂，巴黎，法国 (© Tuul & Bruno Morandi/Getty Images)
 
 ![](20240828_ParalympicsParis_1920x1080.jpg)

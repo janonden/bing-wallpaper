@@ -1,3 +1,7 @@
+#### 20240828 Pont Neuf sur la Seine, Paris, France (© f11photo/Getty Images)
+
+![](images/2024-08/20240828_PontNeuf_1920x1080.jpg)
+
 #### 20240828 蒙马特和圣心大教堂，巴黎，法国 (© Tuul & Bruno Morandi/Getty Images)
 
 ![](images/2024-08/20240828_ParalympicsParis_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240820 Sunrise at Grand Teton National Park, Wyoming (© Kurt Budliger/Tandem Stills + Motion)
 
 ![](images/2024-08/20240820_TetonSunrise_1920x1080.jpg)
-
-#### 20240819 Two Atlantic puffins, Elliston, Newfoundland, Canada (© Daphne Roberts Photography/Getty Images)
-
-![](images/2024-08/20240819_TwoPuffins_1920x1080.jpg)
 
 
 
