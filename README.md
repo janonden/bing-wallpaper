@@ -2,7 +2,7 @@
 
 ![](images/2024-08/20240828_PontNeuf_1920x1080.jpg)
 
-#### 20240828 蒙马特和圣心大教堂，巴黎，法国 (© Tuul & Bruno Morandi/Getty Images)
+#### 20240828 Montmartre and Sacre Cœur, Paris, France (© Tuul & Bruno Morandi/Getty Images)
 
 ![](images/2024-08/20240828_ParalympicsParis_1920x1080.jpg)
 
