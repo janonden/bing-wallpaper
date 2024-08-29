@@ -1,4 +1,4 @@
-#### 20240829 富利特堡-德拉罗卡，加泰罗尼亚，西班牙 (© Eloi_Omella/Getty Images)
+#### 20240829 Castellfollit de la Roca, Catalonia, Spain (© Eloi_Omella/Getty Images)
 
 ![](20240829_CastellfollitSpain_1920x1080.jpg)
 
