@@ -1,3 +1,7 @@
+#### 20240830 鸟头湾的鲸鲨，西巴布亚，印度尼西亚 (© Andy Lerner/Tandem Stills + Motion)
+
+![](20240830_WhaleSharkDay_1920x1080.jpg)
+
 #### 20240829 Castellfollit de la Roca, Catalonia, Spain (© Eloi_Omella/Getty Images)
 
 ![](20240829_CastellfollitSpain_1920x1080.jpg)
