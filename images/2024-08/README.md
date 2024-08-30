@@ -1,3 +1,7 @@
+#### 20240831 撒哈拉沙漠的岩层和沙丘，贾奈特，阿尔及利亚 (© Airpano/Amazing Aerial Agency)
+
+![](20240831_DjanetAlgeria_1920x1080.jpg)
+
 #### 20240830 A whale shark in Cenderawasih Bay, West Papua, Indonesia (© Andy Lerner/Tandem Stills + Motion)
 
 ![](20240830_WhaleSharkDay_1920x1080.jpg)

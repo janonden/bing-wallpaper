@@ -1,3 +1,7 @@
+#### 20240831 撒哈拉沙漠的岩层和沙丘，贾奈特，阿尔及利亚 (© Airpano/Amazing Aerial Agency)
+
+![](images/2024-08/20240831_DjanetAlgeria_1920x1080.jpg)
+
 #### 20240830 A whale shark in Cenderawasih Bay, West Papua, Indonesia (© Andy Lerner/Tandem Stills + Motion)
 
 ![](images/2024-08/20240830_WhaleSharkDay_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240823 厳島神社, 広島県 廿日市市 (© Matsuo Sato/Shutterstock)
 
 ![](images/2024-08/20240823_Fireworks_1920x1080.jpg)
-
-#### 20240822 Ocean City, Maryland, at sunrise (© Kevin Olson/Amazing Aerial Agency)
-
-![](images/2024-08/20240822_OceanCityMD_1920x1080.jpg)
 
 
 
