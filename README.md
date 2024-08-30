@@ -1,4 +1,4 @@
-#### 20240830 鸟头湾的鲸鲨，西巴布亚，印度尼西亚 (© Andy Lerner/Tandem Stills + Motion)
+#### 20240830 A whale shark in Cenderawasih Bay, West Papua, Indonesia (© Andy Lerner/Tandem Stills + Motion)
 
 ![](images/2024-08/20240830_WhaleSharkDay_1920x1080.jpg)
 
