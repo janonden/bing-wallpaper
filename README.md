@@ -1,3 +1,7 @@
+#### 20240901 泰晤士河，伦敦，英国 (© Puthipong Worasaran/Getty Images)
+
+![](images/2024-09/20240901_ThamesLondon_1920x1080.jpg)
+
 #### 20240831 Rock formations and sand dunes in the Sahara, Tassili n’Ajjer, Algeria (© Airpano/Amazing Aerial Agency)
 
 ![](images/2024-08/20240831_DjanetAlgeria_1920x1080.jpg)
@@ -54,10 +58,6 @@
 
 ![](images/2024-08/20240823_PrasatPhanom_1920x1080.jpg)
 
-#### 20240823 厳島神社, 広島県 廿日市市 (© Matsuo Sato/Shutterstock)
-
-![](images/2024-08/20240823_Fireworks_1920x1080.jpg)
-
 
 
 
@@ -66,7 +66,7 @@
 
 
 
-- 2024&emsp;&emsp;[08](images/2024-08/README.md) &emsp;&emsp;[07](images/2024-07/README.md) &emsp;&emsp;[06](images/2024-06/README.md) &emsp;&emsp;[05](images/2024-05/README.md) &emsp;&emsp;[04](images/2024-04/README.md) &emsp;&emsp;[03](images/2024-03/README.md) &emsp;&emsp;[02](images/2024-02/README.md) &emsp;&emsp;[01](images/2024-01/README.md) 
+- 2024&emsp;&emsp;[09](images/2024-09/README.md) &emsp;&emsp;[08](images/2024-08/README.md) &emsp;&emsp;[07](images/2024-07/README.md) &emsp;&emsp;[06](images/2024-06/README.md) &emsp;&emsp;[05](images/2024-05/README.md) &emsp;&emsp;[04](images/2024-04/README.md) &emsp;&emsp;[03](images/2024-03/README.md) &emsp;&emsp;[02](images/2024-02/README.md) &emsp;&emsp;[01](images/2024-01/README.md) 
 
 - 2023&emsp;&emsp;[12](https://github.com/janonden/bing-wallpaper/blob/2023/images/2023-12/README.md) &emsp;&emsp;[11](https://github.com/janonden/bing-wallpaper/blob/2023/images/2023-11/README.md) &emsp;&emsp;[10](https://github.com/janonden/bing-wallpaper/blob/2023/images/2023-10/README.md) &emsp;&emsp;[09](https://github.com/janonden/bing-wallpaper/blob/2023/images/2023-09/README.md) &emsp;&emsp;[08](https://github.com/janonden/bing-wallpaper/blob/2023/images/2023-08/README.md) &emsp;&emsp;[07](https://github.com/janonden/bing-wallpaper/blob/2023/images/2023-07/README.md) &emsp;&emsp;[06](https://github.com/janonden/bing-wallpaper/blob/2023/images/2023-06/README.md) &emsp;&emsp;[05](https://github.com/janonden/bing-wallpaper/blob/2023/images/2023-05/README.md) &emsp;&emsp;[04](https://github.com/janonden/bing-wallpaper/blob/2023/images/2023-04/README.md) &emsp;&emsp;[03](https://github.com/janonden/bing-wallpaper/blob/2023/images/2023-03/README.md) &emsp;&emsp;[02](https://github.com/janonden/bing-wallpaper/blob/2023/images/2023-02/README.md) &emsp;&emsp;[01](https://github.com/janonden/bing-wallpaper/blob/2023/images/2023-01/README.md) 
 
