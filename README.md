@@ -1,4 +1,4 @@
-#### 20240831 撒哈拉沙漠的岩层和沙丘，贾奈特，阿尔及利亚 (© Airpano/Amazing Aerial Agency)
+#### 20240831 Rock formations and sand dunes in the Sahara, Tassili n’Ajjer, Algeria (© Airpano/Amazing Aerial Agency)
 
 ![](images/2024-08/20240831_DjanetAlgeria_1920x1080.jpg)
 
