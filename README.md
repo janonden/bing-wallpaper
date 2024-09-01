@@ -1,3 +1,7 @@
+#### 20240902 红绿金刚鹦鹉，南马托格罗索州，巴西 (© Ellen Goff/Danita Delimont)
+
+![](images/2024-09/20240902_BuracodasAraras_1920x1080.jpg)
+
 #### 20240901 River Thames, London, England (© Puthipong Worasaran/Getty Images)
 
 ![](images/2024-09/20240901_ThamesLondon_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240824 三千院のわらべ地蔵, 京都 (© Klaus-Werner Friedrich/Alamy)
 
 ![](images/2024-08/20240824_JizoFestival_1920x1080.jpg)
-
-#### 20240823 Prasat Phanom Rung temple ruins, Buriram province, Thailand (© Banjongseal324/Getty Images)
-
-![](images/2024-08/20240823_PrasatPhanom_1920x1080.jpg)
 
 
 
