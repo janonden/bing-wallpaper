@@ -2,6 +2,10 @@
 
 ![](images/2024-09/20240902_PenitentMees_1920x1080.jpg)
 
+#### 20240902 Milky Way over the Elbow River in southern Alberta, Canada (© Alan Dyer/Stocktrek Images/Getty Images)
+
+![](images/2024-09/20240902_ElbowRiver_1920x1080.jpg)
+
 #### 20240902 红绿金刚鹦鹉，南马托格罗索州，巴西 (© Ellen Goff/Danita Delimont)
 
 ![](images/2024-09/20240902_BuracodasAraras_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240824 Museumsinsel auf der Spree und Fernsehturm, Berlin (© TomasSereda/Getty Images)
 
 ![](images/2024-08/20240824_MuseumsinselSpree_1920x1080.jpg)
-
-#### 20240824 Katahdin Woods and Waters National Monument, Penobscot County, Maine (© Cavan Images/Alamy)
-
-![](images/2024-08/20240824_KatahdinWoods_1920x1080.jpg)
 
 
 

@@ -2,6 +2,10 @@
 
 ![](20240902_PenitentMees_1920x1080.jpg)
 
+#### 20240902 Milky Way over the Elbow River in southern Alberta, Canada (© Alan Dyer/Stocktrek Images/Getty Images)
+
+![](20240902_ElbowRiver_1920x1080.jpg)
+
 #### 20240902 红绿金刚鹦鹉，南马托格罗索州，巴西 (© Ellen Goff/Danita Delimont)
 
 ![](20240902_BuracodasAraras_1920x1080.jpg)
