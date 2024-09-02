@@ -1,3 +1,7 @@
+#### 20240903 迷人的水晶湖，高山湖泊，华盛顿州，美国 (© Mitch Pittman/Tandem Stills + Motion)
+
+![](20240903_AlpineLakes_1920x1080.jpg)
+
 #### 20240902 Les Pénitents des Mées, Alpes-de-Haute-Provence (© Cavalier Michel/Hemis/Alamy Stock Photo)
 
 ![](20240902_PenitentMees_1920x1080.jpg)

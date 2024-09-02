@@ -1,3 +1,7 @@
+#### 20240903 迷人的水晶湖，高山湖泊，华盛顿州，美国 (© Mitch Pittman/Tandem Stills + Motion)
+
+![](images/2024-09/20240903_AlpineLakes_1920x1080.jpg)
+
 #### 20240902 Les Pénitents des Mées, Alpes-de-Haute-Provence (© Cavalier Michel/Hemis/Alamy Stock Photo)
 
 ![](images/2024-09/20240902_PenitentMees_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240825 Reflet du ciel sur le lac Blanc, Alpes françaises, Monte Bianco en arrière-plan, Chamonix (© Smitt/Getty Image)
 
 ![](images/2024-08/20240825_TrailMontBlanc_1920x1080.jpg)
-
-#### 20240825 Sunrise over Swiftcurrent Lake, Glacier National Park, Montana (© Jason Savage/Tandem Stills + Motion)
-
-![](images/2024-08/20240825_SwiftcurrentLake_1920x1080.jpg)
 
 
 
