@@ -2,6 +2,10 @@
 
 ![](images/2024-09/20240902_PenitentMees_1920x1080.jpg)
 
+#### 20240902 'Power of the Titans' mural by Andrei Krautsou, North Kansas City, Missouri (© Stephen Taylor/Alamy)
+
+![](images/2024-09/20240902_KansasMural_1920x1080.jpg)
+
 #### 20240902 Milky Way over the Elbow River in southern Alberta, Canada (© Alan Dyer/Stocktrek Images/Getty Images)
 
 ![](images/2024-09/20240902_ElbowRiver_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240825 Sunrise over Swiftcurrent Lake, Glacier National Park, Montana (© Jason Savage/Tandem Stills + Motion)
 
 ![](images/2024-08/20240825_SwiftcurrentLake_1920x1080.jpg)
-
-#### 20240824 Museumsinsel auf der Spree und Fernsehturm, Berlin (© TomasSereda/Getty Images)
-
-![](images/2024-08/20240824_MuseumsinselSpree_1920x1080.jpg)
 
 
 

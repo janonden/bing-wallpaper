@@ -2,6 +2,10 @@
 
 ![](20240902_PenitentMees_1920x1080.jpg)
 
+#### 20240902 'Power of the Titans' mural by Andrei Krautsou, North Kansas City, Missouri (© Stephen Taylor/Alamy)
+
+![](20240902_KansasMural_1920x1080.jpg)
+
 #### 20240902 Milky Way over the Elbow River in southern Alberta, Canada (© Alan Dyer/Stocktrek Images/Getty Images)
 
 ![](20240902_ElbowRiver_1920x1080.jpg)
