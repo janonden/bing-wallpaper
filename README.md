@@ -1,3 +1,7 @@
+#### 20240904 乌雕鸮，巴基斯坦 (© zahoor salmi/Getty Images)
+
+![](images/2024-09/20240904_DuskyOwls_1920x1080.jpg)
+
 #### 20240903 Crystal Lake in the Enchantments, Alpine Lakes Wilderness, Washington (© Mitch Pittman/Tandem Stills + Motion)
 
 ![](images/2024-09/20240903_AlpineLakes_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240825 Drohnenansicht der Weinberge im Remstal, Baden-Württemberg (© Westend61/Getty Images)
 
 ![](images/2024-08/20240825_VineyardsinRemstalvalley_1920x1080.jpg)
-
-#### 20240825 Reflet du ciel sur le lac Blanc, Alpes françaises, Monte Bianco en arrière-plan, Chamonix (© Smitt/Getty Image)
-
-![](images/2024-08/20240825_TrailMontBlanc_1920x1080.jpg)
 
 
 

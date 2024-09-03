@@ -1,3 +1,7 @@
+#### 20240904 乌雕鸮，巴基斯坦 (© zahoor salmi/Getty Images)
+
+![](20240904_DuskyOwls_1920x1080.jpg)
+
 #### 20240903 Crystal Lake in the Enchantments, Alpine Lakes Wilderness, Washington (© Mitch Pittman/Tandem Stills + Motion)
 
 ![](20240903_AlpineLakes_1920x1080.jpg)
