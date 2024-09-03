@@ -1,4 +1,4 @@
-#### 20240903 迷人的水晶湖，高山湖泊，华盛顿州，美国 (© Mitch Pittman/Tandem Stills + Motion)
+#### 20240903 Crystal Lake in the Enchantments, Alpine Lakes Wilderness, Washington (© Mitch Pittman/Tandem Stills + Motion)
 
 ![](20240903_AlpineLakes_1920x1080.jpg)
 
