@@ -1,4 +1,4 @@
-#### 20240904 乌雕鸮，巴基斯坦 (© zahoor salmi/Getty Images)
+#### 20240904 Dusky eagle-owls, Pakistan (© zahoor salmi/Getty Images)
 
 ![](images/2024-09/20240904_DuskyOwls_1920x1080.jpg)
 
