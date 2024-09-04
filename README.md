@@ -1,3 +1,7 @@
+#### 20240905 多伦多城市天际线,加拿大 (© Roberto Machado Noa/Getty Images)
+
+![](images/2024-09/20240905_TIFF_1920x1080.jpg)
+
 #### 20240904 Dusky eagle-owls, Pakistan (© zahoor salmi/Getty Images)
 
 ![](images/2024-09/20240904_DuskyOwls_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240826 Palmyra Atoll National Wildlife Refuge, Central Pacific Ocean (© Ian Shive/Tandem Stills + Motion)
 
 ![](images/2024-08/20240826_PalmyraAtoll_1920x1080.jpg)
-
-#### 20240825 Drohnenansicht der Weinberge im Remstal, Baden-Württemberg (© Westend61/Getty Images)
-
-![](images/2024-08/20240825_VineyardsinRemstalvalley_1920x1080.jpg)
 
 
 
