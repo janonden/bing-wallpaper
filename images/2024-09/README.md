@@ -1,4 +1,4 @@
-#### 20240905 多伦多城市天际线,加拿大 (© Roberto Machado Noa/Getty Images)
+#### 20240905 Toronto city skyline seen from Lake Ontario, Canada (© Roberto Machado Noa/Getty Images)
 
 ![](20240905_TIFF_1920x1080.jpg)
 
