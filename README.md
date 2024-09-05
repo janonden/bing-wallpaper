@@ -1,3 +1,11 @@
+#### 20240906 郡上八幡城, 岐阜県 郡上市 (© ta2funk ito/500px/Getty Images)
+
+![](images/2024-09/20240906_GujoHachiman_1920x1080.jpg)
+
+#### 20240906 古老山毛榉树，格莱纳里夫森林公园，安特里姆郡，北爱尔兰 (© Dawid K Photography/Shutterstock)
+
+![](images/2024-09/20240906_GlenariffPark_1920x1080.jpg)
+
 #### 20240905 Toronto city skyline seen from Lake Ontario, Canada (© Roberto Machado Noa/Getty Images)
 
 ![](images/2024-09/20240905_TIFF_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20240828 Montmartre and Sacre Cœur, Paris, France (© Tuul & Bruno Morandi/Getty Images)
 
 ![](images/2024-08/20240828_ParalympicsParis_1920x1080.jpg)
-
-#### 20240827 Young black caiman, Tambopata National Reserve, Peru (© Maxime Aliaga/Minden Pictures)
-
-![](images/2024-08/20240827_YoungCaiman_1920x1080.jpg)
-
-#### 20240826 Palmyra Atoll National Wildlife Refuge, Central Pacific Ocean (© Ian Shive/Tandem Stills + Motion)
-
-![](images/2024-08/20240826_PalmyraAtoll_1920x1080.jpg)
 
 
 

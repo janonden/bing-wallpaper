@@ -1,3 +1,11 @@
+#### 20240906 郡上八幡城, 岐阜県 郡上市 (© ta2funk ito/500px/Getty Images)
+
+![](20240906_GujoHachiman_1920x1080.jpg)
+
+#### 20240906 古老山毛榉树，格莱纳里夫森林公园，安特里姆郡，北爱尔兰 (© Dawid K Photography/Shutterstock)
+
+![](20240906_GlenariffPark_1920x1080.jpg)
+
 #### 20240905 Toronto city skyline seen from Lake Ontario, Canada (© Roberto Machado Noa/Getty Images)
 
 ![](20240905_TIFF_1920x1080.jpg)
