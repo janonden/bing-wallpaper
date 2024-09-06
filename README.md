@@ -2,7 +2,7 @@
 
 ![](images/2024-09/20240906_GujoHachiman_1920x1080.jpg)
 
-#### 20240906 古老山毛榉树，格莱纳里夫森林公园，安特里姆郡，北爱尔兰 (© Dawid K Photography/Shutterstock)
+#### 20240906 Ancient beech tree, Glenariff Forest Park, County Antrim, Northern Ireland (© Dawid K Photography/Shutterstock)
 
 ![](images/2024-09/20240906_GlenariffPark_1920x1080.jpg)
 
