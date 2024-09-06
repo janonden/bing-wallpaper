@@ -1,3 +1,7 @@
+#### 20240907 朱红蜂鸟，圣克鲁斯，加利福尼亚州，美国 (© yhelfman/Getty Images)
+
+![](images/2024-09/20240907_SantaCruzHummer_1920x1080.jpg)
+
 #### 20240906 郡上八幡城, 岐阜県 郡上市 (© ta2funk ito/500px/Getty Images)
 
 ![](images/2024-09/20240906_GujoHachiman_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240829 Castellfollit de la Roca, Catalonia, Spain (© Eloi_Omella/Getty Images)
 
 ![](images/2024-08/20240829_CastellfollitSpain_1920x1080.jpg)
-
-#### 20240828 Pont Neuf sur la Seine, Paris, France (© f11photo/Getty Images)
-
-![](images/2024-08/20240828_PontNeuf_1920x1080.jpg)
 
 
 

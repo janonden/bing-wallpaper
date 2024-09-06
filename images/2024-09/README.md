@@ -1,3 +1,7 @@
+#### 20240907 朱红蜂鸟，圣克鲁斯，加利福尼亚州，美国 (© yhelfman/Getty Images)
+
+![](20240907_SantaCruzHummer_1920x1080.jpg)
+
 #### 20240906 郡上八幡城, 岐阜県 郡上市 (© ta2funk ito/500px/Getty Images)
 
 ![](20240906_GujoHachiman_1920x1080.jpg)
