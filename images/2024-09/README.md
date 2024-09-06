@@ -6,6 +6,10 @@
 
 ![](20240906_GlenariffPark_1920x1080.jpg)
 
+#### 20240906 Cabines de plage à Deauville, France (© Skayamauritius images GmbH/Alamy Stock Photo)
+
+![](20240906_AmericanDeauvilleFestival_1920x1080.jpg)
+
 #### 20240905 Toronto city skyline seen from Lake Ontario, Canada (© Roberto Machado Noa/Getty Images)
 
 ![](20240905_TIFF_1920x1080.jpg)

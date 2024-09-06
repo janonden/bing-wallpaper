@@ -6,6 +6,10 @@
 
 ![](images/2024-09/20240906_GlenariffPark_1920x1080.jpg)
 
+#### 20240906 Cabines de plage à Deauville, France (© Skayamauritius images GmbH/Alamy Stock Photo)
+
+![](images/2024-09/20240906_AmericanDeauvilleFestival_1920x1080.jpg)
+
 #### 20240905 Toronto city skyline seen from Lake Ontario, Canada (© Roberto Machado Noa/Getty Images)
 
 ![](images/2024-09/20240905_TIFF_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240828 Pont Neuf sur la Seine, Paris, France (© f11photo/Getty Images)
 
 ![](images/2024-08/20240828_PontNeuf_1920x1080.jpg)
-
-#### 20240828 Montmartre and Sacre Cœur, Paris, France (© Tuul & Bruno Morandi/Getty Images)
-
-![](images/2024-08/20240828_ParalympicsParis_1920x1080.jpg)
 
 
 
