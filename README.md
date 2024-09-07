@@ -1,4 +1,4 @@
-#### 20240907 朱红蜂鸟，圣克鲁斯，加利福尼亚州，美国 (© yhelfman/Getty Images)
+#### 20240907 Anna's hummingbird, Santa Cruz, California (© yhelfman/Getty Images)
 
 ![](images/2024-09/20240907_SantaCruzHummer_1920x1080.jpg)
 
