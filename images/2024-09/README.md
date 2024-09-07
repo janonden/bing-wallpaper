@@ -1,3 +1,11 @@
+#### 20240908 ストックホルム市立図書館, スウェーデン (© Andrei Hrabun/Alamy)
+
+![](20240908_StockholmLibrary_1920x1080.jpg)
+
+#### 20240908 加泰罗尼亚北部的圣马丁杜卡尼古修道院 ，法国 (© Cyril Gosselin/Getty Images)
+
+![](20240908_Canigou_1920x1080.jpg)
+
 #### 20240907 Anna's hummingbird, Santa Cruz, California (© yhelfman/Getty Images)
 
 ![](20240907_SantaCruzHummer_1920x1080.jpg)

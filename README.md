@@ -1,3 +1,11 @@
+#### 20240908 ストックホルム市立図書館, スウェーデン (© Andrei Hrabun/Alamy)
+
+![](images/2024-09/20240908_StockholmLibrary_1920x1080.jpg)
+
+#### 20240908 加泰罗尼亚北部的圣马丁杜卡尼古修道院 ，法国 (© Cyril Gosselin/Getty Images)
+
+![](images/2024-09/20240908_Canigou_1920x1080.jpg)
+
 #### 20240907 Anna's hummingbird, Santa Cruz, California (© yhelfman/Getty Images)
 
 ![](images/2024-09/20240907_SantaCruzHummer_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20240831 Rock formations and sand dunes in the Sahara, Tassili n’Ajjer, Algeria (© Airpano/Amazing Aerial Agency)
 
 ![](images/2024-08/20240831_DjanetAlgeria_1920x1080.jpg)
-
-#### 20240830 A whale shark in Cenderawasih Bay, West Papua, Indonesia (© Andy Lerner/Tandem Stills + Motion)
-
-![](images/2024-08/20240830_WhaleSharkDay_1920x1080.jpg)
-
-#### 20240829 Castellfollit de la Roca, Catalonia, Spain (© Eloi_Omella/Getty Images)
-
-![](images/2024-08/20240829_CastellfollitSpain_1920x1080.jpg)
 
 
 
