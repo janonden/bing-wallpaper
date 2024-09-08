@@ -1,4 +1,4 @@
-#### 20240908 ストックホルム市立図書館, スウェーデン (© Andrei Hrabun/Alamy)
+#### 20240908 Interior of the Stockholm Public Library, Sweden (© Andrei Hrabun/Alamy)
 
 ![](20240908_StockholmLibrary_1920x1080.jpg)
 
