@@ -1,3 +1,7 @@
+#### 20240909 阿根廷和巴西边境的伊瓜苏瀑布 (© AirPano LLC/Amazing Aerial Agency)
+
+![](images/2024-09/20240909_IguazuRainbow_1920x1080.jpg)
+
 #### 20240908 Interior of the Stockholm Public Library, Sweden (© Andrei Hrabun/Alamy)
 
 ![](images/2024-09/20240908_StockholmLibrary_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240901 River Thames, London, England (© Puthipong Worasaran/Getty Images)
 
 ![](images/2024-09/20240901_ThamesLondon_1920x1080.jpg)
-
-#### 20240831 Rock formations and sand dunes in the Sahara, Tassili n’Ajjer, Algeria (© Airpano/Amazing Aerial Agency)
-
-![](images/2024-08/20240831_DjanetAlgeria_1920x1080.jpg)
 
 
 
