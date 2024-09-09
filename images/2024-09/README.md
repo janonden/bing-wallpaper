@@ -1,3 +1,11 @@
+#### 20240910 ラパ・ヌイ国立公園, チリ (© Piriya Photography/Getty Images)
+
+![](20240910_RapaNuiSunrise_1920x1080.jpg)
+
+#### 20240910 瓦斯科·达·伽马大桥，里斯本，葡萄牙 (© Achim Thomae/Getty Images)
+
+![](20240910_BridgeLisbon_1920x1080.jpg)
+
 #### 20240909 Iguazu Falls at the border of Argentina and Brazil (© AirPano LLC/Amazing Aerial Agency)
 
 ![](20240909_IguazuRainbow_1920x1080.jpg)

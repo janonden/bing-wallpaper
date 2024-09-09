@@ -1,3 +1,11 @@
+#### 20240910 ラパ・ヌイ国立公園, チリ (© Piriya Photography/Getty Images)
+
+![](images/2024-09/20240910_RapaNuiSunrise_1920x1080.jpg)
+
+#### 20240910 瓦斯科·达·伽马大桥，里斯本，葡萄牙 (© Achim Thomae/Getty Images)
+
+![](images/2024-09/20240910_BridgeLisbon_1920x1080.jpg)
+
 #### 20240909 Iguazu Falls at the border of Argentina and Brazil (© AirPano LLC/Amazing Aerial Agency)
 
 ![](images/2024-09/20240909_IguazuRainbow_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20240902 Milky Way over the Elbow River in southern Alberta, Canada (© Alan Dyer/Stocktrek Images/Getty Images)
 
 ![](images/2024-09/20240902_ElbowRiver_1920x1080.jpg)
-
-#### 20240902 红绿金刚鹦鹉，南马托格罗索州，巴西 (© Ellen Goff/Danita Delimont)
-
-![](images/2024-09/20240902_BuracodasAraras_1920x1080.jpg)
-
-#### 20240901 River Thames, London, England (© Puthipong Worasaran/Getty Images)
-
-![](images/2024-09/20240901_ThamesLondon_1920x1080.jpg)
 
 
 
