@@ -1,4 +1,4 @@
-#### 20240909 阿根廷和巴西边境的伊瓜苏瀑布 (© AirPano LLC/Amazing Aerial Agency)
+#### 20240909 Iguazu Falls at the border of Argentina and Brazil (© AirPano LLC/Amazing Aerial Agency)
 
 ![](images/2024-09/20240909_IguazuRainbow_1920x1080.jpg)
 
