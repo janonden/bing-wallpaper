@@ -2,7 +2,7 @@
 
 ![](20240910_RapaNuiSunrise_1920x1080.jpg)
 
-#### 20240910 瓦斯科·达·伽马大桥，里斯本，葡萄牙 (© Achim Thomae/Getty Images)
+#### 20240910 Vasco da Gama Bridge, Lisbon, Portugal (© Achim Thomae/Getty Images)
 
 ![](20240910_BridgeLisbon_1920x1080.jpg)
 
