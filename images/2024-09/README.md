@@ -1,3 +1,7 @@
+#### 20240911 埃尔茨城堡，德国 (© Allard Schager/Alamy)
+
+![](20240911_EltzCastle_1920x1080.jpg)
+
 #### 20240910 ラパ・ヌイ国立公園, チリ (© Piriya Photography/Getty Images)
 
 ![](20240910_RapaNuiSunrise_1920x1080.jpg)
