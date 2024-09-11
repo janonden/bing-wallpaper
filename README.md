@@ -1,3 +1,7 @@
+#### 20240912 留尼汪岛附近的海豚群，印度洋，法国海外省 (© Joost van Uffelen/Shutterstock)
+
+![](images/2024-09/20240912_DolphinReunion_1920x1080.jpg)
+
 #### 20240911 Red fox mother kissing her baby in Canada (© pchoui/Getty Images)
 
 ![](images/2024-09/20240911_RedFoxMother_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240904 Dusky eagle-owls, Pakistan (© zahoor salmi/Getty Images)
 
 ![](images/2024-09/20240904_DuskyOwls_1920x1080.jpg)
-
-#### 20240903 Crystal Lake in the Enchantments, Alpine Lakes Wilderness, Washington (© Mitch Pittman/Tandem Stills + Motion)
-
-![](images/2024-09/20240903_AlpineLakes_1920x1080.jpg)
 
 
 

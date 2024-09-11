@@ -1,3 +1,7 @@
+#### 20240912 留尼汪岛附近的海豚群，印度洋，法国海外省 (© Joost van Uffelen/Shutterstock)
+
+![](20240912_DolphinReunion_1920x1080.jpg)
+
 #### 20240911 Red fox mother kissing her baby in Canada (© pchoui/Getty Images)
 
 ![](20240911_RedFoxMother_1920x1080.jpg)
