@@ -1,3 +1,7 @@
+#### 20240911 Red fox mother kissing her baby in Canada (© pchoui/Getty Images)
+
+![](20240911_RedFoxMother_1920x1080.jpg)
+
 #### 20240911 埃尔茨城堡，德国 (© Allard Schager/Alamy)
 
 ![](20240911_EltzCastle_1920x1080.jpg)

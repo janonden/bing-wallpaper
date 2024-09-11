@@ -1,3 +1,7 @@
+#### 20240911 Red fox mother kissing her baby in Canada (© pchoui/Getty Images)
+
+![](images/2024-09/20240911_RedFoxMother_1920x1080.jpg)
+
 #### 20240911 埃尔茨城堡，德国 (© Allard Schager/Alamy)
 
 ![](images/2024-09/20240911_EltzCastle_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240902 Les Pénitents des Mées, Alpes-de-Haute-Provence (© Cavalier Michel/Hemis/Alamy Stock Photo)
 
 ![](images/2024-09/20240902_PenitentMees_1920x1080.jpg)
-
-#### 20240902 'Power of the Titans' mural by Andrei Krautsou, North Kansas City, Missouri (© Stephen Taylor/Alamy)
-
-![](images/2024-09/20240902_KansasMural_1920x1080.jpg)
 
 
 
