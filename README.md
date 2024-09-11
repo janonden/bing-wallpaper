@@ -2,6 +2,10 @@
 
 ![](images/2024-09/20240911_RedFoxMother_1920x1080.jpg)
 
+#### 20240911 National September 11 Memorial & Museum, New York City (© Antonino Bartuccio/Sime/eStock Photo)
+
+![](images/2024-09/20240911_ManhattanMemorial_1920x1080.jpg)
+
 #### 20240911 埃尔茨城堡，德国 (© Allard Schager/Alamy)
 
 ![](images/2024-09/20240911_EltzCastle_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240903 Crystal Lake in the Enchantments, Alpine Lakes Wilderness, Washington (© Mitch Pittman/Tandem Stills + Motion)
 
 ![](images/2024-09/20240903_AlpineLakes_1920x1080.jpg)
-
-#### 20240902 Les Pénitents des Mées, Alpes-de-Haute-Provence (© Cavalier Michel/Hemis/Alamy Stock Photo)
-
-![](images/2024-09/20240902_PenitentMees_1920x1080.jpg)
 
 
 
