@@ -1,4 +1,4 @@
-#### 20240912 留尼汪岛附近的海豚群，印度洋，法国海外省 (© Joost van Uffelen/Shutterstock)
+#### 20240912 Dolphin pod near Réunion, overseas department of France, Indian Ocean (© Joost van Uffelen/Shutterstock)
 
 ![](20240912_DolphinReunion_1920x1080.jpg)
 
