@@ -2,7 +2,7 @@
 
 ![](images/2024-09/20240913_SanssouciPalace_1920x1080.jpg)
 
-#### 20240913 雷耶斯角国家海岸灯塔，加利福尼亚州，美国 (© RMB Images/Photography by Robert Bowman/Getty Images)
+#### 20240913 Lighthouse at Point Reyes National Seashore, California (© RMB Images/Photography by Robert Bowman/Getty Images)
 
 ![](images/2024-09/20240913_PointReyes_1920x1080.jpg)
 
