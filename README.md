@@ -1,3 +1,7 @@
+#### 20240914 国営ひたち海浜公園, 茨城県 ひたちなか市 (© ThePonAek/Shutterstock)
+
+![](images/2024-09/20240914_CosmosDay_1920x1080.jpg)
+
 #### 20240913 Schloss Sanssouci, Schlosspark, Potsdam, Brandenburg (© Günter Gräfenhain/Alamy)
 
 ![](images/2024-09/20240913_SanssouciPalace_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240906 Ancient beech tree, Glenariff Forest Park, County Antrim, Northern Ireland (© Dawid K Photography/Shutterstock)
 
 ![](images/2024-09/20240906_GlenariffPark_1920x1080.jpg)
-
-#### 20240906 Cabines de plage à Deauville, France (© Skayamauritius images GmbH/Alamy Stock Photo)
-
-![](images/2024-09/20240906_AmericanDeauvilleFestival_1920x1080.jpg)
 
 
 

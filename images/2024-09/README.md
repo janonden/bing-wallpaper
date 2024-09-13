@@ -1,3 +1,7 @@
+#### 20240914 国営ひたち海浜公園, 茨城県 ひたちなか市 (© ThePonAek/Shutterstock)
+
+![](20240914_CosmosDay_1920x1080.jpg)
+
 #### 20240913 Schloss Sanssouci, Schlosspark, Potsdam, Brandenburg (© Günter Gräfenhain/Alamy)
 
 ![](20240913_SanssouciPalace_1920x1080.jpg)
