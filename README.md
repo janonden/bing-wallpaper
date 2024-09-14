@@ -1,3 +1,11 @@
+#### 20240915 ワラビー, オーストラリア ノーザンテリトリー (© Jeremy Woodhouse/Getty Images)
+
+![](images/2024-09/20240915_SunriseWallabies_1920x1080.jpg)
+
+#### 20240915 阿科马尼奥海滩，卡拉布里亚，意大利 (© Alessio de Cicco/Getty Images)
+
+![](images/2024-09/20240915_CalabriaPeperoncino_1920x1080.jpg)
+
 #### 20240914 国営ひたち海浜公園, 茨城県 ひたちなか市 (© ThePonAek/Shutterstock)
 
 ![](images/2024-09/20240914_CosmosDay_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20240907 Anna's hummingbird, Santa Cruz, California (© yhelfman/Getty Images)
 
 ![](images/2024-09/20240907_SantaCruzHummer_1920x1080.jpg)
-
-#### 20240906 郡上八幡城, 岐阜県 郡上市 (© ta2funk ito/500px/Getty Images)
-
-![](images/2024-09/20240906_GujoHachiman_1920x1080.jpg)
-
-#### 20240906 Ancient beech tree, Glenariff Forest Park, County Antrim, Northern Ireland (© Dawid K Photography/Shutterstock)
-
-![](images/2024-09/20240906_GlenariffPark_1920x1080.jpg)
 
 
 
