@@ -1,3 +1,7 @@
+#### 20240916 Varenna on Lake Como, Italy (© Givaga/Getty Images)
+
+![](images/2024-09/20240916_LagoComoItaly_1920x1080.jpg)
+
 #### 20240915 ワラビー, オーストラリア ノーザンテリトリー (© Jeremy Woodhouse/Getty Images)
 
 ![](images/2024-09/20240915_SunriseWallabies_1920x1080.jpg)
@@ -9,6 +13,10 @@
 #### 20240915 阿科马尼奥海滩，卡拉布里亚，意大利 (© Alessio de Cicco/Getty Images)
 
 ![](images/2024-09/20240915_CalabriaPeperoncino_1920x1080.jpg)
+
+#### 20240915 Casa del Prado, Balboa Park, San Diego, California (© f11photo/Getty Images)
+
+![](images/2024-09/20240915_BalboaPark_1920x1080.jpg)
 
 #### 20240914 国営ひたち海浜公園, 茨城県 ひたちなか市 (© ThePonAek/Shutterstock)
 
@@ -49,14 +57,6 @@
 #### 20240909 Iguazu Falls at the border of Argentina and Brazil (© AirPano LLC/Amazing Aerial Agency)
 
 ![](images/2024-09/20240909_IguazuRainbow_1920x1080.jpg)
-
-#### 20240908 Interior of the Stockholm Public Library, Sweden (© Andrei Hrabun/Alamy)
-
-![](images/2024-09/20240908_StockholmLibrary_1920x1080.jpg)
-
-#### 20240908 加泰罗尼亚北部的圣马丁杜卡尼古修道院 ，法国 (© Cyril Gosselin/Getty Images)
-
-![](images/2024-09/20240908_Canigou_1920x1080.jpg)
 
 
 

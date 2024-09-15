@@ -1,3 +1,7 @@
+#### 20240916 Varenna on Lake Como, Italy (© Givaga/Getty Images)
+
+![](20240916_LagoComoItaly_1920x1080.jpg)
+
 #### 20240915 ワラビー, オーストラリア ノーザンテリトリー (© Jeremy Woodhouse/Getty Images)
 
 ![](20240915_SunriseWallabies_1920x1080.jpg)
@@ -9,6 +13,10 @@
 #### 20240915 阿科马尼奥海滩，卡拉布里亚，意大利 (© Alessio de Cicco/Getty Images)
 
 ![](20240915_CalabriaPeperoncino_1920x1080.jpg)
+
+#### 20240915 Casa del Prado, Balboa Park, San Diego, California (© f11photo/Getty Images)
+
+![](20240915_BalboaPark_1920x1080.jpg)
 
 #### 20240914 国営ひたち海浜公園, 茨城県 ひたちなか市 (© ThePonAek/Shutterstock)
 
