@@ -1,3 +1,7 @@
+#### 20240916 枝の先に止まっているフクロウ (© rockptarmigan/Getty Images)
+
+![](20240916_OwlNew_1920x1080.jpg)
+
 #### 20240916 Varenna on Lake Como, Italy (© Givaga/Getty Images)
 
 ![](20240916_LagoComoItaly_1920x1080.jpg)

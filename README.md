@@ -1,3 +1,7 @@
+#### 20240916 枝の先に止まっているフクロウ (© rockptarmigan/Getty Images)
+
+![](images/2024-09/20240916_OwlNew_1920x1080.jpg)
+
 #### 20240916 Varenna on Lake Como, Italy (© Givaga/Getty Images)
 
 ![](images/2024-09/20240916_LagoComoItaly_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240910 Vasco da Gama Bridge, Lisbon, Portugal (© Achim Thomae/Getty Images)
 
 ![](images/2024-09/20240910_BridgeLisbon_1920x1080.jpg)
-
-#### 20240909 Iguazu Falls at the border of Argentina and Brazil (© AirPano LLC/Amazing Aerial Agency)
-
-![](images/2024-09/20240909_IguazuRainbow_1920x1080.jpg)
 
 
 
