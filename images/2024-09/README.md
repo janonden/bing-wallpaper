@@ -2,6 +2,10 @@
 
 ![](20240915_SunriseWallabies_1920x1080.jpg)
 
+#### 20240915 Ouimet Canyon near Thunder Bay (© plainpicture/Design Pics/Susan Dykstra)
+
+![](20240915_OuimetCanyon_1920x1080.jpg)
+
 #### 20240915 阿科马尼奥海滩，卡拉布里亚，意大利 (© Alessio de Cicco/Getty Images)
 
 ![](20240915_CalabriaPeperoncino_1920x1080.jpg)

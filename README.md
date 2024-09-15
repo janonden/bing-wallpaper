@@ -2,6 +2,10 @@
 
 ![](images/2024-09/20240915_SunriseWallabies_1920x1080.jpg)
 
+#### 20240915 Ouimet Canyon near Thunder Bay (© plainpicture/Design Pics/Susan Dykstra)
+
+![](images/2024-09/20240915_OuimetCanyon_1920x1080.jpg)
+
 #### 20240915 阿科马尼奥海滩，卡拉布里亚，意大利 (© Alessio de Cicco/Getty Images)
 
 ![](images/2024-09/20240915_CalabriaPeperoncino_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240908 加泰罗尼亚北部的圣马丁杜卡尼古修道院 ，法国 (© Cyril Gosselin/Getty Images)
 
 ![](images/2024-09/20240908_Canigou_1920x1080.jpg)
-
-#### 20240907 Anna's hummingbird, Santa Cruz, California (© yhelfman/Getty Images)
-
-![](images/2024-09/20240907_SantaCruzHummer_1920x1080.jpg)
 
 
 
