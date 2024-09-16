@@ -1,3 +1,11 @@
+#### 20240917 ガーデンズ・バイ・ザ・ベイ, シンガポール (© Victor Y. Zhuo/Alamy)
+
+![](images/2024-09/20240917_MidAutumnSingapore_1920x1080.jpg)
+
+#### 20240917 月圆之夜的豫园，上海，中国 (© zyxeos30/Gettyimages)
+
+![](images/2024-09/20240917_MidAutumnFestival_1920x1080.jpg)
+
 #### 20240916 枝の先に止まっているフクロウ (© rockptarmigan/Getty Images)
 
 ![](images/2024-09/20240916_OwlNew_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20240911 埃尔茨城堡，德国 (© Allard Schager/Alamy)
 
 ![](images/2024-09/20240911_EltzCastle_1920x1080.jpg)
-
-#### 20240910 Sunrise at Ahu Tongariki, Rapa Nui National Park, Easter Island, Chile (© Piriya Photography/Getty Images)
-
-![](images/2024-09/20240910_RapaNuiSunrise_1920x1080.jpg)
-
-#### 20240910 Vasco da Gama Bridge, Lisbon, Portugal (© Achim Thomae/Getty Images)
-
-![](images/2024-09/20240910_BridgeLisbon_1920x1080.jpg)
 
 
 

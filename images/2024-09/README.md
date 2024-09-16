@@ -1,3 +1,11 @@
+#### 20240917 ガーデンズ・バイ・ザ・ベイ, シンガポール (© Victor Y. Zhuo/Alamy)
+
+![](20240917_MidAutumnSingapore_1920x1080.jpg)
+
+#### 20240917 月圆之夜的豫园，上海，中国 (© zyxeos30/Gettyimages)
+
+![](20240917_MidAutumnFestival_1920x1080.jpg)
+
 #### 20240916 枝の先に止まっているフクロウ (© rockptarmigan/Getty Images)
 
 ![](20240916_OwlNew_1920x1080.jpg)
