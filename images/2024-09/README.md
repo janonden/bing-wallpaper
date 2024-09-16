@@ -6,7 +6,7 @@
 
 ![](20240916_LagoComoItaly_1920x1080.jpg)
 
-#### 20240915 ワラビー, オーストラリア ノーザンテリトリー (© Jeremy Woodhouse/Getty Images)
+#### 20240915 Wallabies at sunrise, Adelaide River, Northern Territory, Australia (© Jeremy Woodhouse/Getty Images)
 
 ![](20240915_SunriseWallabies_1920x1080.jpg)
 
