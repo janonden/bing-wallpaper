@@ -1,8 +1,12 @@
+#### 20240918 Kerala, India (© Pranavan Shoots/Shutterstock)
+
+![](images/2024-09/20240918_KeralaSummer_1920x1080.jpg)
+
 #### 20240917 Vue aérienne de champs géométriques de raisin, vignoble en Alsace (© Alexander Sorokopud/Alamy Stock Photo)
 
 ![](images/2024-09/20240917_NordicWalkingDay_1920x1080.jpg)
 
-#### 20240917 ガーデンズ・バイ・ザ・ベイ, シンガポール (© Victor Y. Zhuo/Alamy)
+#### 20240917 Mid-Autumn Festival in Gardens by the Bay, Singapore (© Victor Y. Zhuo/Alamy)
 
 ![](images/2024-09/20240917_MidAutumnSingapore_1920x1080.jpg)
 
@@ -53,10 +57,6 @@
 #### 20240911 Red fox mother kissing her baby in Canada (© pchoui/Getty Images)
 
 ![](images/2024-09/20240911_RedFoxMother_1920x1080.jpg)
-
-#### 20240911 National September 11 Memorial & Museum, New York City (© Antonino Bartuccio/Sime/eStock Photo)
-
-![](images/2024-09/20240911_ManhattanMemorial_1920x1080.jpg)
 
 
 

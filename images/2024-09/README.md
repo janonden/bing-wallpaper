@@ -1,8 +1,12 @@
+#### 20240918 Kerala, India (© Pranavan Shoots/Shutterstock)
+
+![](20240918_KeralaSummer_1920x1080.jpg)
+
 #### 20240917 Vue aérienne de champs géométriques de raisin, vignoble en Alsace (© Alexander Sorokopud/Alamy Stock Photo)
 
 ![](20240917_NordicWalkingDay_1920x1080.jpg)
 
-#### 20240917 ガーデンズ・バイ・ザ・ベイ, シンガポール (© Victor Y. Zhuo/Alamy)
+#### 20240917 Mid-Autumn Festival in Gardens by the Bay, Singapore (© Victor Y. Zhuo/Alamy)
 
 ![](20240917_MidAutumnSingapore_1920x1080.jpg)
 
