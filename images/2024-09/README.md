@@ -2,6 +2,14 @@
 
 ![](20240918_KeralaSummer_1920x1080.jpg)
 
+#### 20240918 郡上八幡城，岐阜县，日本 (© ta2funk ito/500px/Getty Images)
+
+![](20240918_GujoHachiman_1920x1080.jpg)
+
+#### 20240918 グレナリフ森林公園, 北アイルランド アントリム県 (© Dawid K Photography/Shutterstock)
+
+![](20240918_GlenariffPark_1920x1080.jpg)
+
 #### 20240917 Vue aérienne de champs géométriques de raisin, vignoble en Alsace (© Alexander Sorokopud/Alamy Stock Photo)
 
 ![](20240917_NordicWalkingDay_1920x1080.jpg)
