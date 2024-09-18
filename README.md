@@ -2,7 +2,7 @@
 
 ![](images/2024-09/20240918_KeralaSummer_1920x1080.jpg)
 
-#### 20240918 郡上八幡城，岐阜县，日本 (© ta2funk ito/500px/Getty Images)
+#### 20240918 Gujō Hachiman Castle, Gifu prefecture, Japan (© ta2funk ito/500px/Getty Images)
 
 ![](images/2024-09/20240918_GujoHachiman_1920x1080.jpg)
 
