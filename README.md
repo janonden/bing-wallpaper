@@ -54,9 +54,9 @@
 
 ![](images/2024-09/20240915_BalboaPark_1920x1080.jpg)
 
-#### 20240914 国営ひたち海浜公園, 茨城県 ひたちなか市 (© ThePonAek/Shutterstock)
+#### 20240914 Sunrise at Ahu Tongariki, Rapa Nui National Park, Easter Island, Chile (© Piriya Photography/Getty Images)
 
-![](images/2024-09/20240914_CosmosDay_1920x1080.jpg)
+![](images/2024-09/20240914_RapaNuiSunrise_1920x1080.jpg)
 
 
 
