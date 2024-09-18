@@ -1,3 +1,11 @@
+#### 20240919 船の遊具で海賊ごっごを楽しむ子供たち, ドイツ (© INGO WAGNER/DPA/AFP via Getty Images)
+
+![](images/2024-09/20240919_PiratePlayground_1920x1080.jpg)
+
+#### 20240919 埃尔博河上空的银河，阿尔伯塔省，加拿大 (© Alan Dyer/Getty Images)
+
+![](images/2024-09/20240919_ElbowRiver_1920x1080.jpg)
+
 #### 20240918 Kerala, India (© Pranavan Shoots/Shutterstock)
 
 ![](images/2024-09/20240918_KeralaSummer_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20240914 国営ひたち海浜公園, 茨城県 ひたちなか市 (© ThePonAek/Shutterstock)
 
 ![](images/2024-09/20240914_CosmosDay_1920x1080.jpg)
-
-#### 20240913 Schloss Sanssouci, Schlosspark, Potsdam, Brandenburg (© Günter Gräfenhain/Alamy)
-
-![](images/2024-09/20240913_SanssouciPalace_1920x1080.jpg)
-
-#### 20240913 Lighthouse at Point Reyes National Seashore, California (© RMB Images/Photography by Robert Bowman/Getty Images)
-
-![](images/2024-09/20240913_PointReyes_1920x1080.jpg)
 
 
 

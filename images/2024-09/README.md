@@ -1,3 +1,11 @@
+#### 20240919 船の遊具で海賊ごっごを楽しむ子供たち, ドイツ (© INGO WAGNER/DPA/AFP via Getty Images)
+
+![](20240919_PiratePlayground_1920x1080.jpg)
+
+#### 20240919 埃尔博河上空的银河，阿尔伯塔省，加拿大 (© Alan Dyer/Getty Images)
+
+![](20240919_ElbowRiver_1920x1080.jpg)
+
 #### 20240918 Kerala, India (© Pranavan Shoots/Shutterstock)
 
 ![](20240918_KeralaSummer_1920x1080.jpg)
