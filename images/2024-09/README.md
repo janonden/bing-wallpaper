@@ -1,4 +1,4 @@
-#### 20240919 船の遊具で海賊ごっごを楽しむ子供たち, ドイツ (© INGO WAGNER/DPA/AFP via Getty Images)
+#### 20240919 Playground at the Obereversand Lighthouse in Dorum-Neufeld, Germany (© INGO WAGNER/DPA/AFP via Getty Images)
 
 ![](20240919_PiratePlayground_1920x1080.jpg)
 
