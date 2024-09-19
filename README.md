@@ -1,3 +1,7 @@
+#### 20240920 奥克拉科克岛上的奥克拉科克灯塔，北卡罗来纳州，美国 (© Chansak Joe/Getty Images)
+
+![](images/2024-09/20240920_OcracokeLight_1920x1080.jpg)
+
 #### 20240919 Playground at the Obereversand Lighthouse in Dorum-Neufeld, Germany (© INGO WAGNER/DPA/AFP via Getty Images)
 
 ![](images/2024-09/20240919_PiratePlayground_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240915 Casa del Prado, Balboa Park, San Diego, California (© f11photo/Getty Images)
 
 ![](images/2024-09/20240915_BalboaPark_1920x1080.jpg)
-
-#### 20240914 Sunrise at Ahu Tongariki, Rapa Nui National Park, Easter Island, Chile (© Piriya Photography/Getty Images)
-
-![](images/2024-09/20240914_RapaNuiSunrise_1920x1080.jpg)
 
 
 

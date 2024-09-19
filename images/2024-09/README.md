@@ -1,3 +1,7 @@
+#### 20240920 奥克拉科克岛上的奥克拉科克灯塔，北卡罗来纳州，美国 (© Chansak Joe/Getty Images)
+
+![](20240920_OcracokeLight_1920x1080.jpg)
+
 #### 20240919 Playground at the Obereversand Lighthouse in Dorum-Neufeld, Germany (© INGO WAGNER/DPA/AFP via Getty Images)
 
 ![](20240919_PiratePlayground_1920x1080.jpg)
