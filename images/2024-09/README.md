@@ -1,4 +1,4 @@
-#### 20240920 奥克拉科克岛上的奥克拉科克灯塔，北卡罗来纳州，美国 (© Chansak Joe/Getty Images)
+#### 20240920 Ocracoke Lighthouse on Ocracoke Island, North Carolina (© Chansak Joe/Getty Images)
 
 ![](20240920_OcracokeLight_1920x1080.jpg)
 
