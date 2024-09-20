@@ -1,3 +1,7 @@
+#### 20240921 Oktoberfest in Munich at sunset (© AllesSuper21/iStock/Getty Images)
+
+![](images/2024-09/20240921_MunichBeerfest_1920x1080.jpg)
+
 #### 20240920 Ocracoke Lighthouse on Ocracoke Island, North Carolina (© Chansak Joe/Getty Images)
 
 ![](images/2024-09/20240920_OcracokeLight_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240915 阿科马尼奥海滩，卡拉布里亚，意大利 (© Alessio de Cicco/Getty Images)
 
 ![](images/2024-09/20240915_CalabriaPeperoncino_1920x1080.jpg)
-
-#### 20240915 Casa del Prado, Balboa Park, San Diego, California (© f11photo/Getty Images)
-
-![](images/2024-09/20240915_BalboaPark_1920x1080.jpg)
 
 
 
