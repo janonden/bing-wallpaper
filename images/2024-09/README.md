@@ -1,3 +1,11 @@
+#### 20240922 巾着田の彼岸花, 埼玉県 日高市 (© Scirocco340/Shutterstock)
+
+![](20240922_RedSpiderlily_1920x1080.jpg)
+
+#### 20240922 巴特米尔湖，湖区国家公园，英格兰，英国 (© Alan Novelli/Alamy Stock Photo)
+
+![](20240922_AutumnCumbria_1920x1080.jpg)
+
 #### 20240921 Menschen im „Spaten“-Bierzelt auf dem größten Volksfest der Welt, Oktoberfest 2017, München, Bayern (© FooTToo/Getty Images)
 
 ![](20240921_SpatenBeerTent_1920x1080.jpg)

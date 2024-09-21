@@ -1,3 +1,11 @@
+#### 20240922 巾着田の彼岸花, 埼玉県 日高市 (© Scirocco340/Shutterstock)
+
+![](images/2024-09/20240922_RedSpiderlily_1920x1080.jpg)
+
+#### 20240922 巴特米尔湖，湖区国家公园，英格兰，英国 (© Alan Novelli/Alamy Stock Photo)
+
+![](images/2024-09/20240922_AutumnCumbria_1920x1080.jpg)
+
 #### 20240921 Menschen im „Spaten“-Bierzelt auf dem größten Volksfest der Welt, Oktoberfest 2017, München, Bayern (© FooTToo/Getty Images)
 
 ![](images/2024-09/20240921_SpatenBeerTent_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20240916 Varenna on Lake Como, Italy (© Givaga/Getty Images)
 
 ![](images/2024-09/20240916_LagoComoItaly_1920x1080.jpg)
-
-#### 20240915 Wallabies at sunrise, Adelaide River, Northern Territory, Australia (© Jeremy Woodhouse/Getty Images)
-
-![](images/2024-09/20240915_SunriseWallabies_1920x1080.jpg)
-
-#### 20240915 Ouimet Canyon near Thunder Bay (© plainpicture/Design Pics/Susan Dykstra)
-
-![](images/2024-09/20240915_OuimetCanyon_1920x1080.jpg)
 
 
 
