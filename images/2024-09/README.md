@@ -1,3 +1,7 @@
+#### 20240921 Menschen im „Spaten“-Bierzelt auf dem größten Volksfest der Welt, Oktoberfest 2017, München, Bayern (© FooTToo/Getty Images)
+
+![](20240921_SpatenBeerTent_1920x1080.jpg)
+
 #### 20240921 Oktoberfest in Munich at sunset (© AllesSuper21/iStock/Getty Images)
 
 ![](20240921_MunichBeerfest_1920x1080.jpg)

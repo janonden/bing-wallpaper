@@ -1,3 +1,7 @@
+#### 20240921 Menschen im „Spaten“-Bierzelt auf dem größten Volksfest der Welt, Oktoberfest 2017, München, Bayern (© FooTToo/Getty Images)
+
+![](images/2024-09/20240921_SpatenBeerTent_1920x1080.jpg)
+
 #### 20240921 Oktoberfest in Munich at sunset (© AllesSuper21/iStock/Getty Images)
 
 ![](images/2024-09/20240921_MunichBeerfest_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240915 Ouimet Canyon near Thunder Bay (© plainpicture/Design Pics/Susan Dykstra)
 
 ![](images/2024-09/20240915_OuimetCanyon_1920x1080.jpg)
-
-#### 20240915 阿科马尼奥海滩，卡拉布里亚，意大利 (© Alessio de Cicco/Getty Images)
-
-![](images/2024-09/20240915_CalabriaPeperoncino_1920x1080.jpg)
 
 
 
