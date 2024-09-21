@@ -2,7 +2,7 @@
 
 ![](20240921_SpatenBeerTent_1920x1080.jpg)
 
-#### 20240921 Oktoberfest in Munich at sunset (© AllesSuper21/iStock/Getty Images)
+#### 20240921 Oktoberfest in Munich, Germany, at sunset (© AllesSuper21/iStock/Getty Images)
 
 ![](20240921_MunichBeerfest_1920x1080.jpg)
 
