@@ -1,3 +1,7 @@
+#### 20240923 海獭，威廉王子湾,阿拉斯加州,美国 (© Gerald Corsi/Getty Images)
+
+![](images/2024-09/20240923_IcebergOtter_1920x1080.jpg)
+
 #### 20240922 巾着田の彼岸花, 埼玉県 日高市 (© Scirocco340/Shutterstock)
 
 ![](images/2024-09/20240922_RedSpiderlily_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240916 枝の先に止まっているフクロウ (© rockptarmigan/Getty Images)
 
 ![](images/2024-09/20240916_OwlNew_1920x1080.jpg)
-
-#### 20240916 Varenna on Lake Como, Italy (© Givaga/Getty Images)
-
-![](images/2024-09/20240916_LagoComoItaly_1920x1080.jpg)
 
 
 

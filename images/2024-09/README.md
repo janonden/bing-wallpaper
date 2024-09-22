@@ -1,3 +1,7 @@
+#### 20240923 海獭，威廉王子湾,阿拉斯加州,美国 (© Gerald Corsi/Getty Images)
+
+![](20240923_IcebergOtter_1920x1080.jpg)
+
 #### 20240922 巾着田の彼岸花, 埼玉県 日高市 (© Scirocco340/Shutterstock)
 
 ![](20240922_RedSpiderlily_1920x1080.jpg)
