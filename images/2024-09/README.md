@@ -2,7 +2,7 @@
 
 ![](20240922_RedSpiderlily_1920x1080.jpg)
 
-#### 20240922 巴特米尔湖，湖区国家公园，英格兰，英国 (© Alan Novelli/Alamy Stock Photo)
+#### 20240922 Buttermere, Lake District National Park, England (© Alan Novelli/Alamy)
 
 ![](20240922_AutumnCumbria_1920x1080.jpg)
 
