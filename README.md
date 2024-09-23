@@ -1,3 +1,7 @@
+#### 20240924 斯卡夫塔山的瀑布，瓦特纳冰川国家公园，冰岛 (© Nopasorn Kowathanakul/Getty Images)
+
+![](images/2024-09/20240924_SkaftafellWaterfall_1920x1080.jpg)
+
 #### 20240923 Sea otter, Prince William Sound, Alaska (© Gerald Corsi/Getty Images)
 
 ![](images/2024-09/20240923_IcebergOtter_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240917 月圆之夜的豫园，上海，中国 (© zyxeos30/Gettyimages)
 
 ![](images/2024-09/20240917_MidAutumnFestival_1920x1080.jpg)
-
-#### 20240916 枝の先に止まっているフクロウ (© rockptarmigan/Getty Images)
-
-![](images/2024-09/20240916_OwlNew_1920x1080.jpg)
 
 
 

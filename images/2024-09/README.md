@@ -1,3 +1,7 @@
+#### 20240924 斯卡夫塔山的瀑布，瓦特纳冰川国家公园，冰岛 (© Nopasorn Kowathanakul/Getty Images)
+
+![](20240924_SkaftafellWaterfall_1920x1080.jpg)
+
 #### 20240923 Sea otter, Prince William Sound, Alaska (© Gerald Corsi/Getty Images)
 
 ![](20240923_IcebergOtter_1920x1080.jpg)
