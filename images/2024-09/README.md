@@ -1,4 +1,4 @@
-#### 20240923 海獭，威廉王子湾,阿拉斯加州,美国 (© Gerald Corsi/Getty Images)
+#### 20240923 Sea otter, Prince William Sound, Alaska (© Gerald Corsi/Getty Images)
 
 ![](20240923_IcebergOtter_1920x1080.jpg)
 
