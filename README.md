@@ -1,3 +1,7 @@
+#### 20240925 巨型红杉，红杉国家公园，加利福尼亚州，美国 (© Galyna Andrushko/Shutterstock)
+
+![](images/2024-09/20240925_GiantSequoias_1920x1080.jpg)
+
 #### 20240924 Waterfall in Skaftafell, Vatnajökull National Park, Iceland (© Nopasorn Kowathanakul/Getty Images)
 
 ![](images/2024-09/20240924_SkaftafellWaterfall_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240917 Mid-Autumn Festival in Gardens by the Bay, Singapore (© Victor Y. Zhuo/Alamy)
 
 ![](images/2024-09/20240917_MidAutumnSingapore_1920x1080.jpg)
-
-#### 20240917 月圆之夜的豫园，上海，中国 (© zyxeos30/Gettyimages)
-
-![](images/2024-09/20240917_MidAutumnFestival_1920x1080.jpg)
 
 
 

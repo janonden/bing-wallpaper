@@ -1,3 +1,7 @@
+#### 20240925 巨型红杉，红杉国家公园，加利福尼亚州，美国 (© Galyna Andrushko/Shutterstock)
+
+![](20240925_GiantSequoias_1920x1080.jpg)
+
 #### 20240924 Waterfall in Skaftafell, Vatnajökull National Park, Iceland (© Nopasorn Kowathanakul/Getty Images)
 
 ![](20240924_SkaftafellWaterfall_1920x1080.jpg)
