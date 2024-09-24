@@ -1,4 +1,4 @@
-#### 20240924 斯卡夫塔山的瀑布，瓦特纳冰川国家公园，冰岛 (© Nopasorn Kowathanakul/Getty Images)
+#### 20240924 Waterfall in Skaftafell, Vatnajökull National Park, Iceland (© Nopasorn Kowathanakul/Getty Images)
 
 ![](images/2024-09/20240924_SkaftafellWaterfall_1920x1080.jpg)
 
