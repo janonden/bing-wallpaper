@@ -1,3 +1,7 @@
+#### 20240926 蓝斑巨嘴鸟，洛斯戈查尔斯国家公园，哥斯达黎加 (© Oscar Dominguez/Tandem Stills + Motion)
+
+![](20240926_LittleToucanet_1920x1080.jpg)
+
 #### 20240925 Giant sequoias, Sequoia National Park, California (© Galyna Andrushko/Shutterstock)
 
 ![](20240925_GiantSequoias_1920x1080.jpg)

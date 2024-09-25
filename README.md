@@ -1,3 +1,7 @@
+#### 20240926 蓝斑巨嘴鸟，洛斯戈查尔斯国家公园，哥斯达黎加 (© Oscar Dominguez/Tandem Stills + Motion)
+
+![](images/2024-09/20240926_LittleToucanet_1920x1080.jpg)
+
 #### 20240925 Giant sequoias, Sequoia National Park, California (© Galyna Andrushko/Shutterstock)
 
 ![](images/2024-09/20240925_GiantSequoias_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240917 Vue aérienne de champs géométriques de raisin, vignoble en Alsace (© Alexander Sorokopud/Alamy Stock Photo)
 
 ![](images/2024-09/20240917_NordicWalkingDay_1920x1080.jpg)
-
-#### 20240917 Mid-Autumn Festival in Gardens by the Bay, Singapore (© Victor Y. Zhuo/Alamy)
-
-![](images/2024-09/20240917_MidAutumnSingapore_1920x1080.jpg)
 
 
 
