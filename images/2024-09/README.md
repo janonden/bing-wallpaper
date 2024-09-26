@@ -1,3 +1,7 @@
+#### 20240926 Taj Mahal in Agra, Uttar Pradesh, Indien (© Tanarch/Getty Images)
+
+![](20240926_TajMahalReflection_1920x1080.jpg)
+
 #### 20240926 蓝斑巨嘴鸟，洛斯戈查尔斯国家公园，哥斯达黎加 (© Oscar Dominguez/Tandem Stills + Motion)
 
 ![](20240926_LittleToucanet_1920x1080.jpg)
