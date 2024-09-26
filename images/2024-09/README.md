@@ -1,3 +1,11 @@
+#### 20240927 夕暮れに染まる橋, 神奈川県 横浜市 (© Prisma by Dukas Presseagentur GmbH/Alamy Stock Photo)
+
+![](20240927_YokohamaBridge_1920x1080.jpg)
+
+#### 20240927 大运河和安康圣母教堂的鸟瞰图，威尼斯，意大利 (© Bachir Moukarzel/Amazing Aerial Agency)
+
+![](20240927_VeniceAerial_1920x1080.jpg)
+
 #### 20240926 Taj Mahal in Agra, Uttar Pradesh, Indien (© Tanarch/Getty Images)
 
 ![](20240926_TajMahalReflection_1920x1080.jpg)

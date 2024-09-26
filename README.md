@@ -1,3 +1,11 @@
+#### 20240927 夕暮れに染まる橋, 神奈川県 横浜市 (© Prisma by Dukas Presseagentur GmbH/Alamy Stock Photo)
+
+![](images/2024-09/20240927_YokohamaBridge_1920x1080.jpg)
+
+#### 20240927 大运河和安康圣母教堂的鸟瞰图，威尼斯，意大利 (© Bachir Moukarzel/Amazing Aerial Agency)
+
+![](images/2024-09/20240927_VeniceAerial_1920x1080.jpg)
+
 #### 20240926 Taj Mahal in Agra, Uttar Pradesh, Indien (© Tanarch/Getty Images)
 
 ![](images/2024-09/20240926_TajMahalReflection_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20240918 Kerala, India (© Pranavan Shoots/Shutterstock)
 
 ![](images/2024-09/20240918_KeralaSummer_1920x1080.jpg)
-
-#### 20240918 Gujō Hachiman Castle, Gifu prefecture, Japan (© ta2funk ito/500px/Getty Images)
-
-![](images/2024-09/20240918_GujoHachiman_1920x1080.jpg)
-
-#### 20240918 グレナリフ森林公園, 北アイルランド アントリム県 (© Dawid K Photography/Shutterstock)
-
-![](images/2024-09/20240918_GlenariffPark_1920x1080.jpg)
 
 
 
