@@ -1,3 +1,7 @@
+#### 20240928 日出时的海滩，海湾岛国家海岸，佛罗里达，美国 (© Tim Fitzharris/Minden Pictures)
+
+![](20240928_FloridaSeashore_1920x1080.jpg)
+
 #### 20240927 夕暮れに染まる橋, 神奈川県 横浜市 (© Prisma by Dukas Presseagentur GmbH/Alamy Stock Photo)
 
 ![](20240927_YokohamaBridge_1920x1080.jpg)

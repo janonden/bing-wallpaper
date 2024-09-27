@@ -1,3 +1,7 @@
+#### 20240928 日出时的海滩，海湾岛国家海岸，佛罗里达，美国 (© Tim Fitzharris/Minden Pictures)
+
+![](images/2024-09/20240928_FloridaSeashore_1920x1080.jpg)
+
 #### 20240927 夕暮れに染まる橋, 神奈川県 横浜市 (© Prisma by Dukas Presseagentur GmbH/Alamy Stock Photo)
 
 ![](images/2024-09/20240927_YokohamaBridge_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240919 埃尔博河上空的银河，阿尔伯塔省，加拿大 (© Alan Dyer/Getty Images)
 
 ![](images/2024-09/20240919_ElbowRiver_1920x1080.jpg)
-
-#### 20240918 Kerala, India (© Pranavan Shoots/Shutterstock)
-
-![](images/2024-09/20240918_KeralaSummer_1920x1080.jpg)
 
 
 
