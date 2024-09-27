@@ -2,7 +2,7 @@
 
 ![](images/2024-09/20240927_YokohamaBridge_1920x1080.jpg)
 
-#### 20240927 大运河和安康圣母教堂的鸟瞰图，威尼斯，意大利 (© Bachir Moukarzel/Amazing Aerial Agency)
+#### 20240927 Aerial view of the Grand Canal and the Basilica di Santa Maria della Salute, Venice, Italy (© Bachir Moukarzel/Amazing Aerial Agency)
 
 ![](images/2024-09/20240927_VeniceAerial_1920x1080.jpg)
 
