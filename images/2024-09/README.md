@@ -2,6 +2,10 @@
 
 ![](20240928_FloridaSeashore_1920x1080.jpg)
 
+#### 20240928 Cottonwoods seen through an arch in Coyote Gulch, Glen Canyon Recreation Area, Utah (© Stephen Matera/Tandem Stills + Motion)
+
+![](20240928_CoyoteGulch_1920x1080.jpg)
+
 #### 20240928 Calanque d'En-Vau, parc national des Calanques, Côte d’Azur (© Marco Bottigelli/Getty Images)
 
 ![](20240928_Calanques_1920x1080.jpg)

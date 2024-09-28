@@ -2,6 +2,10 @@
 
 ![](images/2024-09/20240928_FloridaSeashore_1920x1080.jpg)
 
+#### 20240928 Cottonwoods seen through an arch in Coyote Gulch, Glen Canyon Recreation Area, Utah (© Stephen Matera/Tandem Stills + Motion)
+
+![](images/2024-09/20240928_CoyoteGulch_1920x1080.jpg)
+
 #### 20240928 Calanque d'En-Vau, parc national des Calanques, Côte d’Azur (© Marco Bottigelli/Getty Images)
 
 ![](images/2024-09/20240928_Calanques_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240920 Ocracoke Lighthouse on Ocracoke Island, North Carolina (© Chansak Joe/Getty Images)
 
 ![](images/2024-09/20240920_OcracokeLight_1920x1080.jpg)
-
-#### 20240919 Playground at the Obereversand Lighthouse in Dorum-Neufeld, Germany (© INGO WAGNER/DPA/AFP via Getty Images)
-
-![](images/2024-09/20240919_PiratePlayground_1920x1080.jpg)
 
 
 
