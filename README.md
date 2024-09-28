@@ -2,6 +2,10 @@
 
 ![](images/2024-09/20240928_FloridaSeashore_1920x1080.jpg)
 
+#### 20240928 Calanque d'En-Vau, parc national des Calanques, Côte d’Azur (© Marco Bottigelli/Getty Images)
+
+![](images/2024-09/20240928_Calanques_1920x1080.jpg)
+
 #### 20240927 夕暮れに染まる橋, 神奈川県 横浜市 (© Prisma by Dukas Presseagentur GmbH/Alamy Stock Photo)
 
 ![](images/2024-09/20240927_YokohamaBridge_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240919 Playground at the Obereversand Lighthouse in Dorum-Neufeld, Germany (© INGO WAGNER/DPA/AFP via Getty Images)
 
 ![](images/2024-09/20240919_PiratePlayground_1920x1080.jpg)
-
-#### 20240919 埃尔博河上空的银河，阿尔伯塔省，加拿大 (© Alan Dyer/Getty Images)
-
-![](images/2024-09/20240919_ElbowRiver_1920x1080.jpg)
 
 
 

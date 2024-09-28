@@ -2,6 +2,10 @@
 
 ![](20240928_FloridaSeashore_1920x1080.jpg)
 
+#### 20240928 Calanque d'En-Vau, parc national des Calanques, Côte d’Azur (© Marco Bottigelli/Getty Images)
+
+![](20240928_Calanques_1920x1080.jpg)
+
 #### 20240927 夕暮れに染まる橋, 神奈川県 横浜市 (© Prisma by Dukas Presseagentur GmbH/Alamy Stock Photo)
 
 ![](20240927_YokohamaBridge_1920x1080.jpg)
