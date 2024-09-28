@@ -1,3 +1,7 @@
+#### 20240929 横跨胡萨托尼克河的西康沃尔廊桥，康涅狄格州，美国 (© pabradyphoto/Getty Images)
+
+![](20240929_ConnecticutBridge_1920x1080.jpg)
+
 #### 20240928 日出时的海滩，海湾岛国家海岸，佛罗里达，美国 (© Tim Fitzharris/Minden Pictures)
 
 ![](20240928_FloridaSeashore_1920x1080.jpg)

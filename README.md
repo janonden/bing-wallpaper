@@ -1,3 +1,7 @@
+#### 20240929 横跨胡萨托尼克河的西康沃尔廊桥，康涅狄格州，美国 (© pabradyphoto/Getty Images)
+
+![](images/2024-09/20240929_ConnecticutBridge_1920x1080.jpg)
+
 #### 20240928 日出时的海滩，海湾岛国家海岸，佛罗里达，美国 (© Tim Fitzharris/Minden Pictures)
 
 ![](images/2024-09/20240928_FloridaSeashore_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240921 Oktoberfest in Munich, Germany, at sunset (© AllesSuper21/iStock/Getty Images)
 
 ![](images/2024-09/20240921_MunichBeerfest_1920x1080.jpg)
-
-#### 20240920 Ocracoke Lighthouse on Ocracoke Island, North Carolina (© Chansak Joe/Getty Images)
-
-![](images/2024-09/20240920_OcracokeLight_1920x1080.jpg)
 
 
 
