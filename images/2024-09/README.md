@@ -1,3 +1,7 @@
+#### 20240930 斯匹次卑尔根岛北部的海象群，斯瓦尔巴群岛，挪威 (© AWL Images/DanitaDelimont)
+
+![](20240930_WalrusNorway_1920x1080.jpg)
+
 #### 20240929 West Cornwall Covered Bridge over the Housatonic River, Connecticut (© pabradyphoto/Getty Images)
 
 ![](20240929_ConnecticutBridge_1920x1080.jpg)
