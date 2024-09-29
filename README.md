@@ -1,4 +1,4 @@
-#### 20240929 横跨胡萨托尼克河的西康沃尔廊桥，康涅狄格州，美国 (© pabradyphoto/Getty Images)
+#### 20240929 West Cornwall Covered Bridge over the Housatonic River, Connecticut (© pabradyphoto/Getty Images)
 
 ![](images/2024-09/20240929_ConnecticutBridge_1920x1080.jpg)
 
