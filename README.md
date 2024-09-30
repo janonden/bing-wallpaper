@@ -1,3 +1,11 @@
+#### 20241001 禾木村的风景，新疆，中国 (© snvv18870020330/Shutterstock)
+
+![](images/2024-10/20241001_NationalDay_1920x1080.jpg)
+
+#### 20241001 ヨセミテ国立公園, 米国 カリフォルニア州 (© Adam Burton/Alamy)
+
+![](images/2024-10/20241001_HalfDomeYosemite_1920x1080.jpg)
+
 #### 20240930 Herd of walruses in northern Spitsbergen, Svalbard archipelago, Norway (© AWL Images/Danita Delimont)
 
 ![](images/2024-09/20240930_WalrusNorway_1920x1080.jpg)
@@ -50,14 +58,6 @@
 
 ![](images/2024-09/20240922_RedSpiderlily_1920x1080.jpg)
 
-#### 20240922 Buttermere, Lake District National Park, England (© Alan Novelli/Alamy)
-
-![](images/2024-09/20240922_AutumnCumbria_1920x1080.jpg)
-
-#### 20240921 Menschen im „Spaten“-Bierzelt auf dem größten Volksfest der Welt, Oktoberfest 2017, München, Bayern (© FooTToo/Getty Images)
-
-![](images/2024-09/20240921_SpatenBeerTent_1920x1080.jpg)
-
 
 
 
@@ -66,7 +66,7 @@
 
 
 
-- 2024&emsp;&emsp;[09](images/2024-09/README.md) &emsp;&emsp;[08](images/2024-08/README.md) &emsp;&emsp;[07](images/2024-07/README.md) &emsp;&emsp;[06](images/2024-06/README.md) &emsp;&emsp;[05](images/2024-05/README.md) &emsp;&emsp;[04](images/2024-04/README.md) &emsp;&emsp;[03](images/2024-03/README.md) &emsp;&emsp;[02](images/2024-02/README.md) &emsp;&emsp;[01](images/2024-01/README.md) 
+- 2024&emsp;&emsp;[10](images/2024-10/README.md) &emsp;&emsp;[09](images/2024-09/README.md) &emsp;&emsp;[08](images/2024-08/README.md) &emsp;&emsp;[07](images/2024-07/README.md) &emsp;&emsp;[06](images/2024-06/README.md) &emsp;&emsp;[05](images/2024-05/README.md) &emsp;&emsp;[04](images/2024-04/README.md) &emsp;&emsp;[03](images/2024-03/README.md) &emsp;&emsp;[02](images/2024-02/README.md) &emsp;&emsp;[01](images/2024-01/README.md) 
 
 - 2023&emsp;&emsp;[12](https://github.com/janonden/bing-wallpaper/blob/2023/images/2023-12/README.md) &emsp;&emsp;[11](https://github.com/janonden/bing-wallpaper/blob/2023/images/2023-11/README.md) &emsp;&emsp;[10](https://github.com/janonden/bing-wallpaper/blob/2023/images/2023-10/README.md) &emsp;&emsp;[09](https://github.com/janonden/bing-wallpaper/blob/2023/images/2023-09/README.md) &emsp;&emsp;[08](https://github.com/janonden/bing-wallpaper/blob/2023/images/2023-08/README.md) &emsp;&emsp;[07](https://github.com/janonden/bing-wallpaper/blob/2023/images/2023-07/README.md) &emsp;&emsp;[06](https://github.com/janonden/bing-wallpaper/blob/2023/images/2023-06/README.md) &emsp;&emsp;[05](https://github.com/janonden/bing-wallpaper/blob/2023/images/2023-05/README.md) &emsp;&emsp;[04](https://github.com/janonden/bing-wallpaper/blob/2023/images/2023-04/README.md) &emsp;&emsp;[03](https://github.com/janonden/bing-wallpaper/blob/2023/images/2023-03/README.md) &emsp;&emsp;[02](https://github.com/janonden/bing-wallpaper/blob/2023/images/2023-02/README.md) &emsp;&emsp;[01](https://github.com/janonden/bing-wallpaper/blob/2023/images/2023-01/README.md) 
 
