@@ -1,4 +1,4 @@
-#### 20240930 斯匹次卑尔根岛北部的海象群，斯瓦尔巴群岛，挪威 (© AWL Images/DanitaDelimont)
+#### 20240930 Herd of walruses in northern Spitsbergen, Svalbard archipelago, Norway (© AWL Images/Danita Delimont)
 
 ![](20240930_WalrusNorway_1920x1080.jpg)
 
