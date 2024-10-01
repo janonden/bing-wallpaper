@@ -6,6 +6,10 @@
 
 ![](images/2024-10/20241001_HalfDomeYosemite_1920x1080.jpg)
 
+#### 20241001 Vue aérienne de Bora-Bora, Polynésie française (© GLF Media/Shutterstock)
+
+![](images/2024-10/20241001_BoraPapeete_1920x1080.jpg)
+
 #### 20240930 Herd of walruses in northern Spitsbergen, Svalbard archipelago, Norway (© AWL Images/Danita Delimont)
 
 ![](images/2024-09/20240930_WalrusNorway_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240923 Sea otter, Prince William Sound, Alaska (© Gerald Corsi/Getty Images)
 
 ![](images/2024-09/20240923_IcebergOtter_1920x1080.jpg)
-
-#### 20240922 巾着田の彼岸花, 埼玉県 日高市 (© Scirocco340/Shutterstock)
-
-![](images/2024-09/20240922_RedSpiderlily_1920x1080.jpg)
 
 
 

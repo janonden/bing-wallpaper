@@ -6,3 +6,7 @@
 
 ![](20241001_HalfDomeYosemite_1920x1080.jpg)
 
+#### 20241001 Vue aérienne de Bora-Bora, Polynésie française (© GLF Media/Shutterstock)
+
+![](20241001_BoraPapeete_1920x1080.jpg)
+
