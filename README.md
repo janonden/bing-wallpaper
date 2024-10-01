@@ -1,3 +1,7 @@
+#### 20241002 温德河，布鲁克斯山脉，北极国家野生动物保护区，阿拉斯加州，美国 (© Design Pics/DanitaDelimont)
+
+![](images/2024-10/20241002_WindRiverAlaska_1920x1080.jpg)
+
 #### 20241001 禾木村的风景，新疆，中国 (© snvv18870020330/Shutterstock)
 
 ![](images/2024-10/20241001_NationalDay_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240924 Waterfall in Skaftafell, Vatnajökull National Park, Iceland (© Nopasorn Kowathanakul/Getty Images)
 
 ![](images/2024-09/20240924_SkaftafellWaterfall_1920x1080.jpg)
-
-#### 20240923 Sea otter, Prince William Sound, Alaska (© Gerald Corsi/Getty Images)
-
-![](images/2024-09/20240923_IcebergOtter_1920x1080.jpg)
 
 
 
