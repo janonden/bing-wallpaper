@@ -2,7 +2,7 @@
 
 ![](images/2024-10/20241002_YukonAutumn_1920x1080.jpg)
 
-#### 20241002 温德河，布鲁克斯山脉，北极国家野生动物保护区，阿拉斯加州，美国 (© Design Pics/DanitaDelimont)
+#### 20241002 Wind River, Brooks Range, Arctic National Wildlife Refuge, Alaska (© Design Pics/Danita Delimont)
 
 ![](images/2024-10/20241002_WindRiverAlaska_1920x1080.jpg)
 
