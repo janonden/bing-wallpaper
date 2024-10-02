@@ -1,3 +1,7 @@
+#### 20241002 Autumn in the Ogilvie Mountains, Yukon,Canada (© Theo Allofs/Minden Pictures)
+
+![](20241002_YukonAutumn_1920x1080.jpg)
+
 #### 20241002 温德河，布鲁克斯山脉，北极国家野生动物保护区，阿拉斯加州，美国 (© Design Pics/DanitaDelimont)
 
 ![](20241002_WindRiverAlaska_1920x1080.jpg)
