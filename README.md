@@ -50,7 +50,7 @@
 
 ![](images/2024-09/20240927_VeniceAerial_1920x1080.jpg)
 
-#### 20240926 Taj Mahal in Agra, Uttar Pradesh, Indien (© Tanarch/Getty Images)
+#### 20240926 Taj Mahal in Agra, Uttar Pradesh, India (© Tanarch/Getty Images)
 
 ![](images/2024-09/20240926_TajMahalReflection_1920x1080.jpg)
 
