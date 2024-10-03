@@ -1,3 +1,7 @@
+#### 20241003 Tag der Deutschen Einheit, Berlin (© pensatyva/Getty Images)
+
+![](20241003_BerlinWallBlueHands_1920x1080.jpg)
+
 #### 20241002 Autumn in the Ogilvie Mountains, Yukon,Canada (© Theo Allofs/Minden Pictures)
 
 ![](20241002_YukonAutumn_1920x1080.jpg)

@@ -1,3 +1,7 @@
+#### 20241003 Tag der Deutschen Einheit, Berlin (© pensatyva/Getty Images)
+
+![](images/2024-10/20241003_BerlinWallBlueHands_1920x1080.jpg)
+
 #### 20241002 Autumn in the Ogilvie Mountains, Yukon,Canada (© Theo Allofs/Minden Pictures)
 
 ![](images/2024-10/20241002_YukonAutumn_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240926 Blue-throated toucanet, Los Quetzales National Park, Costa Rica (© Oscar Dominguez/Tandem Stills + Motion)
 
 ![](images/2024-09/20240926_LittleToucanet_1920x1080.jpg)
-
-#### 20240925 Giant sequoias, Sequoia National Park, California (© Galyna Andrushko/Shutterstock)
-
-![](images/2024-09/20240925_GiantSequoias_1920x1080.jpg)
 
 
 
