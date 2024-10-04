@@ -1,3 +1,7 @@
+#### 20241005 东察沃国家公园的非洲象，肯尼亚 (© Neil Bowman/Minden Pictures)
+
+![](20241005_ElephantTeacher_1920x1080.jpg)
+
 #### 20241004 Toronto Sign, Nathan Phillips Square, Canada (© Bruce Christie/Moment/Getty Images)
 
 ![](20241004_NuitBlanche_1920x1080.jpg)

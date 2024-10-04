@@ -1,3 +1,7 @@
+#### 20241005 东察沃国家公园的非洲象，肯尼亚 (© Neil Bowman/Minden Pictures)
+
+![](images/2024-10/20241005_ElephantTeacher_1920x1080.jpg)
+
 #### 20241004 Toronto Sign, Nathan Phillips Square, Canada (© Bruce Christie/Moment/Getty Images)
 
 ![](images/2024-10/20241004_NuitBlanche_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240927 夕暮れに染まる橋, 神奈川県 横浜市 (© Prisma by Dukas Presseagentur GmbH/Alamy Stock Photo)
 
 ![](images/2024-09/20240927_YokohamaBridge_1920x1080.jpg)
-
-#### 20240927 Aerial view of the Grand Canal and the Basilica di Santa Maria della Salute, Venice, Italy (© Bachir Moukarzel/Amazing Aerial Agency)
-
-![](images/2024-09/20240927_VeniceAerial_1920x1080.jpg)
 
 
 
