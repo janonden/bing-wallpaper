@@ -2,7 +2,7 @@
 
 ![](20241004_NuitBlanche_1920x1080.jpg)
 
-#### 20241004 木星的冰卫星木卫二 (© NASA/JPL-Caltech/SETI Institute)
+#### 20241004 Jupiter's icy moon Europa (© NASA/JPL-Caltech/SETI Institute)
 
 ![](20241004_EuropaMoon_1920x1080.jpg)
 
