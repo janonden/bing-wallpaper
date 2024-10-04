@@ -1,3 +1,7 @@
+#### 20241004 Toronto Sign, Nathan Phillips Square, Canada (© Bruce Christie/Moment/Getty Images)
+
+![](images/2024-10/20241004_NuitBlanche_1920x1080.jpg)
+
 #### 20241004 木星的冰卫星木卫二 (© NASA/JPL-Caltech/SETI Institute)
 
 ![](images/2024-10/20241004_EuropaMoon_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240927 Aerial view of the Grand Canal and the Basilica di Santa Maria della Salute, Venice, Italy (© Bachir Moukarzel/Amazing Aerial Agency)
 
 ![](images/2024-09/20240927_VeniceAerial_1920x1080.jpg)
-
-#### 20240926 Taj Mahal in Agra, Uttar Pradesh, India (© Tanarch/Getty Images)
-
-![](images/2024-09/20240926_TajMahalReflection_1920x1080.jpg)
 
 
 
