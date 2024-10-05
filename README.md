@@ -1,3 +1,7 @@
+#### 20241006 国営ひたち海浜公園, 茨城県 ひたちなか市 (© DigiPub/Getty Images)
+
+![](images/2024-10/20241006_KochiaJapan_1920x1080.jpg)
+
 #### 20241005 African elephants in Tsavo East National Park, Kenya (© Neil Bowman/Minden Pictures)
 
 ![](images/2024-10/20241005_ElephantTeacher_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240928 Calanque d'En-Vau, parc national des Calanques, Côte d’Azur (© Marco Bottigelli/Getty Images)
 
 ![](images/2024-09/20240928_Calanques_1920x1080.jpg)
-
-#### 20240927 夕暮れに染まる橋, 神奈川県 横浜市 (© Prisma by Dukas Presseagentur GmbH/Alamy Stock Photo)
-
-![](images/2024-09/20240927_YokohamaBridge_1920x1080.jpg)
 
 
 

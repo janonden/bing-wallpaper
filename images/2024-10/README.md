@@ -1,3 +1,7 @@
+#### 20241006 国営ひたち海浜公園, 茨城県 ひたちなか市 (© DigiPub/Getty Images)
+
+![](20241006_KochiaJapan_1920x1080.jpg)
+
 #### 20241005 African elephants in Tsavo East National Park, Kenya (© Neil Bowman/Minden Pictures)
 
 ![](20241005_ElephantTeacher_1920x1080.jpg)
