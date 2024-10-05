@@ -1,4 +1,4 @@
-#### 20241005 东察沃国家公园的非洲象，肯尼亚 (© Neil Bowman/Minden Pictures)
+#### 20241005 African elephants in Tsavo East National Park, Kenya (© Neil Bowman/Minden Pictures)
 
 ![](20241005_ElephantTeacher_1920x1080.jpg)
 
