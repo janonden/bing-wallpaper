@@ -1,3 +1,7 @@
+#### 20241007 エルプフィルハーモニー・ハンブルク, ドイツ (© Canetti/Shutterstock)
+
+![](images/2024-10/20241007_ElbePhilharmonic_1920x1080.jpg)
+
 #### 20241006 Sorano, Tuscany, Italy (© Luigi Vaccarella/eStock Photo)
 
 ![](images/2024-10/20241006_SoranoItaly_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240929 West Cornwall Covered Bridge over the Housatonic River, Connecticut (© pabradyphoto/Getty Images)
 
 ![](images/2024-09/20240929_ConnecticutBridge_1920x1080.jpg)
-
-#### 20240928 日出时的海滩，海湾岛国家海岸，佛罗里达，美国 (© Tim Fitzharris/Minden Pictures)
-
-![](images/2024-09/20240928_FloridaSeashore_1920x1080.jpg)
 
 
 

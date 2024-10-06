@@ -1,3 +1,7 @@
+#### 20241007 エルプフィルハーモニー・ハンブルク, ドイツ (© Canetti/Shutterstock)
+
+![](20241007_ElbePhilharmonic_1920x1080.jpg)
+
 #### 20241006 Sorano, Tuscany, Italy (© Luigi Vaccarella/eStock Photo)
 
 ![](20241006_SoranoItaly_1920x1080.jpg)
