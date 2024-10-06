@@ -1,3 +1,7 @@
+#### 20241006 Sorano, Tuscany, Italy (© Luigi Vaccarella/eStock Photo)
+
+![](images/2024-10/20241006_SoranoItaly_1920x1080.jpg)
+
 #### 20241006 国営ひたち海浜公園, 茨城県 ひたちなか市 (© DigiPub/Getty Images)
 
 ![](images/2024-10/20241006_KochiaJapan_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240928 日出时的海滩，海湾岛国家海岸，佛罗里达，美国 (© Tim Fitzharris/Minden Pictures)
 
 ![](images/2024-09/20240928_FloridaSeashore_1920x1080.jpg)
-
-#### 20240928 Cottonwoods seen through an arch in Coyote Gulch, Glen Canyon Recreation Area, Utah (© Stephen Matera/Tandem Stills + Motion)
-
-![](images/2024-09/20240928_CoyoteGulch_1920x1080.jpg)
 
 
 

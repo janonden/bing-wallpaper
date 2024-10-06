@@ -1,3 +1,7 @@
+#### 20241006 Sorano, Tuscany, Italy (© Luigi Vaccarella/eStock Photo)
+
+![](20241006_SoranoItaly_1920x1080.jpg)
+
 #### 20241006 国営ひたち海浜公園, 茨城県 ひたちなか市 (© DigiPub/Getty Images)
 
 ![](20241006_KochiaJapan_1920x1080.jpg)
