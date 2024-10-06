@@ -26,6 +26,10 @@
 
 ![](images/2024-10/20241004_EuropaMoon_1920x1080.jpg)
 
+#### 20241003 Taj Mahal in Agra, Uttar Pradesh, India (© Tanarch/Getty Images)
+
+![](images/2024-10/20241003_TajMahalReflection_1920x1080.jpg)
+
 #### 20241003 Tag der Deutschen Einheit, Berlin (© pensatyva/Getty Images)
 
 ![](images/2024-10/20241003_BerlinWallBlueHands_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240930 Herd of walruses in northern Spitsbergen, Svalbard archipelago, Norway (© AWL Images/Danita Delimont)
 
 ![](images/2024-09/20240930_WalrusNorway_1920x1080.jpg)
-
-#### 20240929 West Cornwall Covered Bridge over the Housatonic River, Connecticut (© pabradyphoto/Getty Images)
-
-![](images/2024-09/20240929_ConnecticutBridge_1920x1080.jpg)
 
 
 

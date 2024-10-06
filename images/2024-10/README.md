@@ -26,6 +26,10 @@
 
 ![](20241004_EuropaMoon_1920x1080.jpg)
 
+#### 20241003 Taj Mahal in Agra, Uttar Pradesh, India (© Tanarch/Getty Images)
+
+![](20241003_TajMahalReflection_1920x1080.jpg)
+
 #### 20241003 Tag der Deutschen Einheit, Berlin (© pensatyva/Getty Images)
 
 ![](20241003_BerlinWallBlueHands_1920x1080.jpg)
