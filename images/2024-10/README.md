@@ -2,6 +2,10 @@
 
 ![](20241006_KochiaJapan_1920x1080.jpg)
 
+#### 20241006 Festival of Lights, Berlin (© JOHN MACDOUGALL/Getty Images)
+
+![](20241006_BerlinConcertHallFestivalofLights_1920x1080.jpg)
+
 #### 20241005 African elephants in Tsavo East National Park, Kenya (© Neil Bowman/Minden Pictures)
 
 ![](20241005_ElephantTeacher_1920x1080.jpg)

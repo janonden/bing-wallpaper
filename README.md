@@ -2,6 +2,10 @@
 
 ![](images/2024-10/20241006_KochiaJapan_1920x1080.jpg)
 
+#### 20241006 Festival of Lights, Berlin (© JOHN MACDOUGALL/Getty Images)
+
+![](images/2024-10/20241006_BerlinConcertHallFestivalofLights_1920x1080.jpg)
+
 #### 20241005 African elephants in Tsavo East National Park, Kenya (© Neil Bowman/Minden Pictures)
 
 ![](images/2024-10/20241005_ElephantTeacher_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20240928 Cottonwoods seen through an arch in Coyote Gulch, Glen Canyon Recreation Area, Utah (© Stephen Matera/Tandem Stills + Motion)
 
 ![](images/2024-09/20240928_CoyoteGulch_1920x1080.jpg)
-
-#### 20240928 Calanque d'En-Vau, parc national des Calanques, Côte d’Azur (© Marco Bottigelli/Getty Images)
-
-![](images/2024-09/20240928_Calanques_1920x1080.jpg)
 
 
 
