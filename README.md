@@ -1,3 +1,7 @@
+#### 20241008 秋の八甲田ロープウェイ,  青森県 青森市 (© Torsakarin/Getty Images)
+
+![](images/2024-10/20241008_Kanro_1920x1080.jpg)
+
 #### 20241007 The Elbphilharmonie concert hall in Hamburg, Germany (© Canetti/Shutterstock)
 
 ![](images/2024-10/20241007_ElbePhilharmonic_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20241001 Vue aérienne de Bora-Bora, Polynésie française (© GLF Media/Shutterstock)
 
 ![](images/2024-10/20241001_BoraPapeete_1920x1080.jpg)
-
-#### 20240930 Herd of walruses in northern Spitsbergen, Svalbard archipelago, Norway (© AWL Images/Danita Delimont)
-
-![](images/2024-09/20240930_WalrusNorway_1920x1080.jpg)
 
 
 

@@ -1,3 +1,7 @@
+#### 20241008 秋の八甲田ロープウェイ,  青森県 青森市 (© Torsakarin/Getty Images)
+
+![](20241008_Kanro_1920x1080.jpg)
+
 #### 20241007 The Elbphilharmonie concert hall in Hamburg, Germany (© Canetti/Shutterstock)
 
 ![](20241007_ElbePhilharmonic_1920x1080.jpg)
