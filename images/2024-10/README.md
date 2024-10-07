@@ -1,4 +1,4 @@
-#### 20241007 エルプフィルハーモニー・ハンブルク, ドイツ (© Canetti/Shutterstock)
+#### 20241007 The Elbphilharmonie concert hall in Hamburg, Germany (© Canetti/Shutterstock)
 
 ![](20241007_ElbePhilharmonic_1920x1080.jpg)
 
