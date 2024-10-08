@@ -1,4 +1,4 @@
-#### 20241008 Mototi-Oktopus, Lembeh Strait, Indonesien (© Howard Chew/Alamy)
+#### 20241008 Mototi octopus, Lembeh Strait, Indonesia (© Howard Chew/Alamy)
 
 ![](images/2024-10/20241008_MototiOctopus_1920x1080.jpg)
 
