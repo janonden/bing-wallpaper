@@ -1,3 +1,7 @@
+#### 20241008 Mototi-Oktopus, Lembeh Strait, Indonesien (© Howard Chew/Alamy)
+
+![](images/2024-10/20241008_MototiOctopus_1920x1080.jpg)
+
 #### 20241008 秋の八甲田ロープウェイ,  青森県 青森市 (© Torsakarin/Getty Images)
 
 ![](images/2024-10/20241008_Kanro_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20241001 Last light on Half Dome, Yosemite National Park, California (© Adam Burton/Alamy)
 
 ![](images/2024-10/20241001_HalfDomeYosemite_1920x1080.jpg)
-
-#### 20241001 Vue aérienne de Bora-Bora, Polynésie française (© GLF Media/Shutterstock)
-
-![](images/2024-10/20241001_BoraPapeete_1920x1080.jpg)
 
 
 
