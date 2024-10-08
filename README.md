@@ -14,6 +14,10 @@
 
 ![](images/2024-10/20241007_ElbePhilharmonic_1920x1080.jpg)
 
+#### 20241007 Cottonwoods through an arch in Coyote Gulch, Glen Canyon Recreation Area, Utah, USA (© Stephen Matera/TANDEM Stills + Motion)
+
+![](images/2024-10/20241007_CoyoteGulch_1920x1080.jpg)
+
 #### 20241006 Sorano, Tuscany, Italy (© Luigi Vaccarella/eStock Photo)
 
 ![](images/2024-10/20241006_SoranoItaly_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20241002 Wind River, Brooks Range, Arctic National Wildlife Refuge, Alaska (© Design Pics/Danita Delimont)
 
 ![](images/2024-10/20241002_WindRiverAlaska_1920x1080.jpg)
-
-#### 20241001 禾木村的风景，新疆，中国 (© snvv18870020330/Shutterstock)
-
-![](images/2024-10/20241001_NationalDay_1920x1080.jpg)
 
 
 
