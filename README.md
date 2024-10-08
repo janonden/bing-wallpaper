@@ -1,3 +1,7 @@
+#### 20241009 马布尔附近的白杨树，科罗拉多州，美国 (© Jason Hatfield/TANDEM Stills + Motion)
+
+![](images/2024-10/20241009_AspensColorado_1920x1080.jpg)
+
 #### 20241008 Mototi octopus, Lembeh Strait, Indonesia (© Howard Chew/Alamy)
 
 ![](images/2024-10/20241008_MototiOctopus_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20241001 禾木村的风景，新疆，中国 (© snvv18870020330/Shutterstock)
 
 ![](images/2024-10/20241001_NationalDay_1920x1080.jpg)
-
-#### 20241001 Last light on Half Dome, Yosemite National Park, California (© Adam Burton/Alamy)
-
-![](images/2024-10/20241001_HalfDomeYosemite_1920x1080.jpg)
 
 
 

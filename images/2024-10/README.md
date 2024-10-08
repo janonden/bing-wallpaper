@@ -1,3 +1,7 @@
+#### 20241009 马布尔附近的白杨树，科罗拉多州，美国 (© Jason Hatfield/TANDEM Stills + Motion)
+
+![](20241009_AspensColorado_1920x1080.jpg)
+
 #### 20241008 Mototi octopus, Lembeh Strait, Indonesia (© Howard Chew/Alamy)
 
 ![](20241008_MototiOctopus_1920x1080.jpg)
