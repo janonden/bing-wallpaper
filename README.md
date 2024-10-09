@@ -1,3 +1,7 @@
+#### 20241009 Potsdamer Platz in Berlin (© franckreporter/Getty Images)
+
+![](images/2024-10/20241009_PotsdamerPlatzBerlin_1920x1080.jpg)
+
 #### 20241009 马布尔附近的白杨树，科罗拉多州，美国 (© Jason Hatfield/TANDEM Stills + Motion)
 
 ![](images/2024-10/20241009_AspensColorado_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20241002 Autumn in the Ogilvie Mountains, Yukon,Canada (© Theo Allofs/Minden Pictures)
 
 ![](images/2024-10/20241002_YukonAutumn_1920x1080.jpg)
-
-#### 20241002 Wind River, Brooks Range, Arctic National Wildlife Refuge, Alaska (© Design Pics/Danita Delimont)
-
-![](images/2024-10/20241002_WindRiverAlaska_1920x1080.jpg)
 
 
 

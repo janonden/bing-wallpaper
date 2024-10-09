@@ -1,3 +1,7 @@
+#### 20241009 Potsdamer Platz in Berlin (© franckreporter/Getty Images)
+
+![](20241009_PotsdamerPlatzBerlin_1920x1080.jpg)
+
 #### 20241009 马布尔附近的白杨树，科罗拉多州，美国 (© Jason Hatfield/TANDEM Stills + Motion)
 
 ![](20241009_AspensColorado_1920x1080.jpg)
