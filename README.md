@@ -2,7 +2,7 @@
 
 ![](images/2024-10/20241009_PotsdamerPlatzBerlin_1920x1080.jpg)
 
-#### 20241009 马布尔附近的白杨树，科罗拉多州，美国 (© Jason Hatfield/TANDEM Stills + Motion)
+#### 20241009 Aspens in the White River National Forest, Colorado (© Jason Hatfield/Tandem Stills + Motion)
 
 ![](images/2024-10/20241009_AspensColorado_1920x1080.jpg)
 
