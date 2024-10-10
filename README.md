@@ -22,6 +22,10 @@
 
 ![](images/2024-10/20241008_Kanro_1920x1080.jpg)
 
+#### 20241008 Aerial view of Bora Bora in French Polynesia (© GLF Media/Shutterstock)
+
+![](images/2024-10/20241008_BoraPapeete_1920x1080.jpg)
+
 #### 20241007 The Elbphilharmonie concert hall in Hamburg, Germany (© Canetti/Shutterstock)
 
 ![](images/2024-10/20241007_ElbePhilharmonic_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20241004 Jupiter's icy moon Europa (© NASA/JPL-Caltech/SETI Institute)
 
 ![](images/2024-10/20241004_EuropaMoon_1920x1080.jpg)
-
-#### 20241003 Taj Mahal in Agra, Uttar Pradesh, India (© Tanarch/Getty Images)
-
-![](images/2024-10/20241003_TajMahalReflection_1920x1080.jpg)
 
 
 
