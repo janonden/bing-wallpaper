@@ -1,3 +1,11 @@
+#### 20241011 黄山云海，安徽省，中国 (© yangyang1991/Getty Images)
+
+![](20241011_Chongyang_1920x1080.jpg)
+
+#### 20241011 ケープ・ブレトン島, カナダ ノバスコシア州 (© Cavan Images/Alamy)
+
+![](20241011_CelticColours_1920x1080.jpg)
+
 #### 20241009 Potsdamer Platz in Berlin (© franckreporter/Getty Images)
 
 ![](20241009_PotsdamerPlatzBerlin_1920x1080.jpg)

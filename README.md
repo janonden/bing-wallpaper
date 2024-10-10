@@ -1,3 +1,11 @@
+#### 20241011 黄山云海，安徽省，中国 (© yangyang1991/Getty Images)
+
+![](images/2024-10/20241011_Chongyang_1920x1080.jpg)
+
+#### 20241011 ケープ・ブレトン島, カナダ ノバスコシア州 (© Cavan Images/Alamy)
+
+![](images/2024-10/20241011_CelticColours_1920x1080.jpg)
+
 #### 20241009 Potsdamer Platz in Berlin (© franckreporter/Getty Images)
 
 ![](images/2024-10/20241009_PotsdamerPlatzBerlin_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20241003 Taj Mahal in Agra, Uttar Pradesh, India (© Tanarch/Getty Images)
 
 ![](images/2024-10/20241003_TajMahalReflection_1920x1080.jpg)
-
-#### 20241003 Tag der Deutschen Einheit, Berlin (© pensatyva/Getty Images)
-
-![](images/2024-10/20241003_BerlinWallBlueHands_1920x1080.jpg)
-
-#### 20241002 Autumn in the Ogilvie Mountains, Yukon,Canada (© Theo Allofs/Minden Pictures)
-
-![](images/2024-10/20241002_YukonAutumn_1920x1080.jpg)
 
 
 
