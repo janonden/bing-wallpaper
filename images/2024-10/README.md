@@ -1,3 +1,7 @@
+#### 20241012 林鸳鸯，魁北克省，加拿大 (© Maxime Riendeau/Getty Images)
+
+![](20241012_QuebecDuck_1920x1080.jpg)
+
 #### 20241011 黄山云海，安徽省，中国 (© yangyang1991/Getty Images)
 
 ![](20241011_Chongyang_1920x1080.jpg)

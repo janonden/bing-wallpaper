@@ -1,3 +1,7 @@
+#### 20241012 林鸳鸯，魁北克省，加拿大 (© Maxime Riendeau/Getty Images)
+
+![](images/2024-10/20241012_QuebecDuck_1920x1080.jpg)
+
 #### 20241011 黄山云海，安徽省，中国 (© yangyang1991/Getty Images)
 
 ![](images/2024-10/20241011_Chongyang_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20241004 Toronto Sign, Nathan Phillips Square, Canada (© Bruce Christie/Moment/Getty Images)
 
 ![](images/2024-10/20241004_NuitBlanche_1920x1080.jpg)
-
-#### 20241004 Jupiter's icy moon Europa (© NASA/JPL-Caltech/SETI Institute)
-
-![](images/2024-10/20241004_EuropaMoon_1920x1080.jpg)
 
 
 
