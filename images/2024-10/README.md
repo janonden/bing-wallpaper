@@ -2,7 +2,7 @@
 
 ![](20241011_Chongyang_1920x1080.jpg)
 
-#### 20241011 ケープ・ブレトン島, カナダ ノバスコシア州 (© Cavan Images/Alamy)
+#### 20241011 Cape Breton Highlands, Nova Scotia, Canada (© Cavan Images/Alamy)
 
 ![](20241011_CelticColours_1920x1080.jpg)
 
