@@ -1,3 +1,7 @@
+#### 20241013 塞维利亚王宫少女庭院，西班牙 (© Danny Lehman/Getty Images)
+
+![](images/2024-10/20241013_AlcazarSeville_1920x1080.jpg)
+
 #### 20241012 Wood duck, Quebec, Canada (© Maxime Riendeau/Getty Images)
 
 ![](images/2024-10/20241012_QuebecDuck_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20241005 African elephants in Tsavo East National Park, Kenya (© Neil Bowman/Minden Pictures)
 
 ![](images/2024-10/20241005_ElephantTeacher_1920x1080.jpg)
-
-#### 20241004 Toronto Sign, Nathan Phillips Square, Canada (© Bruce Christie/Moment/Getty Images)
-
-![](images/2024-10/20241004_NuitBlanche_1920x1080.jpg)
 
 
 

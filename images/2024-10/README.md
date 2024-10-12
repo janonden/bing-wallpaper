@@ -1,3 +1,7 @@
+#### 20241013 塞维利亚王宫少女庭院，西班牙 (© Danny Lehman/Getty Images)
+
+![](20241013_AlcazarSeville_1920x1080.jpg)
+
 #### 20241012 Wood duck, Quebec, Canada (© Maxime Riendeau/Getty Images)
 
 ![](20241012_QuebecDuck_1920x1080.jpg)
