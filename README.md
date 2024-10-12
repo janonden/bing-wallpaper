@@ -1,4 +1,4 @@
-#### 20241012 林鸳鸯，魁北克省，加拿大 (© Maxime Riendeau/Getty Images)
+#### 20241012 Wood duck, Quebec, Canada (© Maxime Riendeau/Getty Images)
 
 ![](images/2024-10/20241012_QuebecDuck_1920x1080.jpg)
 
