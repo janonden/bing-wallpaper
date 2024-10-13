@@ -1,4 +1,4 @@
-#### 20241013 塞维利亚王宫少女庭院，西班牙 (© Danny Lehman/Getty Images)
+#### 20241013 Courtyard of the Maidens, Alcázar of Seville, Spain (© Danny Lehman/Getty Images)
 
 ![](20241013_AlcazarSeville_1920x1080.jpg)
 
