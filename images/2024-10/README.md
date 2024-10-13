@@ -1,3 +1,11 @@
+#### 20241014 東京駅, 東京都 (© phutthiseth thongtae/Getty Images)
+
+![](20241014_RailwaysDayNew_1920x1080.jpg)
+
+#### 20241014 可可海滩上的渔船，果阿邦，印度 (© Abhinav Sah/Shutterstock)
+
+![](20241014_CocoBeach_1920x1080.jpg)
+
 #### 20241013 Courtyard of the Maidens, Alcázar of Seville, Spain (© Danny Lehman/Getty Images)
 
 ![](20241013_AlcazarSeville_1920x1080.jpg)
