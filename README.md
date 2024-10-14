@@ -2,6 +2,10 @@
 
 ![](images/2024-10/20241014_RailwaysDayNew_1920x1080.jpg)
 
+#### 20241014 Ancestral Pueblo granaries at Nankoweap, Grand Canyon National Park, Arizona (© Andrew Peacock/Tandem Stills + Motion)
+
+![](images/2024-10/20241014_PuebloNankoweap_1920x1080.jpg)
+
 #### 20241014 Bateaux dans la baie de Marigot, Terre-de-Haut, archipel des Saintes, Guadeloupe (© Tan Yilmaz/Getty Images)
 
 ![](images/2024-10/20241014_MarigotBay_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20241007 Cottonwoods through an arch in Coyote Gulch, Glen Canyon Recreation Area, Utah, USA (© Stephen Matera/TANDEM Stills + Motion)
 
 ![](images/2024-10/20241007_CoyoteGulch_1920x1080.jpg)
-
-#### 20241006 Sorano, Tuscany, Italy (© Luigi Vaccarella/eStock Photo)
-
-![](images/2024-10/20241006_SoranoItaly_1920x1080.jpg)
 
 
 
