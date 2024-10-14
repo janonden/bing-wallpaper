@@ -1,3 +1,11 @@
+#### 20241015 马拉河的角马大迁徙，肯尼亚 (© Ayzenstayn/Getty Images)
+
+![](20241015_MaraMigration_1920x1080.jpg)
+
+#### 20241015 ジュラシック・コーストの化石, イギリス ドーセット州 (© Nature Picture Library/Alamy)
+
+![](20241015_FossilsDorset_1920x1080.jpg)
+
 #### 20241014 東京駅, 東京都 (© phutthiseth thongtae/Getty Images)
 
 ![](20241014_RailwaysDayNew_1920x1080.jpg)
