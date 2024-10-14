@@ -2,6 +2,10 @@
 
 ![](20241014_RailwaysDayNew_1920x1080.jpg)
 
+#### 20241014 Bateaux dans la baie de Marigot, Terre-de-Haut, archipel des Saintes, Guadeloupe (© Tan Yilmaz/Getty Images)
+
+![](20241014_MarigotBay_1920x1080.jpg)
+
 #### 20241014 可可海滩上的渔船，果阿邦，印度 (© Abhinav Sah/Shutterstock)
 
 ![](20241014_CocoBeach_1920x1080.jpg)
