@@ -1,4 +1,4 @@
-#### 20241015 马拉河的角马大迁徙，肯尼亚 (© Ayzenstayn/Getty Images)
+#### 20241015 Great wildebeest migration at Mara River, Kenya (© Ayzenstayn/Getty Images)
 
 ![](20241015_MaraMigration_1920x1080.jpg)
 
