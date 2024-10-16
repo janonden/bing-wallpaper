@@ -2,7 +2,7 @@
 
 ![](20241015_MaraMigration_1920x1080.jpg)
 
-#### 20241015 ジュラシック・コーストの化石, イギリス ドーセット州 (© Nature Picture Library/Alamy)
+#### 20241015 Fossils of belemnites and ammonites, Jurassic Coast, Dorset, England (© Nature Picture Library/Alamy)
 
 ![](20241015_FossilsDorset_1920x1080.jpg)
 
