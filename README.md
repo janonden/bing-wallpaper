@@ -2,6 +2,10 @@
 
 ![](images/2024-10/20241017_PitonFournaise_1920x1080.jpg)
 
+#### 20241017 Frost-covered dunes on the surface of Mars (© NASA/JPL-Caltech/UArizona)
+
+![](images/2024-10/20241017_MarsDunes_1920x1080.jpg)
+
 #### 20241015 Great wildebeest migration at Mara River, Kenya (© Ayzenstayn/Getty Images)
 
 ![](images/2024-10/20241015_MaraMigration_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20241008 Mototi octopus, Lembeh Strait, Indonesia (© Howard Chew/Alamy)
 
 ![](images/2024-10/20241008_MototiOctopus_1920x1080.jpg)
-
-#### 20241008 秋の八甲田ロープウェイ,  青森県 青森市 (© Torsakarin/Getty Images)
-
-![](images/2024-10/20241008_Kanro_1920x1080.jpg)
 
 
 

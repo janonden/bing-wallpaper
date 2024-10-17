@@ -2,6 +2,10 @@
 
 ![](20241017_PitonFournaise_1920x1080.jpg)
 
+#### 20241017 Frost-covered dunes on the surface of Mars (© NASA/JPL-Caltech/UArizona)
+
+![](20241017_MarsDunes_1920x1080.jpg)
+
 #### 20241015 Great wildebeest migration at Mara River, Kenya (© Ayzenstayn/Getty Images)
 
 ![](20241015_MaraMigration_1920x1080.jpg)
