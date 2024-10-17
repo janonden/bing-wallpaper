@@ -2,6 +2,10 @@
 
 ![](images/2024-10/20241018_KochiaJapan_1920x1080.jpg)
 
+#### 20241018 曼哈顿中央公园的秋天，纽约，美国 (© mapman/Shutterstock)
+
+![](images/2024-10/20241018_CentralParkAutumn_1920x1080.jpg)
+
 #### 20241017 Volcan Formica Leo, Piton de la Fournaise, île de La Réunion (© Stefan Kiefer/imageBROKER.com GmbH & Co. KG/Alamy Stock Photo)
 
 ![](images/2024-10/20241017_PitonFournaise_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20241009 Potsdamer Platz in Berlin (© franckreporter/Getty Images)
 
 ![](images/2024-10/20241009_PotsdamerPlatzBerlin_1920x1080.jpg)
-
-#### 20241009 Aspens in the White River National Forest, Colorado (© Jason Hatfield/Tandem Stills + Motion)
-
-![](images/2024-10/20241009_AspensColorado_1920x1080.jpg)
 
 
 
