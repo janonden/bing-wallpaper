@@ -1,3 +1,7 @@
+#### 20241017 Volcan Formica Leo, Piton de la Fournaise, île de La Réunion (© Stefan Kiefer/imageBROKER.com GmbH & Co. KG/Alamy Stock Photo)
+
+![](images/2024-10/20241017_PitonFournaise_1920x1080.jpg)
+
 #### 20241015 Great wildebeest migration at Mara River, Kenya (© Ayzenstayn/Getty Images)
 
 ![](images/2024-10/20241015_MaraMigration_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20241008 秋の八甲田ロープウェイ,  青森県 青森市 (© Torsakarin/Getty Images)
 
 ![](images/2024-10/20241008_Kanro_1920x1080.jpg)
-
-#### 20241008 Aerial view of Bora Bora in French Polynesia (© GLF Media/Shutterstock)
-
-![](images/2024-10/20241008_BoraPapeete_1920x1080.jpg)
 
 
 

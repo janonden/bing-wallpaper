@@ -1,3 +1,7 @@
+#### 20241017 Volcan Formica Leo, Piton de la Fournaise, île de La Réunion (© Stefan Kiefer/imageBROKER.com GmbH & Co. KG/Alamy Stock Photo)
+
+![](20241017_PitonFournaise_1920x1080.jpg)
+
 #### 20241015 Great wildebeest migration at Mara River, Kenya (© Ayzenstayn/Getty Images)
 
 ![](20241015_MaraMigration_1920x1080.jpg)
