@@ -14,6 +14,10 @@
 
 ![](20241017_MarsDunes_1920x1080.jpg)
 
+#### 20241017 グレンキャニオン国立保養地, 米国 ユタ州 (© Stephen Matera/Tandem Stills + Motion)
+
+![](20241017_CoyoteGulch_1920x1080.jpg)
+
 #### 20241015 Great wildebeest migration at Mara River, Kenya (© Ayzenstayn/Getty Images)
 
 ![](20241015_MaraMigration_1920x1080.jpg)

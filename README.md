@@ -14,6 +14,10 @@
 
 ![](images/2024-10/20241017_MarsDunes_1920x1080.jpg)
 
+#### 20241017 グレンキャニオン国立保養地, 米国 ユタ州 (© Stephen Matera/Tandem Stills + Motion)
+
+![](images/2024-10/20241017_CoyoteGulch_1920x1080.jpg)
+
 #### 20241015 Great wildebeest migration at Mara River, Kenya (© Ayzenstayn/Getty Images)
 
 ![](images/2024-10/20241015_MaraMigration_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20241011 Cape Breton Highlands, Nova Scotia, Canada (© Cavan Images/Alamy)
 
 ![](images/2024-10/20241011_CelticColours_1920x1080.jpg)
-
-#### 20241009 Potsdamer Platz in Berlin (© franckreporter/Getty Images)
-
-![](images/2024-10/20241009_PotsdamerPlatzBerlin_1920x1080.jpg)
 
 
 
