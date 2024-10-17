@@ -1,3 +1,7 @@
+#### 20241018 Kochia, Ibaraki Prefecture, Japan (© DigiPub/Getty Images)
+
+![](images/2024-10/20241018_KochiaJapan_1920x1080.jpg)
+
 #### 20241017 Volcan Formica Leo, Piton de la Fournaise, île de La Réunion (© Stefan Kiefer/imageBROKER.com GmbH & Co. KG/Alamy Stock Photo)
 
 ![](images/2024-10/20241017_PitonFournaise_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20241009 Aspens in the White River National Forest, Colorado (© Jason Hatfield/Tandem Stills + Motion)
 
 ![](images/2024-10/20241009_AspensColorado_1920x1080.jpg)
-
-#### 20241008 Mototi octopus, Lembeh Strait, Indonesia (© Howard Chew/Alamy)
-
-![](images/2024-10/20241008_MototiOctopus_1920x1080.jpg)
 
 
 

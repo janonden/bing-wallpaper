@@ -1,3 +1,7 @@
+#### 20241018 Kochia, Ibaraki Prefecture, Japan (© DigiPub/Getty Images)
+
+![](20241018_KochiaJapan_1920x1080.jpg)
+
 #### 20241017 Volcan Formica Leo, Piton de la Fournaise, île de La Réunion (© Stefan Kiefer/imageBROKER.com GmbH & Co. KG/Alamy Stock Photo)
 
 ![](20241017_PitonFournaise_1920x1080.jpg)
