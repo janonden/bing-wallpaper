@@ -2,6 +2,10 @@
 
 ![](images/2024-10/20241018_KochiaJapan_1920x1080.jpg)
 
+#### 20241018 The Milky Way above Pyramid Lake, Jasper National Park, Alberta, Canada (© Salted Fish Studio/iStock/Getty Images)
+
+![](images/2024-10/20241018_JasperDark_1920x1080.jpg)
+
 #### 20241018 曼哈顿中央公园的秋天，纽约，美国 (© mapman/Shutterstock)
 
 ![](images/2024-10/20241018_CentralParkAutumn_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20241011 黄山云海，安徽省，中国 (© yangyang1991/Getty Images)
 
 ![](images/2024-10/20241011_Chongyang_1920x1080.jpg)
-
-#### 20241011 Cape Breton Highlands, Nova Scotia, Canada (© Cavan Images/Alamy)
-
-![](images/2024-10/20241011_CelticColours_1920x1080.jpg)
 
 
 

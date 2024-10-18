@@ -2,6 +2,10 @@
 
 ![](20241018_KochiaJapan_1920x1080.jpg)
 
+#### 20241018 The Milky Way above Pyramid Lake, Jasper National Park, Alberta, Canada (© Salted Fish Studio/iStock/Getty Images)
+
+![](20241018_JasperDark_1920x1080.jpg)
+
 #### 20241018 曼哈顿中央公园的秋天，纽约，美国 (© mapman/Shutterstock)
 
 ![](20241018_CentralParkAutumn_1920x1080.jpg)
