@@ -1,3 +1,7 @@
+#### 20241019 哈索尔神庙，邓德拉神庙群，基纳，埃及 (© Nick Brundle Photography/Getty Images)
+
+![](20241019_DenderaTemple_1920x1080.jpg)
+
 #### 20241018 Kochia, Ibaraki Prefecture, Japan (© DigiPub/Getty Images)
 
 ![](20241018_KochiaJapan_1920x1080.jpg)

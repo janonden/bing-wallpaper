@@ -1,3 +1,7 @@
+#### 20241019 哈索尔神庙，邓德拉神庙群，基纳，埃及 (© Nick Brundle Photography/Getty Images)
+
+![](images/2024-10/20241019_DenderaTemple_1920x1080.jpg)
+
 #### 20241018 Kochia, Ibaraki Prefecture, Japan (© DigiPub/Getty Images)
 
 ![](images/2024-10/20241018_KochiaJapan_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20241012 Wood duck, Quebec, Canada (© Maxime Riendeau/Getty Images)
 
 ![](images/2024-10/20241012_QuebecDuck_1920x1080.jpg)
-
-#### 20241011 黄山云海，安徽省，中国 (© yangyang1991/Getty Images)
-
-![](images/2024-10/20241011_Chongyang_1920x1080.jpg)
 
 
 
