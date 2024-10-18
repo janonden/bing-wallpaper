@@ -6,7 +6,7 @@
 
 ![](20241018_JasperDark_1920x1080.jpg)
 
-#### 20241018 曼哈顿中央公园的秋天，纽约，美国 (© mapman/Shutterstock)
+#### 20241018 Autumn in Central Park, Manhattan, New York (© mapman/Shutterstock)
 
 ![](20241018_CentralParkAutumn_1920x1080.jpg)
 
