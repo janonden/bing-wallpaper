@@ -1,4 +1,4 @@
-#### 20241019 哈索尔神庙，邓德拉神庙群，基纳，埃及 (© Nick Brundle Photography/Getty Images)
+#### 20241019 Temple of Hathor, Dendera Temple Complex, Qena, Egypt (© Nick Brundle Photography/Getty Images)
 
 ![](20241019_DenderaTemple_1920x1080.jpg)
 
