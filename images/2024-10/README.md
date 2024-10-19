@@ -1,3 +1,7 @@
+#### 20241020 哥斯达黎加的三趾树懒 (© Harry Collins/Getty Images)
+
+![](20241020_SmilingSloth_1920x1080.jpg)
+
 #### 20241019 Temple of Hathor, Dendera Temple Complex, Qena, Egypt (© Nick Brundle Photography/Getty Images)
 
 ![](20241019_DenderaTemple_1920x1080.jpg)

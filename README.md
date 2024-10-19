@@ -1,3 +1,7 @@
+#### 20241020 哥斯达黎加的三趾树懒 (© Harry Collins/Getty Images)
+
+![](images/2024-10/20241020_SmilingSloth_1920x1080.jpg)
+
 #### 20241019 Temple of Hathor, Dendera Temple Complex, Qena, Egypt (© Nick Brundle Photography/Getty Images)
 
 ![](images/2024-10/20241019_DenderaTemple_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20241013 Courtyard of the Maidens, Alcázar of Seville, Spain (© Danny Lehman/Getty Images)
 
 ![](images/2024-10/20241013_AlcazarSeville_1920x1080.jpg)
-
-#### 20241012 Wood duck, Quebec, Canada (© Maxime Riendeau/Getty Images)
-
-![](images/2024-10/20241012_QuebecDuck_1920x1080.jpg)
 
 
 
