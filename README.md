@@ -1,3 +1,7 @@
+#### 20241021 乔治·史密斯州立公园的柏树，佐治亚州，美国 (© Chris Moore/TANDEM Stills + Motion)
+
+![](images/2024-10/20241021_AutumnCypress_1920x1080.jpg)
+
 #### 20241020 Three-toed sloth in Costa Rica (© Harry Collins/Getty Images)
 
 ![](images/2024-10/20241020_SmilingSloth_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20241014 Bateaux dans la baie de Marigot, Terre-de-Haut, archipel des Saintes, Guadeloupe (© Tan Yilmaz/Getty Images)
 
 ![](images/2024-10/20241014_MarigotBay_1920x1080.jpg)
-
-#### 20241014 可可海滩上的渔船，果阿邦，印度 (© Abhinav Sah/Shutterstock)
-
-![](images/2024-10/20241014_CocoBeach_1920x1080.jpg)
 
 
 

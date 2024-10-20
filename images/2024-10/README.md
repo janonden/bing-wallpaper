@@ -1,3 +1,7 @@
+#### 20241021 乔治·史密斯州立公园的柏树，佐治亚州，美国 (© Chris Moore/TANDEM Stills + Motion)
+
+![](20241021_AutumnCypress_1920x1080.jpg)
+
 #### 20241020 Three-toed sloth in Costa Rica (© Harry Collins/Getty Images)
 
 ![](20241020_SmilingSloth_1920x1080.jpg)
