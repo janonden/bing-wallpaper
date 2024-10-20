@@ -1,4 +1,4 @@
-#### 20241020 哥斯达黎加的三趾树懒 (© Harry Collins/Getty Images)
+#### 20241020 Three-toed sloth in Costa Rica (© Harry Collins/Getty Images)
 
 ![](20241020_SmilingSloth_1920x1080.jpg)
 
