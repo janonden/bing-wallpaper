@@ -2,6 +2,10 @@
 
 ![](images/2024-10/20241020_SmilingSloth_1920x1080.jpg)
 
+#### 20241020 Vignobles de Champagne, parc naturel régional de la Montagne de Reims, Verzenay (© Philippe Turpin/Getty Images)
+
+![](images/2024-10/20241020_NuitsChampagne_1920x1080.jpg)
+
 #### 20241019 Temple of Hathor, Dendera Temple Complex, Qena, Egypt (© Nick Brundle Photography/Getty Images)
 
 ![](images/2024-10/20241019_DenderaTemple_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20241014 可可海滩上的渔船，果阿邦，印度 (© Abhinav Sah/Shutterstock)
 
 ![](images/2024-10/20241014_CocoBeach_1920x1080.jpg)
-
-#### 20241013 Courtyard of the Maidens, Alcázar of Seville, Spain (© Danny Lehman/Getty Images)
-
-![](images/2024-10/20241013_AlcazarSeville_1920x1080.jpg)
 
 
 

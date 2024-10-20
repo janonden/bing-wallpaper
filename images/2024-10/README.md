@@ -2,6 +2,10 @@
 
 ![](20241020_SmilingSloth_1920x1080.jpg)
 
+#### 20241020 Vignobles de Champagne, parc naturel régional de la Montagne de Reims, Verzenay (© Philippe Turpin/Getty Images)
+
+![](20241020_NuitsChampagne_1920x1080.jpg)
+
 #### 20241019 Temple of Hathor, Dendera Temple Complex, Qena, Egypt (© Nick Brundle Photography/Getty Images)
 
 ![](20241019_DenderaTemple_1920x1080.jpg)
