@@ -1,3 +1,7 @@
+#### 20241021 Herbstbäume am Baldeneysee, NRW (© Simon Perez/Alamy Stock Photo)
+
+![](20241021_GermanyBaldeneyseeFall_1920x1080.jpg)
+
 #### 20241021 乔治·史密斯州立公园的柏树，佐治亚州，美国 (© Chris Moore/TANDEM Stills + Motion)
 
 ![](20241021_AutumnCypress_1920x1080.jpg)

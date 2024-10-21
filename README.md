@@ -1,3 +1,7 @@
+#### 20241021 Herbstbäume am Baldeneysee, NRW (© Simon Perez/Alamy Stock Photo)
+
+![](images/2024-10/20241021_GermanyBaldeneyseeFall_1920x1080.jpg)
+
 #### 20241021 乔治·史密斯州立公园的柏树，佐治亚州，美国 (© Chris Moore/TANDEM Stills + Motion)
 
 ![](images/2024-10/20241021_AutumnCypress_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20241014 Ancestral Pueblo granaries at Nankoweap, Grand Canyon National Park, Arizona (© Andrew Peacock/Tandem Stills + Motion)
 
 ![](images/2024-10/20241014_PuebloNankoweap_1920x1080.jpg)
-
-#### 20241014 Bateaux dans la baie de Marigot, Terre-de-Haut, archipel des Saintes, Guadeloupe (© Tan Yilmaz/Getty Images)
-
-![](images/2024-10/20241014_MarigotBay_1920x1080.jpg)
 
 
 
