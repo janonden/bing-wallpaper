@@ -1,3 +1,11 @@
+#### 20241022 祖卡里宫，罗马，意大利 (© Photon-Photos/Getty Images)
+
+![](20241022_MonsterDoor_1920x1080.jpg)
+
+#### 20241022 平安神宮, 京都府 京都市 (© Ulana Switucha/Alamy Stock Photo)
+
+![](20241022_HeianJingu_1920x1080.jpg)
+
 #### 20241021 Herbstbäume am Baldeneysee, NRW (© Simon Perez/Alamy Stock Photo)
 
 ![](20241021_GermanyBaldeneyseeFall_1920x1080.jpg)

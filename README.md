@@ -1,3 +1,11 @@
+#### 20241022 祖卡里宫，罗马，意大利 (© Photon-Photos/Getty Images)
+
+![](images/2024-10/20241022_MonsterDoor_1920x1080.jpg)
+
+#### 20241022 平安神宮, 京都府 京都市 (© Ulana Switucha/Alamy Stock Photo)
+
+![](images/2024-10/20241022_HeianJingu_1920x1080.jpg)
+
 #### 20241021 Herbstbäume am Baldeneysee, NRW (© Simon Perez/Alamy Stock Photo)
 
 ![](images/2024-10/20241021_GermanyBaldeneyseeFall_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20241015 Fossils of belemnites and ammonites, Jurassic Coast, Dorset, England (© Nature Picture Library/Alamy)
 
 ![](images/2024-10/20241015_FossilsDorset_1920x1080.jpg)
-
-#### 20241014 東京駅, 東京都 (© phutthiseth thongtae/Getty Images)
-
-![](images/2024-10/20241014_RailwaysDayNew_1920x1080.jpg)
-
-#### 20241014 Ancestral Pueblo granaries at Nankoweap, Grand Canyon National Park, Arizona (© Andrew Peacock/Tandem Stills + Motion)
-
-![](images/2024-10/20241014_PuebloNankoweap_1920x1080.jpg)
 
 
 
