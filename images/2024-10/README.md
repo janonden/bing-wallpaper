@@ -1,4 +1,4 @@
-#### 20241022 祖卡里宫，罗马，意大利 (© Photon-Photos/Getty Images)
+#### 20241022 Palazzo Zuccari, Rome, Italy (© Photon-Photos/Getty Images)
 
 ![](20241022_MonsterDoor_1920x1080.jpg)
 
