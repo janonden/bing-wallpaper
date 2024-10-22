@@ -1,3 +1,11 @@
+#### 20241023 雪莉夫人森林和古堡遗迹，新罕布什尔州，美国 (© yggdrasill/Shutterstock)
+
+![](20241023_MadameSherriCastle_1920x1080.jpg)
+
+#### 20241023 紅葉に包まれた法体の滝, 秋田県 由利本荘市 (© nattya3714/Getty Images)
+
+![](20241023_HottaiFalls_1920x1080.jpg)
+
 #### 20241022 Palazzo Zuccari, Rome, Italy (© Photon-Photos/Getty Images)
 
 ![](20241022_MonsterDoor_1920x1080.jpg)

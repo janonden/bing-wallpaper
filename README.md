@@ -1,3 +1,11 @@
+#### 20241023 雪莉夫人森林和古堡遗迹，新罕布什尔州，美国 (© yggdrasill/Shutterstock)
+
+![](images/2024-10/20241023_MadameSherriCastle_1920x1080.jpg)
+
+#### 20241023 紅葉に包まれた法体の滝, 秋田県 由利本荘市 (© nattya3714/Getty Images)
+
+![](images/2024-10/20241023_HottaiFalls_1920x1080.jpg)
+
 #### 20241022 Palazzo Zuccari, Rome, Italy (© Photon-Photos/Getty Images)
 
 ![](images/2024-10/20241022_MonsterDoor_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20241017 グレンキャニオン国立保養地, 米国 ユタ州 (© Stephen Matera/Tandem Stills + Motion)
 
 ![](images/2024-10/20241017_CoyoteGulch_1920x1080.jpg)
-
-#### 20241015 Great wildebeest migration at Mara River, Kenya (© Ayzenstayn/Getty Images)
-
-![](images/2024-10/20241015_MaraMigration_1920x1080.jpg)
-
-#### 20241015 Fossils of belemnites and ammonites, Jurassic Coast, Dorset, England (© Nature Picture Library/Alamy)
-
-![](images/2024-10/20241015_FossilsDorset_1920x1080.jpg)
 
 
 
