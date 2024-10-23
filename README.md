@@ -1,4 +1,4 @@
-#### 20241023 雪莉夫人森林和古堡遗迹，新罕布什尔州，美国 (© yggdrasill/Shutterstock)
+#### 20241023 Madame Sherri Forest and the ruins of an old castle, New Hampshire (© yggdrasill/Shutterstock)
 
 ![](images/2024-10/20241023_MadameSherriCastle_1920x1080.jpg)
 
