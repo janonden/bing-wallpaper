@@ -1,3 +1,7 @@
+#### 20241024 博迪州立历史公园，莫诺县，加利福尼亚州，美国 (© Julien McRoberts/Tetra Images, LLC/Alamy Stock Photo)
+
+![](20241024_BodieCalifornia_1920x1080.jpg)
+
 #### 20241023 Madame Sherri Forest and the ruins of an old castle, New Hampshire (© yggdrasill/Shutterstock)
 
 ![](20241023_MadameSherriCastle_1920x1080.jpg)
