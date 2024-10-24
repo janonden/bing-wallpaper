@@ -1,3 +1,7 @@
+#### 20241024 Die Bibliothek der Humboldt-Universität in Berlin (© Hemis/Alamy Stock Photo)
+
+![](images/2024-10/20241024_HumboldtUniversityLibrary_1920x1080.jpg)
+
 #### 20241024 博迪州立历史公园，莫诺县，加利福尼亚州，美国 (© Julien McRoberts/Tetra Images, LLC/Alamy Stock Photo)
 
 ![](images/2024-10/20241024_BodieCalifornia_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20241017 Volcan Formica Leo, Piton de la Fournaise, île de La Réunion (© Stefan Kiefer/imageBROKER.com GmbH & Co. KG/Alamy Stock Photo)
 
 ![](images/2024-10/20241017_PitonFournaise_1920x1080.jpg)
-
-#### 20241017 Frost-covered dunes on the surface of Mars (© NASA/JPL-Caltech/UArizona)
-
-![](images/2024-10/20241017_MarsDunes_1920x1080.jpg)
 
 
 
