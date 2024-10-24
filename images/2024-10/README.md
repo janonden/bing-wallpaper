@@ -1,3 +1,7 @@
+#### 20241025 沙莫尼的勃朗峰，法国 (© Simon Schöpf/Getty Images)
+
+![](20241025_MontBlancMassif_1920x1080.jpg)
+
 #### 20241024 Die Bibliothek der Humboldt-Universität in Berlin (© Hemis/Alamy Stock Photo)
 
 ![](20241024_HumboldtUniversityLibrary_1920x1080.jpg)

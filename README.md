@@ -1,3 +1,7 @@
+#### 20241025 沙莫尼的勃朗峰，法国 (© Simon Schöpf/Getty Images)
+
+![](images/2024-10/20241025_MontBlancMassif_1920x1080.jpg)
+
 #### 20241024 Die Bibliothek der Humboldt-Universität in Berlin (© Hemis/Alamy Stock Photo)
 
 ![](images/2024-10/20241024_HumboldtUniversityLibrary_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20241018 Autumn in Central Park, Manhattan, New York (© mapman/Shutterstock)
 
 ![](images/2024-10/20241018_CentralParkAutumn_1920x1080.jpg)
-
-#### 20241017 Volcan Formica Leo, Piton de la Fournaise, île de La Réunion (© Stefan Kiefer/imageBROKER.com GmbH & Co. KG/Alamy Stock Photo)
-
-![](images/2024-10/20241017_PitonFournaise_1920x1080.jpg)
 
 
 
