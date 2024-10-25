@@ -1,3 +1,7 @@
+#### 20241026 幽灵森林，宁哈根，梅克伦堡-西波美拉尼亚，德国 (© mauritius images GmbH/Alamy Stock Photo)
+
+![](20241026_GhostForest_1920x1080.jpg)
+
 #### 20241025 The Mont Blanc massif, near Chamonix, France (© Simon Schöpf/Getty Images)
 
 ![](20241025_MontBlancMassif_1920x1080.jpg)
