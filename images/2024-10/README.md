@@ -1,3 +1,7 @@
+#### 20241027 北极熊与幼崽，丘吉尔，曼尼托巴，加拿大 (© Design Pics/plainpicture)
+
+![](20241027_PolarBearHug_1920x1080.jpg)
+
 #### 20241026 Gespensterwald, Nienhagen, Mecklenburg-West Pomerania, Germany (© mauritius images GmbH/Alamy)
 
 ![](20241026_GhostForest_1920x1080.jpg)

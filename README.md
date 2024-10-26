@@ -1,3 +1,7 @@
+#### 20241027 北极熊与幼崽，丘吉尔，曼尼托巴，加拿大 (© Design Pics/plainpicture)
+
+![](images/2024-10/20241027_PolarBearHug_1920x1080.jpg)
+
 #### 20241026 Gespensterwald, Nienhagen, Mecklenburg-West Pomerania, Germany (© mauritius images GmbH/Alamy)
 
 ![](images/2024-10/20241026_GhostForest_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20241019 Temple of Hathor, Dendera Temple Complex, Qena, Egypt (© Nick Brundle Photography/Getty Images)
 
 ![](images/2024-10/20241019_DenderaTemple_1920x1080.jpg)
-
-#### 20241018 Kochia, Ibaraki Prefecture, Japan (© DigiPub/Getty Images)
-
-![](images/2024-10/20241018_KochiaJapan_1920x1080.jpg)
 
 
 
