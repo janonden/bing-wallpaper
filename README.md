@@ -2,6 +2,10 @@
 
 ![](images/2024-10/20241026_GhostForest_1920x1080.jpg)
 
+#### 20241026 Vue de Paris à travers l'horloge géante du Musée d'Orsay, Paris (© Bruce Beck/Alamy Stock Photo)
+
+![](images/2024-10/20241026_DaylightOrsay_1920x1080.jpg)
+
 #### 20241025 The Mont Blanc massif, near Chamonix, France (© Simon Schöpf/Getty Images)
 
 ![](images/2024-10/20241025_MontBlancMassif_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20241018 Kochia, Ibaraki Prefecture, Japan (© DigiPub/Getty Images)
 
 ![](images/2024-10/20241018_KochiaJapan_1920x1080.jpg)
-
-#### 20241018 The Milky Way above Pyramid Lake, Jasper National Park, Alberta, Canada (© Salted Fish Studio/iStock/Getty Images)
-
-![](images/2024-10/20241018_JasperDark_1920x1080.jpg)
 
 
 

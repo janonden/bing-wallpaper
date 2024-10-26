@@ -2,6 +2,10 @@
 
 ![](20241026_GhostForest_1920x1080.jpg)
 
+#### 20241026 Vue de Paris à travers l'horloge géante du Musée d'Orsay, Paris (© Bruce Beck/Alamy Stock Photo)
+
+![](20241026_DaylightOrsay_1920x1080.jpg)
+
 #### 20241025 The Mont Blanc massif, near Chamonix, France (© Simon Schöpf/Getty Images)
 
 ![](20241025_MontBlancMassif_1920x1080.jpg)
