@@ -1,3 +1,7 @@
+#### 20241028 南瓜田，维多利亚，不列颠哥伦比亚省，加拿大 (© Shaun Cunningham/Alamy Stock Photo)
+
+![](images/2024-10/20241028_PumpkinMist_1920x1080.jpg)
+
 #### 20241027 Polar bear mom and cub, Churchill, Manitoba, Canada (© Design Pics/plainpicture)
 
 ![](images/2024-10/20241027_PolarBearHug_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20241020 Vignobles de Champagne, parc naturel régional de la Montagne de Reims, Verzenay (© Philippe Turpin/Getty Images)
 
 ![](images/2024-10/20241020_NuitsChampagne_1920x1080.jpg)
-
-#### 20241019 Temple of Hathor, Dendera Temple Complex, Qena, Egypt (© Nick Brundle Photography/Getty Images)
-
-![](images/2024-10/20241019_DenderaTemple_1920x1080.jpg)
 
 
 

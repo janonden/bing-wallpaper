@@ -1,3 +1,7 @@
+#### 20241028 南瓜田，维多利亚，不列颠哥伦比亚省，加拿大 (© Shaun Cunningham/Alamy Stock Photo)
+
+![](20241028_PumpkinMist_1920x1080.jpg)
+
 #### 20241027 Polar bear mom and cub, Churchill, Manitoba, Canada (© Design Pics/plainpicture)
 
 ![](20241027_PolarBearHug_1920x1080.jpg)
