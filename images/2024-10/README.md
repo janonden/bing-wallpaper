@@ -1,4 +1,4 @@
-#### 20241027 北极熊与幼崽，丘吉尔，曼尼托巴，加拿大 (© Design Pics/plainpicture)
+#### 20241027 Polar bear mom and cub, Churchill, Manitoba, Canada (© Design Pics/plainpicture)
 
 ![](20241027_PolarBearHug_1920x1080.jpg)
 
