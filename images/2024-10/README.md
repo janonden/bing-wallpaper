@@ -1,4 +1,4 @@
-#### 20241028 南瓜田，维多利亚，不列颠哥伦比亚省，加拿大 (© Shaun Cunningham/Alamy Stock Photo)
+#### 20241028 Pumpkin field, Victoria, British Columbia, Canada (© Shaun Cunningham/Alamy)
 
 ![](20241028_PumpkinMist_1920x1080.jpg)
 
