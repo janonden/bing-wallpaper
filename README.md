@@ -1,3 +1,7 @@
+#### 20241029 大雕鸮 (© Mark Newman/Getty Images)
+
+![](images/2024-10/20241029_GreatOwl_1920x1080.jpg)
+
 #### 20241028 Pumpkin field, Victoria, British Columbia, Canada (© Shaun Cunningham/Alamy)
 
 ![](images/2024-10/20241028_PumpkinMist_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20241020 Three-toed sloth in Costa Rica (© Harry Collins/Getty Images)
 
 ![](images/2024-10/20241020_SmilingSloth_1920x1080.jpg)
-
-#### 20241020 Vignobles de Champagne, parc naturel régional de la Montagne de Reims, Verzenay (© Philippe Turpin/Getty Images)
-
-![](images/2024-10/20241020_NuitsChampagne_1920x1080.jpg)
 
 
 

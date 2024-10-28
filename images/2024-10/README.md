@@ -1,3 +1,7 @@
+#### 20241029 大雕鸮 (© Mark Newman/Getty Images)
+
+![](20241029_GreatOwl_1920x1080.jpg)
+
 #### 20241028 Pumpkin field, Victoria, British Columbia, Canada (© Shaun Cunningham/Alamy)
 
 ![](20241028_PumpkinMist_1920x1080.jpg)
