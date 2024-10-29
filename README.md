@@ -1,3 +1,7 @@
+#### 20241030 从苏格兰教堂墓地眺望爱丁堡城堡，英国 (© Chris Dorney/Alamy Stock Photo)
+
+![](images/2024-10/20241030_HauntedEdinburgh_1920x1080.jpg)
+
 #### 20241029 Great horned owl (© Mark Newman/Getty Images)
 
 ![](images/2024-10/20241029_GreatOwl_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20241021 Cypress trees in George L. Smith State Park, Georgia (© Chris Moore/TANDEM Stills + Motion)
 
 ![](images/2024-10/20241021_AutumnCypress_1920x1080.jpg)
-
-#### 20241020 Three-toed sloth in Costa Rica (© Harry Collins/Getty Images)
-
-![](images/2024-10/20241020_SmilingSloth_1920x1080.jpg)
 
 
 

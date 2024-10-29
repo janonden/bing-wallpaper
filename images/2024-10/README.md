@@ -1,3 +1,7 @@
+#### 20241030 从苏格兰教堂墓地眺望爱丁堡城堡，英国 (© Chris Dorney/Alamy Stock Photo)
+
+![](20241030_HauntedEdinburgh_1920x1080.jpg)
+
 #### 20241029 Great horned owl (© Mark Newman/Getty Images)
 
 ![](20241029_GreatOwl_1920x1080.jpg)
