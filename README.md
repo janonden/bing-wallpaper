@@ -1,4 +1,8 @@
-#### 20241030 从苏格兰教堂墓地眺望爱丁堡城堡，英国 (© Chris Dorney/Alamy Stock Photo)
+#### 20241031 Gran Paradiso National Park, Italy (© Ondrej Prosicky/Alamy)
+
+![](images/2024-10/20241031_ValleAostaGranParadiso_1920x1080.jpg)
+
+#### 20241030 View of Edinburgh Castle from a churchyard in Scotland (© Chris Dorney/Alamy)
 
 ![](images/2024-10/20241030_HauntedEdinburgh_1920x1080.jpg)
 
@@ -53,10 +57,6 @@
 #### 20241021 Herbstbäume am Baldeneysee, NRW (© Simon Perez/Alamy Stock Photo)
 
 ![](images/2024-10/20241021_GermanyBaldeneyseeFall_1920x1080.jpg)
-
-#### 20241021 Cypress trees in George L. Smith State Park, Georgia (© Chris Moore/TANDEM Stills + Motion)
-
-![](images/2024-10/20241021_AutumnCypress_1920x1080.jpg)
 
 
 

@@ -1,4 +1,8 @@
-#### 20241030 从苏格兰教堂墓地眺望爱丁堡城堡，英国 (© Chris Dorney/Alamy Stock Photo)
+#### 20241031 Gran Paradiso National Park, Italy (© Ondrej Prosicky/Alamy)
+
+![](20241031_ValleAostaGranParadiso_1920x1080.jpg)
+
+#### 20241030 View of Edinburgh Castle from a churchyard in Scotland (© Chris Dorney/Alamy)
 
 ![](20241030_HauntedEdinburgh_1920x1080.jpg)
 
