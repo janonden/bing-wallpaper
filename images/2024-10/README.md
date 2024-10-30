@@ -2,6 +2,14 @@
 
 ![](20241031_ValleAostaGranParadiso_1920x1080.jpg)
 
+#### 20241031 草間彌生の「南瓜」, 香川県 香川郡 (© hedgehog111/Shutterstock)
+
+![](20241031_Halloween_1920x1080.jpg)
+
+#### 20241031 巴黎圣母院的奇美拉，法国 (© scaliger/Getty Images)
+
+![](20241031_GargoyleParis_1920x1080.jpg)
+
 #### 20241030 View of Edinburgh Castle from a churchyard in Scotland (© Chris Dorney/Alamy)
 
 ![](20241030_HauntedEdinburgh_1920x1080.jpg)

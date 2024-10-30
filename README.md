@@ -2,6 +2,14 @@
 
 ![](images/2024-10/20241031_ValleAostaGranParadiso_1920x1080.jpg)
 
+#### 20241031 草間彌生の「南瓜」, 香川県 香川郡 (© hedgehog111/Shutterstock)
+
+![](images/2024-10/20241031_Halloween_1920x1080.jpg)
+
+#### 20241031 巴黎圣母院的奇美拉，法国 (© scaliger/Getty Images)
+
+![](images/2024-10/20241031_GargoyleParis_1920x1080.jpg)
+
 #### 20241030 View of Edinburgh Castle from a churchyard in Scotland (© Chris Dorney/Alamy)
 
 ![](images/2024-10/20241030_HauntedEdinburgh_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20241022 Palazzo Zuccari, Rome, Italy (© Photon-Photos/Getty Images)
 
 ![](images/2024-10/20241022_MonsterDoor_1920x1080.jpg)
-
-#### 20241022 平安神宮, 京都府 京都市 (© Ulana Switucha/Alamy Stock Photo)
-
-![](images/2024-10/20241022_HeianJingu_1920x1080.jpg)
-
-#### 20241021 Herbstbäume am Baldeneysee, NRW (© Simon Perez/Alamy Stock Photo)
-
-![](images/2024-10/20241021_GermanyBaldeneyseeFall_1920x1080.jpg)
 
 
 
