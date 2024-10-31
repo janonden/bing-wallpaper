@@ -6,7 +6,7 @@
 
 ![](20241031_Halloween_1920x1080.jpg)
 
-#### 20241031 巴黎圣母院的奇美拉，法国 (© scaliger/Getty Images)
+#### 20241031 Chimera of Notre-Dame de Paris, France (© scaliger/Getty Images)
 
 ![](20241031_GargoyleParis_1920x1080.jpg)
 
