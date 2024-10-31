@@ -1,3 +1,11 @@
+#### 20241101 秋季葡萄园的鸟瞰图，瓦恩哈尔特，黑森林，德国 (© Sabine Gerold/Amazing Aerial Agency)
+
+![](images/2024-11/20241101_VineyardsBlackForestFall_1920x1080.jpg)
+
+#### 20241101 レンソイス・マラニャンセス国立公園, ブラジル マラニャン州 (© thanosquest/Shutterstock)
+
+![](images/2024-11/20241101_LencoisMaranhao_1920x1080.jpg)
+
 #### 20241031 Gran Paradiso National Park, Italy (© Ondrej Prosicky/Alamy)
 
 ![](images/2024-10/20241031_ValleAostaGranParadiso_1920x1080.jpg)
@@ -50,14 +58,6 @@
 
 ![](images/2024-10/20241023_MadameSherriCastle_1920x1080.jpg)
 
-#### 20241023 紅葉に包まれた法体の滝, 秋田県 由利本荘市 (© nattya3714/Getty Images)
-
-![](images/2024-10/20241023_HottaiFalls_1920x1080.jpg)
-
-#### 20241022 Palazzo Zuccari, Rome, Italy (© Photon-Photos/Getty Images)
-
-![](images/2024-10/20241022_MonsterDoor_1920x1080.jpg)
-
 
 
 
@@ -66,7 +66,7 @@
 
 
 
-- 2024&emsp;&emsp;[10](images/2024-10/README.md) &emsp;&emsp;[09](images/2024-09/README.md) &emsp;&emsp;[08](images/2024-08/README.md) &emsp;&emsp;[07](images/2024-07/README.md) &emsp;&emsp;[06](images/2024-06/README.md) &emsp;&emsp;[05](images/2024-05/README.md) &emsp;&emsp;[04](images/2024-04/README.md) &emsp;&emsp;[03](images/2024-03/README.md) &emsp;&emsp;[02](images/2024-02/README.md) &emsp;&emsp;[01](images/2024-01/README.md) 
+- 2024&emsp;&emsp;[11](images/2024-11/README.md) &emsp;&emsp;[10](images/2024-10/README.md) &emsp;&emsp;[09](images/2024-09/README.md) &emsp;&emsp;[08](images/2024-08/README.md) &emsp;&emsp;[07](images/2024-07/README.md) &emsp;&emsp;[06](images/2024-06/README.md) &emsp;&emsp;[05](images/2024-05/README.md) &emsp;&emsp;[04](images/2024-04/README.md) &emsp;&emsp;[03](images/2024-03/README.md) &emsp;&emsp;[02](images/2024-02/README.md) &emsp;&emsp;[01](images/2024-01/README.md) 
 
 - 2023&emsp;&emsp;[12](https://github.com/janonden/bing-wallpaper/blob/2023/images/2023-12/README.md) &emsp;&emsp;[11](https://github.com/janonden/bing-wallpaper/blob/2023/images/2023-11/README.md) &emsp;&emsp;[10](https://github.com/janonden/bing-wallpaper/blob/2023/images/2023-10/README.md) &emsp;&emsp;[09](https://github.com/janonden/bing-wallpaper/blob/2023/images/2023-09/README.md) &emsp;&emsp;[08](https://github.com/janonden/bing-wallpaper/blob/2023/images/2023-08/README.md) &emsp;&emsp;[07](https://github.com/janonden/bing-wallpaper/blob/2023/images/2023-07/README.md) &emsp;&emsp;[06](https://github.com/janonden/bing-wallpaper/blob/2023/images/2023-06/README.md) &emsp;&emsp;[05](https://github.com/janonden/bing-wallpaper/blob/2023/images/2023-05/README.md) &emsp;&emsp;[04](https://github.com/janonden/bing-wallpaper/blob/2023/images/2023-04/README.md) &emsp;&emsp;[03](https://github.com/janonden/bing-wallpaper/blob/2023/images/2023-03/README.md) &emsp;&emsp;[02](https://github.com/janonden/bing-wallpaper/blob/2023/images/2023-02/README.md) &emsp;&emsp;[01](https://github.com/janonden/bing-wallpaper/blob/2023/images/2023-01/README.md) 
 
