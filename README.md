@@ -6,6 +6,10 @@
 
 ![](images/2024-11/20241101_LencoisMaranhao_1920x1080.jpg)
 
+#### 20241101 Pueblo ruins, Hovenweep National Monument, Utah (© Alan Majchrowicz/Getty Images)
+
+![](images/2024-11/20241101_HovenweepRuins_1920x1080.jpg)
+
 #### 20241031 Gran Paradiso National Park, Italy (© Ondrej Prosicky/Alamy)
 
 ![](images/2024-10/20241031_ValleAostaGranParadiso_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20241024 Bodie State Historic Park, Mono County, California (© Julien McRoberts/Tetra Images, LLC/Alamy)
 
 ![](images/2024-10/20241024_BodieCalifornia_1920x1080.jpg)
-
-#### 20241023 Madame Sherri Forest and the ruins of an old castle, New Hampshire (© yggdrasill/Shutterstock)
-
-![](images/2024-10/20241023_MadameSherriCastle_1920x1080.jpg)
 
 
 
