@@ -1,3 +1,7 @@
+#### 20241102 黄石国家公园的美洲野牛，怀俄明州，美国 (© Ian Shive/TANDEM Stills + Motion)
+
+![](20241102_BisonYellowstone_1920x1080.jpg)
+
 #### 20241101 秋季葡萄园的鸟瞰图，瓦恩哈尔特，黑森林，德国 (© Sabine Gerold/Amazing Aerial Agency)
 
 ![](20241101_VineyardsBlackForestFall_1920x1080.jpg)
