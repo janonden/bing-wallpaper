@@ -1,4 +1,4 @@
-#### 20241102 黄石国家公园的美洲野牛，怀俄明州，美国 (© Ian Shive/TANDEM Stills + Motion)
+#### 20241102 American bison in Yellowstone National Park, Wyoming (© Ian Shive/TANDEM Stills + Motion)
 
 ![](20241102_BisonYellowstone_1920x1080.jpg)
 
