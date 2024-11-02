@@ -1,3 +1,7 @@
+#### 20241103 巢中的加勒比火烈鸟蛋，里奥拉加托斯自然保护区，尤卡坦州，墨西哥 (© Claudio Contreras/Minden Pictures)
+
+![](20241103_YucatanBiosphere_1920x1080.jpg)
+
 #### 20241102 American bison in Yellowstone National Park, Wyoming (© Ian Shive/TANDEM Stills + Motion)
 
 ![](20241102_BisonYellowstone_1920x1080.jpg)

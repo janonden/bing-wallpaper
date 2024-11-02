@@ -1,3 +1,7 @@
+#### 20241103 巢中的加勒比火烈鸟蛋，里奥拉加托斯自然保护区，尤卡坦州，墨西哥 (© Claudio Contreras/Minden Pictures)
+
+![](images/2024-11/20241103_YucatanBiosphere_1920x1080.jpg)
+
 #### 20241102 American bison in Yellowstone National Park, Wyoming (© Ian Shive/TANDEM Stills + Motion)
 
 ![](images/2024-11/20241102_BisonYellowstone_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20241025 The Mont Blanc massif, near Chamonix, France (© Simon Schöpf/Getty Images)
 
 ![](images/2024-10/20241025_MontBlancMassif_1920x1080.jpg)
-
-#### 20241024 Die Bibliothek der Humboldt-Universität in Berlin (© Hemis/Alamy Stock Photo)
-
-![](images/2024-10/20241024_HumboldtUniversityLibrary_1920x1080.jpg)
 
 
 
