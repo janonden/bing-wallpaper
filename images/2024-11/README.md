@@ -1,3 +1,7 @@
+#### 20241104 坎布里亚湖区，格拉斯米尔，英格兰 (© Thomas Molyneux/Getty Images)
+
+![](20241104_CumbriaAutumn_1920x1080.jpg)
+
 #### 20241103 Caribbean flamingo nests, Ría Lagartos Biosphere Reserve, Yucatán, Mexico (© Claudio Contreras/Minden Pictures)
 
 ![](20241103_YucatanBiosphere_1920x1080.jpg)

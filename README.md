@@ -1,3 +1,7 @@
+#### 20241104 坎布里亚湖区，格拉斯米尔，英格兰 (© Thomas Molyneux/Getty Images)
+
+![](images/2024-11/20241104_CumbriaAutumn_1920x1080.jpg)
+
 #### 20241103 Caribbean flamingo nests, Ría Lagartos Biosphere Reserve, Yucatán, Mexico (© Claudio Contreras/Minden Pictures)
 
 ![](images/2024-11/20241103_YucatanBiosphere_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20241026 Vue de Paris à travers l'horloge géante du Musée d'Orsay, Paris (© Bruce Beck/Alamy Stock Photo)
 
 ![](images/2024-10/20241026_DaylightOrsay_1920x1080.jpg)
-
-#### 20241025 The Mont Blanc massif, near Chamonix, France (© Simon Schöpf/Getty Images)
-
-![](images/2024-10/20241025_MontBlancMassif_1920x1080.jpg)
 
 
 
