@@ -1,4 +1,4 @@
-#### 20241103 巢中的加勒比火烈鸟蛋，里奥拉加托斯自然保护区，尤卡坦州，墨西哥 (© Claudio Contreras/Minden Pictures)
+#### 20241103 Caribbean flamingo nests, Ría Lagartos Biosphere Reserve, Yucatán, Mexico (© Claudio Contreras/Minden Pictures)
 
 ![](images/2024-11/20241103_YucatanBiosphere_1920x1080.jpg)
 
