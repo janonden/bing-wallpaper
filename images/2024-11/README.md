@@ -1,3 +1,7 @@
+#### 20241105 酉の市で販売される縁起熊手, 東京 (© ASSOCIATED PRESS/AP)
+
+![](20241105_Torinoichi_1920x1080.jpg)
+
 #### 20241104 Grasmere, Lake District, Cumbria, England (© Thomas Molyneux/Getty Images)
 
 ![](20241104_CumbriaAutumn_1920x1080.jpg)

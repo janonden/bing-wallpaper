@@ -1,3 +1,7 @@
+#### 20241105 酉の市で販売される縁起熊手, 東京 (© ASSOCIATED PRESS/AP)
+
+![](images/2024-11/20241105_Torinoichi_1920x1080.jpg)
+
 #### 20241104 Grasmere, Lake District, Cumbria, England (© Thomas Molyneux/Getty Images)
 
 ![](images/2024-11/20241104_CumbriaAutumn_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20241026 Gespensterwald, Nienhagen, Mecklenburg-West Pomerania, Germany (© mauritius images GmbH/Alamy)
 
 ![](images/2024-10/20241026_GhostForest_1920x1080.jpg)
-
-#### 20241026 Vue de Paris à travers l'horloge géante du Musée d'Orsay, Paris (© Bruce Beck/Alamy Stock Photo)
-
-![](images/2024-10/20241026_DaylightOrsay_1920x1080.jpg)
 
 
 
