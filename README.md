@@ -1,4 +1,4 @@
-#### 20241104 坎布里亚湖区，格拉斯米尔，英格兰 (© Thomas Molyneux/Getty Images)
+#### 20241104 Grasmere, Lake District, Cumbria, England (© Thomas Molyneux/Getty Images)
 
 ![](images/2024-11/20241104_CumbriaAutumn_1920x1080.jpg)
 
