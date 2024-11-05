@@ -1,3 +1,7 @@
+#### 20241105 Flamants des Caraïbes, péninsule du Yucatán, Mexique (© Claudio Contreras/NPL/Minden Pictures)
+
+![](images/2024-11/20241105_YucatanFlamingos_1920x1080.jpg)
+
 #### 20241105 酉の市で販売される縁起熊手, 東京 (© ASSOCIATED PRESS/AP)
 
 ![](images/2024-11/20241105_Torinoichi_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20241027 Polar bear mom and cub, Churchill, Manitoba, Canada (© Design Pics/plainpicture)
 
 ![](images/2024-10/20241027_PolarBearHug_1920x1080.jpg)
-
-#### 20241026 Gespensterwald, Nienhagen, Mecklenburg-West Pomerania, Germany (© mauritius images GmbH/Alamy)
-
-![](images/2024-10/20241026_GhostForest_1920x1080.jpg)
 
 
 

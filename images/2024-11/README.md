@@ -1,3 +1,7 @@
+#### 20241105 Flamants des Caraïbes, péninsule du Yucatán, Mexique (© Claudio Contreras/NPL/Minden Pictures)
+
+![](20241105_YucatanFlamingos_1920x1080.jpg)
+
 #### 20241105 酉の市で販売される縁起熊手, 東京 (© ASSOCIATED PRESS/AP)
 
 ![](20241105_Torinoichi_1920x1080.jpg)
