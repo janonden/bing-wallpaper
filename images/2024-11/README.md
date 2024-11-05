@@ -6,6 +6,10 @@
 
 ![](20241105_Torinoichi_1920x1080.jpg)
 
+#### 20241105 Autumn sunrise over the National Mall, Washington, DC (© WLDavies/iStock/Getty Images Plus)
+
+![](20241105_DCSunrise_1920x1080.jpg)
+
 #### 20241104 Grasmere, Lake District, Cumbria, England (© Thomas Molyneux/Getty Images)
 
 ![](20241104_CumbriaAutumn_1920x1080.jpg)

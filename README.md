@@ -6,6 +6,10 @@
 
 ![](images/2024-11/20241105_Torinoichi_1920x1080.jpg)
 
+#### 20241105 Autumn sunrise over the National Mall, Washington, DC (© WLDavies/iStock/Getty Images Plus)
+
+![](images/2024-11/20241105_DCSunrise_1920x1080.jpg)
+
 #### 20241104 Grasmere, Lake District, Cumbria, England (© Thomas Molyneux/Getty Images)
 
 ![](images/2024-11/20241104_CumbriaAutumn_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20241028 Pumpkin field, Victoria, British Columbia, Canada (© Shaun Cunningham/Alamy)
 
 ![](images/2024-10/20241028_PumpkinMist_1920x1080.jpg)
-
-#### 20241027 Polar bear mom and cub, Churchill, Manitoba, Canada (© Design Pics/plainpicture)
-
-![](images/2024-10/20241027_PolarBearHug_1920x1080.jpg)
 
 
 
