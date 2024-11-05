@@ -1,3 +1,7 @@
+#### 20241106 奥林匹克国家公园石狮海滩，华盛顿州，美国 (© T.M. Schultze/TANDEM Stills + Motion)
+
+![](images/2024-11/20241106_ShiShiBeach_1920x1080.jpg)
+
 #### 20241105 Flamants des Caraïbes, péninsule du Yucatán, Mexique (© Claudio Contreras/NPL/Minden Pictures)
 
 ![](images/2024-11/20241105_YucatanFlamingos_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20241029 Great horned owl (© Mark Newman/Getty Images)
 
 ![](images/2024-10/20241029_GreatOwl_1920x1080.jpg)
-
-#### 20241028 Pumpkin field, Victoria, British Columbia, Canada (© Shaun Cunningham/Alamy)
-
-![](images/2024-10/20241028_PumpkinMist_1920x1080.jpg)
 
 
 
