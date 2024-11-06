@@ -1,3 +1,11 @@
+#### 20241107 金色的松树，坝上草原，中国 (© MelindaChan/Getty Images)
+
+![](20241107_LiDong_1920x1080.jpg)
+
+#### 20241107 マガンの群れ (© feathercollector/Shutterstock)
+
+![](20241107_AnserAlbifrons_1920x1080.jpg)
+
 #### 20241106 Shi Shi Beach in Olympic National Park, Washington (© T.M. Schultze/TANDEM Stills + Motion)
 
 ![](20241106_ShiShiBeach_1920x1080.jpg)

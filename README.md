@@ -1,3 +1,11 @@
+#### 20241107 金色的松树，坝上草原，中国 (© MelindaChan/Getty Images)
+
+![](images/2024-11/20241107_LiDong_1920x1080.jpg)
+
+#### 20241107 マガンの群れ (© feathercollector/Shutterstock)
+
+![](images/2024-11/20241107_AnserAlbifrons_1920x1080.jpg)
+
 #### 20241106 Shi Shi Beach in Olympic National Park, Washington (© T.M. Schultze/TANDEM Stills + Motion)
 
 ![](images/2024-11/20241106_ShiShiBeach_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20241031 Chimera of Notre-Dame de Paris, France (© scaliger/Getty Images)
 
 ![](images/2024-10/20241031_GargoyleParis_1920x1080.jpg)
-
-#### 20241030 View of Edinburgh Castle from a churchyard in Scotland (© Chris Dorney/Alamy)
-
-![](images/2024-10/20241030_HauntedEdinburgh_1920x1080.jpg)
-
-#### 20241029 Great horned owl (© Mark Newman/Getty Images)
-
-![](images/2024-10/20241029_GreatOwl_1920x1080.jpg)
 
 
 
