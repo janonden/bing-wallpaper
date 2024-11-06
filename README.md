@@ -1,4 +1,4 @@
-#### 20241106 奥林匹克国家公园石狮海滩，华盛顿州，美国 (© T.M. Schultze/TANDEM Stills + Motion)
+#### 20241106 Shi Shi Beach in Olympic National Park, Washington (© T.M. Schultze/TANDEM Stills + Motion)
 
 ![](images/2024-11/20241106_ShiShiBeach_1920x1080.jpg)
 
