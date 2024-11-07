@@ -2,6 +2,10 @@
 
 ![](images/2024-11/20241107_LiDong_1920x1080.jpg)
 
+#### 20241107 Kanadische Küstenwölfe im Great Bear Rainforest, British Columbia, Kanada (© Nick Garbutt/Alamy)
+
+![](images/2024-11/20241107_CanadaWolves_1920x1080.jpg)
+
 #### 20241107 マガンの群れ (© feathercollector/Shutterstock)
 
 ![](images/2024-11/20241107_AnserAlbifrons_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20241031 草間彌生の「南瓜」, 香川県 香川郡 (© hedgehog111/Shutterstock)
 
 ![](images/2024-10/20241031_Halloween_1920x1080.jpg)
-
-#### 20241031 Chimera of Notre-Dame de Paris, France (© scaliger/Getty Images)
-
-![](images/2024-10/20241031_GargoyleParis_1920x1080.jpg)
 
 
 

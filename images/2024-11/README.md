@@ -2,6 +2,10 @@
 
 ![](20241107_LiDong_1920x1080.jpg)
 
+#### 20241107 Kanadische Küstenwölfe im Great Bear Rainforest, British Columbia, Kanada (© Nick Garbutt/Alamy)
+
+![](20241107_CanadaWolves_1920x1080.jpg)
+
 #### 20241107 マガンの群れ (© feathercollector/Shutterstock)
 
 ![](20241107_AnserAlbifrons_1920x1080.jpg)
