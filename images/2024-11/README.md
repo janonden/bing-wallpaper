@@ -1,3 +1,7 @@
+#### 20241108 冰岛冰川河流鸟瞰图 (© rybarmarekk/Shutterstock)
+
+![](20241108_GlacialRivers_1920x1080.jpg)
+
 #### 20241107 金色的松树，坝上草原，中国 (© MelindaChan/Getty Images)
 
 ![](20241107_LiDong_1920x1080.jpg)

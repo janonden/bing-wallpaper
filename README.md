@@ -1,3 +1,7 @@
+#### 20241108 冰岛冰川河流鸟瞰图 (© rybarmarekk/Shutterstock)
+
+![](images/2024-11/20241108_GlacialRivers_1920x1080.jpg)
+
 #### 20241107 金色的松树，坝上草原，中国 (© MelindaChan/Getty Images)
 
 ![](images/2024-11/20241107_LiDong_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20241031 Gran Paradiso National Park, Italy (© Ondrej Prosicky/Alamy)
 
 ![](images/2024-10/20241031_ValleAostaGranParadiso_1920x1080.jpg)
-
-#### 20241031 草間彌生の「南瓜」, 香川県 香川郡 (© hedgehog111/Shutterstock)
-
-![](images/2024-10/20241031_Halloween_1920x1080.jpg)
 
 
 
