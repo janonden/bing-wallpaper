@@ -1,4 +1,4 @@
-#### 20241108 冰岛冰川河流鸟瞰图 (© rybarmarekk/Shutterstock)
+#### 20241108 Aerial view of glacial rivers in Iceland (© rybarmarekk/Shutterstock)
 
 ![](images/2024-11/20241108_GlacialRivers_1920x1080.jpg)
 
