@@ -1,3 +1,7 @@
+#### 20241109 银河，阿伊特本哈杜杜，摩洛哥 (© Cavan Images/Getty Images)
+
+![](20241109_MoroccoMilkyWay_1920x1080.jpg)
+
 #### 20241108 Aerial view of glacial rivers in Iceland (© rybarmarekk/Shutterstock)
 
 ![](20241108_GlacialRivers_1920x1080.jpg)

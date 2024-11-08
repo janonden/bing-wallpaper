@@ -1,3 +1,7 @@
+#### 20241109 银河，阿伊特本哈杜杜，摩洛哥 (© Cavan Images/Getty Images)
+
+![](images/2024-11/20241109_MoroccoMilkyWay_1920x1080.jpg)
+
 #### 20241108 Aerial view of glacial rivers in Iceland (© rybarmarekk/Shutterstock)
 
 ![](images/2024-11/20241108_GlacialRivers_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20241101 Pueblo ruins, Hovenweep National Monument, Utah (© Alan Majchrowicz/Getty Images)
 
 ![](images/2024-11/20241101_HovenweepRuins_1920x1080.jpg)
-
-#### 20241031 Gran Paradiso National Park, Italy (© Ondrej Prosicky/Alamy)
-
-![](images/2024-10/20241031_ValleAostaGranParadiso_1920x1080.jpg)
 
 
 
