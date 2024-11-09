@@ -1,4 +1,4 @@
-#### 20241109 银河，阿伊特本哈杜杜，摩洛哥 (© Cavan Images/Getty Images)
+#### 20241109 Milky Way, Aït Benhaddou, Morocco (© Cavan Images/Getty Images)
 
 ![](20241109_MoroccoMilkyWay_1920x1080.jpg)
 
