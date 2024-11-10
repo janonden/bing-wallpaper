@@ -1,3 +1,7 @@
+#### 20241111 班夫国家公园的日落，阿尔伯塔省，加拿大 (© fywPhoto 云卷云舒/Getty Images)
+
+![](20241111_Banff_1920x1080.jpg)
+
 #### 20241110 Les Sables-d'Olonne, la Tour d'Arundel, le casino, le fort Saint-Nicolas et le chenal menant au port (© Leroy Francis/Hemis/Alamy Stock Photo)
 
 ![](20241110_VendeeGlobe_1920x1080.jpg)

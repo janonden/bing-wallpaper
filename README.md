@@ -1,3 +1,7 @@
+#### 20241111 班夫国家公园的日落，阿尔伯塔省，加拿大 (© fywPhoto 云卷云舒/Getty Images)
+
+![](images/2024-11/20241111_Banff_1920x1080.jpg)
+
 #### 20241110 Les Sables-d'Olonne, la Tour d'Arundel, le casino, le fort Saint-Nicolas et le chenal menant au port (© Leroy Francis/Hemis/Alamy Stock Photo)
 
 ![](images/2024-11/20241110_VendeeGlobe_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20241101 秋季葡萄园的鸟瞰图，瓦恩哈尔特，黑森林，德国 (© Sabine Gerold/Amazing Aerial Agency)
 
 ![](images/2024-11/20241101_VineyardsBlackForestFall_1920x1080.jpg)
-
-#### 20241101 レンソイス・マラニャンセス国立公園, ブラジル マラニャン州 (© thanosquest/Shutterstock)
-
-![](images/2024-11/20241101_LencoisMaranhao_1920x1080.jpg)
 
 
 
