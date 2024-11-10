@@ -26,7 +26,7 @@
 
 ![](20241106_ShiShiBeach_1920x1080.jpg)
 
-#### 20241105 Flamants des Caraïbes, péninsule du Yucatán, Mexique (© Claudio Contreras/NPL/Minden Pictures)
+#### 20241105 Caribbean flamingos, Yucatán Peninsula, Mexico (© Claudio Contreras/NPL/Minden Pictures)
 
 ![](20241105_YucatanFlamingos_1920x1080.jpg)
 
