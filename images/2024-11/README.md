@@ -1,3 +1,7 @@
+#### 20241110 Les Sables-d'Olonne, la Tour d'Arundel, le casino, le fort Saint-Nicolas et le chenal menant au port (© Leroy Francis/Hemis/Alamy Stock Photo)
+
+![](20241110_VendeeGlobe_1920x1080.jpg)
+
 #### 20241109 Milky Way, Aït Benhaddou, Morocco (© Cavan Images/Getty Images)
 
 ![](20241109_MoroccoMilkyWay_1920x1080.jpg)

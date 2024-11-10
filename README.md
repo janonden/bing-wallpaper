@@ -1,3 +1,7 @@
+#### 20241110 Les Sables-d'Olonne, la Tour d'Arundel, le casino, le fort Saint-Nicolas et le chenal menant au port (© Leroy Francis/Hemis/Alamy Stock Photo)
+
+![](images/2024-11/20241110_VendeeGlobe_1920x1080.jpg)
+
 #### 20241109 Milky Way, Aït Benhaddou, Morocco (© Cavan Images/Getty Images)
 
 ![](images/2024-11/20241109_MoroccoMilkyWay_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20241101 レンソイス・マラニャンセス国立公園, ブラジル マラニャン州 (© thanosquest/Shutterstock)
 
 ![](images/2024-11/20241101_LencoisMaranhao_1920x1080.jpg)
-
-#### 20241101 Pueblo ruins, Hovenweep National Monument, Utah (© Alan Majchrowicz/Getty Images)
-
-![](images/2024-11/20241101_HovenweepRuins_1920x1080.jpg)
 
 
 
