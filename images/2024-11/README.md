@@ -1,3 +1,7 @@
+#### 20241112 透过海湾拱门看到双拱门，拱门国家公园，犹他州，美国 (© Jeff Foott/Minden Pictures)
+
+![](20241112_CoveArch_1920x1080.jpg)
+
 #### 20241111 Mural Wall, Korean War Veterans Memorial, Washington, DC (© Steve Tulley/Alamy)
 
 ![](20241111_VeteranReflections_1920x1080.jpg)
