@@ -1,3 +1,7 @@
+#### 20241111 Mural Wall, Korean War Veterans Memorial, Washington, DC (© Steve Tulley/Alamy)
+
+![](images/2024-11/20241111_VeteranReflections_1920x1080.jpg)
+
 #### 20241111 班夫国家公园的日落，阿尔伯塔省，加拿大 (© fywPhoto 云卷云舒/Getty Images)
 
 ![](images/2024-11/20241111_Banff_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20241102 American bison in Yellowstone National Park, Wyoming (© Ian Shive/TANDEM Stills + Motion)
 
 ![](images/2024-11/20241102_BisonYellowstone_1920x1080.jpg)
-
-#### 20241101 秋季葡萄园的鸟瞰图，瓦恩哈尔特，黑森林，德国 (© Sabine Gerold/Amazing Aerial Agency)
-
-![](images/2024-11/20241101_VineyardsBlackForestFall_1920x1080.jpg)
 
 
 
