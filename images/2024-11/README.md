@@ -1,3 +1,7 @@
+#### 20241113 巨型海藻森林中的加州海狮，下加利福尼亚，墨西哥 (© Claudio Contreras/Minden Pictures)
+
+![](20241113_KelpForest_1920x1080.jpg)
+
 #### 20241112 Kirchturm von Bremm an der Moselschleife, Rheinland-Pfalz (© Jan Wehnert/Shutterstock)
 
 ![](20241112_MoselleValleyChurchTowerFall_1920x1080.jpg)

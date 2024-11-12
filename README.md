@@ -1,3 +1,7 @@
+#### 20241113 巨型海藻森林中的加州海狮，下加利福尼亚，墨西哥 (© Claudio Contreras/Minden Pictures)
+
+![](images/2024-11/20241113_KelpForest_1920x1080.jpg)
+
 #### 20241112 Kirchturm von Bremm an der Moselschleife, Rheinland-Pfalz (© Jan Wehnert/Shutterstock)
 
 ![](images/2024-11/20241112_MoselleValleyChurchTowerFall_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20241105 酉の市で販売される縁起熊手, 東京 (© ASSOCIATED PRESS/AP)
 
 ![](images/2024-11/20241105_Torinoichi_1920x1080.jpg)
-
-#### 20241105 Autumn sunrise over the National Mall, Washington, DC (© WLDavies/iStock/Getty Images Plus)
-
-![](images/2024-11/20241105_DCSunrise_1920x1080.jpg)
 
 
 
