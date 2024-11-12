@@ -1,3 +1,11 @@
+#### 20241112 Kirchturm von Bremm an der Moselschleife, Rheinland-Pfalz (© Jan Wehnert/Shutterstock)
+
+![](images/2024-11/20241112_MoselleValleyChurchTowerFall_1920x1080.jpg)
+
+#### 20241112 Coraux et lagon de Moorea, Polynésie française (© bru_greg/Getty Images)
+
+![](images/2024-11/20241112_Moorea_1920x1080.jpg)
+
 #### 20241112 透过海湾拱门看到双拱门，拱门国家公园，犹他州，美国 (© Jeff Foott/Minden Pictures)
 
 ![](images/2024-11/20241112_CoveArch_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20241105 Autumn sunrise over the National Mall, Washington, DC (© WLDavies/iStock/Getty Images Plus)
 
 ![](images/2024-11/20241105_DCSunrise_1920x1080.jpg)
-
-#### 20241104 Grasmere, Lake District, Cumbria, England (© Thomas Molyneux/Getty Images)
-
-![](images/2024-11/20241104_CumbriaAutumn_1920x1080.jpg)
-
-#### 20241103 Caribbean flamingo nests, Ría Lagartos Biosphere Reserve, Yucatán, Mexico (© Claudio Contreras/Minden Pictures)
-
-![](images/2024-11/20241103_YucatanBiosphere_1920x1080.jpg)
 
 
 
