@@ -6,7 +6,7 @@
 
 ![](20241112_Moorea_1920x1080.jpg)
 
-#### 20241112 透过海湾拱门看到双拱门，拱门国家公园，犹他州，美国 (© Jeff Foott/Minden Pictures)
+#### 20241112 Double Arch seen through Cove Arch, Arches National Park, Utah (© Jeff Foott/Minden Pictures)
 
 ![](20241112_CoveArch_1920x1080.jpg)
 
