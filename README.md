@@ -1,4 +1,4 @@
-#### 20241113 巨型海藻森林中的加州海狮，下加利福尼亚，墨西哥 (© Claudio Contreras/Minden Pictures)
+#### 20241113 California sea lion in a forest of giant kelp, Baja California, Mexico (© Claudio Contreras/Minden Pictures)
 
 ![](images/2024-11/20241113_KelpForest_1920x1080.jpg)
 
