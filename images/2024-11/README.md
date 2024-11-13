@@ -1,3 +1,7 @@
+#### 20241114 马纳罗拉，五渔村国家公园，利古里亚，意大利 (© John_Silver/Shutterstock)
+
+![](20241114_ManarolaItaly_1920x1080.jpg)
+
 #### 20241113 California sea lion in a forest of giant kelp, Baja California, Mexico (© Claudio Contreras/Minden Pictures)
 
 ![](20241113_KelpForest_1920x1080.jpg)
