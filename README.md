@@ -1,3 +1,7 @@
+#### 20241115 义蓬灯节 ，清迈，泰国 (© tampatra/Getty Images)
+
+![](images/2024-11/20241115_YiPengLanterns_1920x1080.jpg)
+
 #### 20241114 Manarola, Cinque Terre National Park, Liguria, Italy (© John_Silver/Shutterstock)
 
 ![](images/2024-11/20241114_ManarolaItaly_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20241106 Shi Shi Beach in Olympic National Park, Washington (© T.M. Schultze/TANDEM Stills + Motion)
 
 ![](images/2024-11/20241106_ShiShiBeach_1920x1080.jpg)
-
-#### 20241105 Caribbean flamingos, Yucatán Peninsula, Mexico (© Claudio Contreras/NPL/Minden Pictures)
-
-![](images/2024-11/20241105_YucatanFlamingos_1920x1080.jpg)
 
 
 

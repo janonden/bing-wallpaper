@@ -1,3 +1,7 @@
+#### 20241115 义蓬灯节 ，清迈，泰国 (© tampatra/Getty Images)
+
+![](20241115_YiPengLanterns_1920x1080.jpg)
+
 #### 20241114 Manarola, Cinque Terre National Park, Liguria, Italy (© John_Silver/Shutterstock)
 
 ![](20241114_ManarolaItaly_1920x1080.jpg)
