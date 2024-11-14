@@ -1,4 +1,4 @@
-#### 20241114 马纳罗拉，五渔村国家公园，利古里亚，意大利 (© John_Silver/Shutterstock)
+#### 20241114 Manarola, Cinque Terre National Park, Liguria, Italy (© John_Silver/Shutterstock)
 
 ![](20241114_ManarolaItaly_1920x1080.jpg)
 
