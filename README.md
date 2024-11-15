@@ -1,3 +1,7 @@
+#### 20241116 瓦登海沿岸，莫德加特附近，弗里斯兰，荷兰 (© Ron ter Burg/Minden Pictures)
+
+![](images/2024-11/20241116_FrieslandNetherlands_1920x1080.jpg)
+
 #### 20241115 Yi Peng lantern festival, Chiang Mai, Thailand (© tampatra/Getty Images)
 
 ![](images/2024-11/20241115_YiPengLanterns_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20241107 マガンの群れ (© feathercollector/Shutterstock)
 
 ![](images/2024-11/20241107_AnserAlbifrons_1920x1080.jpg)
-
-#### 20241106 Shi Shi Beach in Olympic National Park, Washington (© T.M. Schultze/TANDEM Stills + Motion)
-
-![](images/2024-11/20241106_ShiShiBeach_1920x1080.jpg)
 
 
 
