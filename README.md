@@ -1,4 +1,4 @@
-#### 20241115 义蓬灯节 ，清迈，泰国 (© tampatra/Getty Images)
+#### 20241115 Yi Peng lantern festival, Chiang Mai, Thailand (© tampatra/Getty Images)
 
 ![](images/2024-11/20241115_YiPengLanterns_1920x1080.jpg)
 
