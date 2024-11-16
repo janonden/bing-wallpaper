@@ -1,3 +1,7 @@
+#### 20241117 加里东林中的马鹿，阿夫力谷，苏格兰高地 (© Terry Whittaker/Alamy)
+
+![](images/2024-11/20241117_RedStag_1920x1080.jpg)
+
 #### 20241116 Wadden Sea coast, near Moddergat, Friesland, Netherlands (© Ron ter Burg/Minden Pictures)
 
 ![](images/2024-11/20241116_FrieslandNetherlands_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20241107 Vancouver Coastal Sea wolves in Great Bear Rainforest, British Columbia, Canada (© Nick Garbutt/Alamy)
 
 ![](images/2024-11/20241107_CanadaWolves_1920x1080.jpg)
-
-#### 20241107 マガンの群れ (© feathercollector/Shutterstock)
-
-![](images/2024-11/20241107_AnserAlbifrons_1920x1080.jpg)
 
 
 

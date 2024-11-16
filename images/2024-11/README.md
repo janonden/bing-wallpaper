@@ -1,3 +1,7 @@
+#### 20241117 加里东林中的马鹿，阿夫力谷，苏格兰高地 (© Terry Whittaker/Alamy)
+
+![](20241117_RedStag_1920x1080.jpg)
+
 #### 20241116 Wadden Sea coast, near Moddergat, Friesland, Netherlands (© Ron ter Burg/Minden Pictures)
 
 ![](20241116_FrieslandNetherlands_1920x1080.jpg)
