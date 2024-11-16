@@ -1,4 +1,4 @@
-#### 20241116 瓦登海沿岸，莫德加特附近，弗里斯兰，荷兰 (© Ron ter Burg/Minden Pictures)
+#### 20241116 Wadden Sea coast, near Moddergat, Friesland, Netherlands (© Ron ter Burg/Minden Pictures)
 
 ![](20241116_FrieslandNetherlands_1920x1080.jpg)
 
