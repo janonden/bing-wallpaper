@@ -1,4 +1,4 @@
-#### 20241117 加里东林中的马鹿，阿夫力谷，苏格兰高地 (© Terry Whittaker/Alamy)
+#### 20241117 Red deer stag in the Caledonian Forest, Glen Affric, Scottish Highlands (© Terry Whittaker/Alamy)
 
 ![](20241117_RedStag_1920x1080.jpg)
 
