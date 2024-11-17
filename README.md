@@ -1,3 +1,7 @@
+#### 20241118 波斯考尔灯塔，南威尔士，英国 (© Leighton Collins/Alamy)
+
+![](images/2024-11/20241118_PorthcawlLighthouse_1920x1080.jpg)
+
 #### 20241117 Red deer stag in the Caledonian Forest, Glen Affric, Scottish Highlands (© Terry Whittaker/Alamy)
 
 ![](images/2024-11/20241117_RedStag_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20241107 金色的松树，坝上草原，中国 (© MelindaChan/Getty Images)
 
 ![](images/2024-11/20241107_LiDong_1920x1080.jpg)
-
-#### 20241107 Vancouver Coastal Sea wolves in Great Bear Rainforest, British Columbia, Canada (© Nick Garbutt/Alamy)
-
-![](images/2024-11/20241107_CanadaWolves_1920x1080.jpg)
 
 
 

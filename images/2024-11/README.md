@@ -1,3 +1,7 @@
+#### 20241118 波斯考尔灯塔，南威尔士，英国 (© Leighton Collins/Alamy)
+
+![](20241118_PorthcawlLighthouse_1920x1080.jpg)
+
 #### 20241117 Red deer stag in the Caledonian Forest, Glen Affric, Scottish Highlands (© Terry Whittaker/Alamy)
 
 ![](20241117_RedStag_1920x1080.jpg)
