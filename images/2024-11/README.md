@@ -1,4 +1,4 @@
-#### 20241118 波斯考尔灯塔，南威尔士，英国 (© Leighton Collins/Alamy)
+#### 20241118 Porthcawl Lighthouse, Wales (© Leighton Collins/Alamy)
 
 ![](20241118_PorthcawlLighthouse_1920x1080.jpg)
 
