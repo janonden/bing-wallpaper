@@ -1,3 +1,7 @@
+#### 20241119 塔斯曼拱门，塔斯马尼亚州，澳大利亚 (© Gary Bell/Minden Pictures)
+
+![](images/2024-11/20241119_TasmansArch_1920x1080.jpg)
+
 #### 20241118 Porthcawl Lighthouse, Wales (© Leighton Collins/Alamy)
 
 ![](images/2024-11/20241118_PorthcawlLighthouse_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20241108 Aerial view of glacial rivers in Iceland (© rybarmarekk/Shutterstock)
 
 ![](images/2024-11/20241108_GlacialRivers_1920x1080.jpg)
-
-#### 20241107 金色的松树，坝上草原，中国 (© MelindaChan/Getty Images)
-
-![](images/2024-11/20241107_LiDong_1920x1080.jpg)
 
 
 

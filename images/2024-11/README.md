@@ -1,3 +1,7 @@
+#### 20241119 塔斯曼拱门，塔斯马尼亚州，澳大利亚 (© Gary Bell/Minden Pictures)
+
+![](20241119_TasmansArch_1920x1080.jpg)
+
 #### 20241118 Porthcawl Lighthouse, Wales (© Leighton Collins/Alamy)
 
 ![](20241118_PorthcawlLighthouse_1920x1080.jpg)
