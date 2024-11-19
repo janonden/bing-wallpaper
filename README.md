@@ -1,4 +1,4 @@
-#### 20241119 塔斯曼拱门，塔斯马尼亚州，澳大利亚 (© Gary Bell/Minden Pictures)
+#### 20241119 Tasmans Arch, Tasmania, Australia (© Gary Bell/Minden Pictures)
 
 ![](images/2024-11/20241119_TasmansArch_1920x1080.jpg)
 
