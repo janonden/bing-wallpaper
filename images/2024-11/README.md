@@ -2,6 +2,10 @@
 
 ![](20241119_TasmansArch_1920x1080.jpg)
 
+#### 20241119 Weißbirkenwald (Betula pendula) im Herbstnebel, Deutschland (© Duncan Usher/Minden Pictures)
+
+![](20241119_GermanyEuropeanWhiteBirchAutumn_1920x1080.jpg)
+
 #### 20241118 Porthcawl Lighthouse, Wales (© Leighton Collins/Alamy)
 
 ![](20241118_PorthcawlLighthouse_1920x1080.jpg)

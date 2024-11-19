@@ -2,6 +2,10 @@
 
 ![](images/2024-11/20241119_TasmansArch_1920x1080.jpg)
 
+#### 20241119 Weißbirkenwald (Betula pendula) im Herbstnebel, Deutschland (© Duncan Usher/Minden Pictures)
+
+![](images/2024-11/20241119_GermanyEuropeanWhiteBirchAutumn_1920x1080.jpg)
+
 #### 20241118 Porthcawl Lighthouse, Wales (© Leighton Collins/Alamy)
 
 ![](images/2024-11/20241118_PorthcawlLighthouse_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20241109 Milky Way, Aït Benhaddou, Morocco (© Cavan Images/Getty Images)
 
 ![](images/2024-11/20241109_MoroccoMilkyWay_1920x1080.jpg)
-
-#### 20241108 Aerial view of glacial rivers in Iceland (© rybarmarekk/Shutterstock)
-
-![](images/2024-11/20241108_GlacialRivers_1920x1080.jpg)
 
 
 
