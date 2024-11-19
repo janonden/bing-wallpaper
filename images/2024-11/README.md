@@ -1,3 +1,11 @@
+#### 20241120 皮埃尔桥，波尔多，法国 (© SergiyN/Getty Images)
+
+![](20241120_PontBordeaux_1920x1080.jpg)
+
+#### 20241120 Saype によるランドアート「 Beyond Crisis 」, スイス (© VALENTIN FLAURAUD/EPA-EFE/Shutterstock)
+
+![](20241120_BeyondSaype_1920x1080.jpg)
+
 #### 20241119 Tasmans Arch, Tasmania, Australia (© Gary Bell/Minden Pictures)
 
 ![](20241119_TasmansArch_1920x1080.jpg)

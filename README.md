@@ -1,3 +1,11 @@
+#### 20241120 皮埃尔桥，波尔多，法国 (© SergiyN/Getty Images)
+
+![](images/2024-11/20241120_PontBordeaux_1920x1080.jpg)
+
+#### 20241120 Saype によるランドアート「 Beyond Crisis 」, スイス (© VALENTIN FLAURAUD/EPA-EFE/Shutterstock)
+
+![](images/2024-11/20241120_BeyondSaype_1920x1080.jpg)
+
 #### 20241119 Tasmans Arch, Tasmania, Australia (© Gary Bell/Minden Pictures)
 
 ![](images/2024-11/20241119_TasmansArch_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20241111 班夫国家公园的日落，阿尔伯塔省，加拿大 (© fywPhoto 云卷云舒/Getty Images)
 
 ![](images/2024-11/20241111_Banff_1920x1080.jpg)
-
-#### 20241110 Les Sables-d'Olonne, la Tour d'Arundel, le casino, le fort Saint-Nicolas et le chenal menant au port (© Leroy Francis/Hemis/Alamy Stock Photo)
-
-![](images/2024-11/20241110_VendeeGlobe_1920x1080.jpg)
-
-#### 20241109 Milky Way, Aït Benhaddou, Morocco (© Cavan Images/Getty Images)
-
-![](images/2024-11/20241109_MoroccoMilkyWay_1920x1080.jpg)
 
 
 
