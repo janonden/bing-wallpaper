@@ -2,7 +2,7 @@
 
 ![](images/2024-11/20241120_PontBordeaux_1920x1080.jpg)
 
-#### 20241120 Saype によるランドアート「 Beyond Crisis 」, スイス (© VALENTIN FLAURAUD/EPA-EFE/Shutterstock)
+#### 20241120 Giant land art painting 'Beyond Crisis' by Saype, Leysin, Switzerland (© VALENTIN FLAURAUD/EPA-EFE/Shutterstock)
 
 ![](images/2024-11/20241120_BeyondSaype_1920x1080.jpg)
 
