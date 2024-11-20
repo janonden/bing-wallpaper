@@ -1,3 +1,7 @@
+#### 20241121 日出时的两只小狮子，南非 (© Ruan Springorum/Getty Images)
+
+![](20241121_LionCubs_1920x1080.jpg)
+
 #### 20241120 皮埃尔桥，波尔多，法国 (© SergiyN/Getty Images)
 
 ![](20241120_PontBordeaux_1920x1080.jpg)
