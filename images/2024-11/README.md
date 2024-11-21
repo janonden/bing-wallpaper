@@ -1,3 +1,11 @@
+#### 20241122 萨夫拉城堡，瓜达拉哈拉省，西班牙 (© Eduard Gene/Getty Images)
+
+![](20241122_ZafraCastle_1920x1080.jpg)
+
+#### 20241122 白糸の滝, 静岡県 富士宮市 (© Sean Pavone/Alamy Stock Photo)
+
+![](20241122_Xiaoxue_1920x1080.jpg)
+
 #### 20241121 Lion cubs at sunrise, South Africa (© Ruan Springorum/Getty Images)
 
 ![](20241121_LionCubs_1920x1080.jpg)

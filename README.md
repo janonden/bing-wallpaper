@@ -1,3 +1,11 @@
+#### 20241122 萨夫拉城堡，瓜达拉哈拉省，西班牙 (© Eduard Gene/Getty Images)
+
+![](images/2024-11/20241122_ZafraCastle_1920x1080.jpg)
+
+#### 20241122 白糸の滝, 静岡県 富士宮市 (© Sean Pavone/Alamy Stock Photo)
+
+![](images/2024-11/20241122_Xiaoxue_1920x1080.jpg)
+
 #### 20241121 Lion cubs at sunrise, South Africa (© Ruan Springorum/Getty Images)
 
 ![](images/2024-11/20241121_LionCubs_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20241112 Kirchturm von Bremm an der Moselschleife, Rheinland-Pfalz (© Jan Wehnert/Shutterstock)
 
 ![](images/2024-11/20241112_MoselleValleyChurchTowerFall_1920x1080.jpg)
-
-#### 20241112 Coraux et lagon de Moorea, Polynésie française (© bru_greg/Getty Images)
-
-![](images/2024-11/20241112_Moorea_1920x1080.jpg)
-
-#### 20241112 Double Arch seen through Cove Arch, Arches National Park, Utah (© Jeff Foott/Minden Pictures)
-
-![](images/2024-11/20241112_CoveArch_1920x1080.jpg)
 
 
 
