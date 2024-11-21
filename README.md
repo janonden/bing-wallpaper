@@ -1,6 +1,10 @@
-#### 20241121 日出时的两只小狮子，南非 (© Ruan Springorum/Getty Images)
+#### 20241121 Lion cubs at sunrise, South Africa (© Ruan Springorum/Getty Images)
 
 ![](images/2024-11/20241121_LionCubs_1920x1080.jpg)
+
+#### 20241121 Aspen trees in autumn, Stewart-Cassiar Highway, British Columbia, Canada (© Yva Momatiuk and John Eastcott/Minden Pictures)
+
+![](images/2024-11/20241121_AspenTrees_1920x1080.jpg)
 
 #### 20241120 皮埃尔桥，波尔多，法国 (© SergiyN/Getty Images)
 
@@ -53,10 +57,6 @@
 #### 20241112 Double Arch seen through Cove Arch, Arches National Park, Utah (© Jeff Foott/Minden Pictures)
 
 ![](images/2024-11/20241112_CoveArch_1920x1080.jpg)
-
-#### 20241111 Mural Wall, Korean War Veterans Memorial, Washington, DC (© Steve Tulley/Alamy)
-
-![](images/2024-11/20241111_VeteranReflections_1920x1080.jpg)
 
 
 

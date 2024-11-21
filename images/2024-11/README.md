@@ -1,6 +1,10 @@
-#### 20241121 日出时的两只小狮子，南非 (© Ruan Springorum/Getty Images)
+#### 20241121 Lion cubs at sunrise, South Africa (© Ruan Springorum/Getty Images)
 
 ![](20241121_LionCubs_1920x1080.jpg)
+
+#### 20241121 Aspen trees in autumn, Stewart-Cassiar Highway, British Columbia, Canada (© Yva Momatiuk and John Eastcott/Minden Pictures)
+
+![](20241121_AspenTrees_1920x1080.jpg)
 
 #### 20241120 皮埃尔桥，波尔多，法国 (© SergiyN/Getty Images)
 
