@@ -1,4 +1,4 @@
-#### 20241122 萨夫拉城堡，瓜达拉哈拉省，西班牙 (© Eduard Gene/Getty Images)
+#### 20241122 Castle of Zafra, Guadalajara province, Spain (© Eduard Gene/Getty Images)
 
 ![](images/2024-11/20241122_ZafraCastle_1920x1080.jpg)
 
