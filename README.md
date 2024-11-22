@@ -1,3 +1,7 @@
+#### 20241123 多叶芦荟，袋鼠岛，澳大利亚 (© Michael Melford/Alamy)
+
+![](images/2024-11/20241123_FibonacciAloe_1920x1080.jpg)
+
 #### 20241122 Castle of Zafra, Guadalajara province, Spain (© Eduard Gene/Getty Images)
 
 ![](images/2024-11/20241122_ZafraCastle_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20241113 California sea lion in a forest of giant kelp, Baja California, Mexico (© Claudio Contreras/Minden Pictures)
 
 ![](images/2024-11/20241113_KelpForest_1920x1080.jpg)
-
-#### 20241112 Kirchturm von Bremm an der Moselschleife, Rheinland-Pfalz (© Jan Wehnert/Shutterstock)
-
-![](images/2024-11/20241112_MoselleValleyChurchTowerFall_1920x1080.jpg)
 
 
 

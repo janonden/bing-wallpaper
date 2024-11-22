@@ -1,3 +1,7 @@
+#### 20241123 多叶芦荟，袋鼠岛，澳大利亚 (© Michael Melford/Alamy)
+
+![](20241123_FibonacciAloe_1920x1080.jpg)
+
 #### 20241122 Castle of Zafra, Guadalajara province, Spain (© Eduard Gene/Getty Images)
 
 ![](20241122_ZafraCastle_1920x1080.jpg)
