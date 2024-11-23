@@ -1,4 +1,4 @@
-#### 20241123 多叶芦荟，袋鼠岛，澳大利亚 (© Michael Melford/Alamy)
+#### 20241123 Spiral aloe, Kangaroo Island, Australia (© Michael Melford/Alamy)
 
 ![](20241123_FibonacciAloe_1920x1080.jpg)
 
