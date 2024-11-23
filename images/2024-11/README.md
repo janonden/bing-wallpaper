@@ -1,3 +1,7 @@
+#### 20241124 州立公园，索诺玛海岸，美国加利福尼亚州 (© Rachid Dahnoun/Tandem Stills + Motion)
+
+![](20241124_SonomaCoast_1920x1080.jpg)
+
 #### 20241123 Spiral aloe, Kangaroo Island, Australia (© Michael Melford/Alamy)
 
 ![](20241123_FibonacciAloe_1920x1080.jpg)

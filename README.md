@@ -1,3 +1,7 @@
+#### 20241124 州立公园，索诺玛海岸，美国加利福尼亚州 (© Rachid Dahnoun/Tandem Stills + Motion)
+
+![](images/2024-11/20241124_SonomaCoast_1920x1080.jpg)
+
 #### 20241123 Spiral aloe, Kangaroo Island, Australia (© Michael Melford/Alamy)
 
 ![](images/2024-11/20241123_FibonacciAloe_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20241114 Manarola, Cinque Terre National Park, Liguria, Italy (© John_Silver/Shutterstock)
 
 ![](images/2024-11/20241114_ManarolaItaly_1920x1080.jpg)
-
-#### 20241113 California sea lion in a forest of giant kelp, Baja California, Mexico (© Claudio Contreras/Minden Pictures)
-
-![](images/2024-11/20241113_KelpForest_1920x1080.jpg)
 
 
 
