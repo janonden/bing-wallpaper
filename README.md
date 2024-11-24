@@ -1,4 +1,4 @@
-#### 20241124 州立公园，索诺玛海岸，美国加利福尼亚州 (© Rachid Dahnoun/Tandem Stills + Motion)
+#### 20241124 Sonoma Coast State Park, California (© Rachid Dahnoun/Tandem Stills + Motion)
 
 ![](images/2024-11/20241124_SonomaCoast_1920x1080.jpg)
 
