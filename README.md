@@ -1,3 +1,7 @@
+#### 20241125 马赛长颈鹿，安波塞利国家公园，肯尼亚 (© Art Wolfe/DanitaDelimont.com)
+
+![](images/2024-11/20241125_AmboseliGiraffes_1920x1080.jpg)
+
 #### 20241124 Sonoma Coast State Park, California (© Rachid Dahnoun/Tandem Stills + Motion)
 
 ![](images/2024-11/20241124_SonomaCoast_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20241116 Wadden Sea coast, near Moddergat, Friesland, Netherlands (© Ron ter Burg/Minden Pictures)
 
 ![](images/2024-11/20241116_FrieslandNetherlands_1920x1080.jpg)
-
-#### 20241115 Yi Peng lantern festival, Chiang Mai, Thailand (© tampatra/Getty Images)
-
-![](images/2024-11/20241115_YiPengLanterns_1920x1080.jpg)
 
 
 

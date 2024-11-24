@@ -1,3 +1,7 @@
+#### 20241125 马赛长颈鹿，安波塞利国家公园，肯尼亚 (© Art Wolfe/DanitaDelimont.com)
+
+![](20241125_AmboseliGiraffes_1920x1080.jpg)
+
 #### 20241124 Sonoma Coast State Park, California (© Rachid Dahnoun/Tandem Stills + Motion)
 
 ![](20241124_SonomaCoast_1920x1080.jpg)
