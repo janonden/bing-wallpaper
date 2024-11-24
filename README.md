@@ -2,6 +2,10 @@
 
 ![](images/2024-11/20241124_SonomaCoast_1920x1080.jpg)
 
+#### 20241124 Paris aux couleurs de l’automne (© encrier/Getty Images)
+
+![](images/2024-11/20241124_ParisAutumn_1920x1080.jpg)
+
 #### 20241123 Spiral aloe, Kangaroo Island, Australia (© Michael Melford/Alamy)
 
 ![](images/2024-11/20241123_FibonacciAloe_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20241115 Yi Peng lantern festival, Chiang Mai, Thailand (© tampatra/Getty Images)
 
 ![](images/2024-11/20241115_YiPengLanterns_1920x1080.jpg)
-
-#### 20241114 Manarola, Cinque Terre National Park, Liguria, Italy (© John_Silver/Shutterstock)
-
-![](images/2024-11/20241114_ManarolaItaly_1920x1080.jpg)
 
 
 

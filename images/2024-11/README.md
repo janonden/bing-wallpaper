@@ -2,6 +2,10 @@
 
 ![](20241124_SonomaCoast_1920x1080.jpg)
 
+#### 20241124 Paris aux couleurs de l’automne (© encrier/Getty Images)
+
+![](20241124_ParisAutumn_1920x1080.jpg)
+
 #### 20241123 Spiral aloe, Kangaroo Island, Australia (© Michael Melford/Alamy)
 
 ![](20241123_FibonacciAloe_1920x1080.jpg)
