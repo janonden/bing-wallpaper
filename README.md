@@ -1,3 +1,7 @@
+#### 20241125 Weihnachtsmarkt in Regensburg, Bayern (© Harald Nachtmann/Getty Images)
+
+![](images/2024-11/20241125_RegensburgChristmasMarket_1920x1080.jpg)
+
 #### 20241125 马赛长颈鹿，安波塞利国家公园，肯尼亚 (© Art Wolfe/DanitaDelimont.com)
 
 ![](images/2024-11/20241125_AmboseliGiraffes_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20241117 Red deer stag in the Caledonian Forest, Glen Affric, Scottish Highlands (© Terry Whittaker/Alamy)
 
 ![](images/2024-11/20241117_RedStag_1920x1080.jpg)
-
-#### 20241116 Wadden Sea coast, near Moddergat, Friesland, Netherlands (© Ron ter Burg/Minden Pictures)
-
-![](images/2024-11/20241116_FrieslandNetherlands_1920x1080.jpg)
 
 
 

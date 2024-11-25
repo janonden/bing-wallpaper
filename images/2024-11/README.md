@@ -1,3 +1,7 @@
+#### 20241125 Weihnachtsmarkt in Regensburg, Bayern (© Harald Nachtmann/Getty Images)
+
+![](20241125_RegensburgChristmasMarket_1920x1080.jpg)
+
 #### 20241125 马赛长颈鹿，安波塞利国家公园，肯尼亚 (© Art Wolfe/DanitaDelimont.com)
 
 ![](20241125_AmboseliGiraffes_1920x1080.jpg)
