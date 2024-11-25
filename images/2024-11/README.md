@@ -2,7 +2,7 @@
 
 ![](20241125_RegensburgChristmasMarket_1920x1080.jpg)
 
-#### 20241125 马赛长颈鹿，安波塞利国家公园，肯尼亚 (© Art Wolfe/DanitaDelimont.com)
+#### 20241125 Masai giraffes, Amboseli National Park, Kenya (© Art Wolfe/DanitaDelimont.com)
 
 ![](20241125_AmboseliGiraffes_1920x1080.jpg)
 
