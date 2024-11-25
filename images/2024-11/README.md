@@ -1,3 +1,11 @@
+#### 20241126 橄榄树林，伊特里亚山谷，普利亚，意大利 (© Massimo Santi/Shutterstock)
+
+![](20241126_TrulliGrove_1920x1080.jpg)
+
+#### 20241126 金鱗湖の鳥居, 大分県 由布市 (© T-Mizuguchi/Shutterstock)
+
+![](20241126_HotBathDay_1920x1080.jpg)
+
 #### 20241125 Weihnachtsmarkt in Regensburg, Bayern (© Harald Nachtmann/Getty Images)
 
 ![](20241125_RegensburgChristmasMarket_1920x1080.jpg)

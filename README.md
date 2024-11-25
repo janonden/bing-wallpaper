@@ -1,3 +1,11 @@
+#### 20241126 橄榄树林，伊特里亚山谷，普利亚，意大利 (© Massimo Santi/Shutterstock)
+
+![](images/2024-11/20241126_TrulliGrove_1920x1080.jpg)
+
+#### 20241126 金鱗湖の鳥居, 大分県 由布市 (© T-Mizuguchi/Shutterstock)
+
+![](images/2024-11/20241126_HotBathDay_1920x1080.jpg)
+
 #### 20241125 Weihnachtsmarkt in Regensburg, Bayern (© Harald Nachtmann/Getty Images)
 
 ![](images/2024-11/20241125_RegensburgChristmasMarket_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20241119 Weißbirkenwald (Betula pendula) im Herbstnebel, Deutschland (© Duncan Usher/Minden Pictures)
 
 ![](images/2024-11/20241119_GermanyEuropeanWhiteBirchAutumn_1920x1080.jpg)
-
-#### 20241118 Porthcawl Lighthouse, Wales (© Leighton Collins/Alamy)
-
-![](images/2024-11/20241118_PorthcawlLighthouse_1920x1080.jpg)
-
-#### 20241117 Red deer stag in the Caledonian Forest, Glen Affric, Scottish Highlands (© Terry Whittaker/Alamy)
-
-![](images/2024-11/20241117_RedStag_1920x1080.jpg)
 
 
 
