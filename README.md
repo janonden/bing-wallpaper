@@ -1,4 +1,4 @@
-#### 20241126 橄榄树林，伊特里亚山谷，普利亚，意大利 (© Massimo Santi/Shutterstock)
+#### 20241126 Olive grove, Valle d'Itria, Puglia, Italy (© Massimo Santi/Shutterstock)
 
 ![](images/2024-11/20241126_TrulliGrove_1920x1080.jpg)
 
