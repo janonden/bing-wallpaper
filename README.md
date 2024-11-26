@@ -1,3 +1,7 @@
+#### 20241127 秋天的巨人之墓，布永市，比利时 (© David Briard/Getty)
+
+![](images/2024-11/20241127_SemoisRiver_1920x1080.jpg)
+
 #### 20241126 Olive grove, Valle d'Itria, Puglia, Italy (© Massimo Santi/Shutterstock)
 
 ![](images/2024-11/20241126_TrulliGrove_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20241119 Tasmans Arch, Tasmania, Australia (© Gary Bell/Minden Pictures)
 
 ![](images/2024-11/20241119_TasmansArch_1920x1080.jpg)
-
-#### 20241119 Weißbirkenwald (Betula pendula) im Herbstnebel, Deutschland (© Duncan Usher/Minden Pictures)
-
-![](images/2024-11/20241119_GermanyEuropeanWhiteBirchAutumn_1920x1080.jpg)
 
 
 
