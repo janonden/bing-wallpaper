@@ -1,3 +1,7 @@
+#### 20241128 日落时分风暴渐渐消散，阿西尼博因山省立公园，加拿大 (© Jeff Lewis/TANDEM Stills + Motion)
+
+![](20241128_AssiniboineTS_1920x1080.jpg)
+
 #### 20241127 Tombeau du Géant (Giant's Tomb) in autumn, Bouillon, Belgium (© David Briard/Getty)
 
 ![](20241127_SemoisRiver_1920x1080.jpg)

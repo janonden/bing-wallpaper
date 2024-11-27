@@ -1,3 +1,7 @@
+#### 20241128 日落时分风暴渐渐消散，阿西尼博因山省立公园，加拿大 (© Jeff Lewis/TANDEM Stills + Motion)
+
+![](images/2024-11/20241128_AssiniboineTS_1920x1080.jpg)
+
 #### 20241127 Tombeau du Géant (Giant's Tomb) in autumn, Bouillon, Belgium (© David Briard/Getty)
 
 ![](images/2024-11/20241127_SemoisRiver_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20241120 皮埃尔桥，波尔多，法国 (© SergiyN/Getty Images)
 
 ![](images/2024-11/20241120_PontBordeaux_1920x1080.jpg)
-
-#### 20241120 Giant land art painting 'Beyond Crisis' by Saype, Leysin, Switzerland (© VALENTIN FLAURAUD/EPA-EFE/Shutterstock)
-
-![](images/2024-11/20241120_BeyondSaype_1920x1080.jpg)
 
 
 
