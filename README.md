@@ -2,6 +2,10 @@
 
 ![](images/2024-11/20241127_SemoisRiver_1920x1080.jpg)
 
+#### 20241127 Baie du Marin, Martinique (© Tuul & Bruno Morandi/Getty Images)
+
+![](images/2024-11/20241127_RaidAlyzees_1920x1080.jpg)
+
 #### 20241126 Olive grove, Valle d'Itria, Puglia, Italy (© Massimo Santi/Shutterstock)
 
 ![](images/2024-11/20241126_TrulliGrove_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20241120 Giant land art painting 'Beyond Crisis' by Saype, Leysin, Switzerland (© VALENTIN FLAURAUD/EPA-EFE/Shutterstock)
 
 ![](images/2024-11/20241120_BeyondSaype_1920x1080.jpg)
-
-#### 20241119 Tasmans Arch, Tasmania, Australia (© Gary Bell/Minden Pictures)
-
-![](images/2024-11/20241119_TasmansArch_1920x1080.jpg)
 
 
 

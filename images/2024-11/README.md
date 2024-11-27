@@ -2,6 +2,10 @@
 
 ![](20241127_SemoisRiver_1920x1080.jpg)
 
+#### 20241127 Baie du Marin, Martinique (© Tuul & Bruno Morandi/Getty Images)
+
+![](20241127_RaidAlyzees_1920x1080.jpg)
+
 #### 20241126 Olive grove, Valle d'Itria, Puglia, Italy (© Massimo Santi/Shutterstock)
 
 ![](20241126_TrulliGrove_1920x1080.jpg)
