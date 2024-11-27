@@ -1,4 +1,4 @@
-#### 20241127 秋天的巨人之墓，布永市，比利时 (© David Briard/Getty)
+#### 20241127 Tombeau du Géant (Giant's Tomb) in autumn, Bouillon, Belgium (© David Briard/Getty)
 
 ![](20241127_SemoisRiver_1920x1080.jpg)
 
