@@ -1,3 +1,7 @@
+#### 20241128 Wild turkeys, New York (© John Cancalosi/Alamy)
+
+![](images/2024-11/20241128_TomTurkeys_1920x1080.jpg)
+
 #### 20241128 日落时分风暴渐渐消散，阿西尼博因山省立公园，加拿大 (© Jeff Lewis/TANDEM Stills + Motion)
 
 ![](images/2024-11/20241128_AssiniboineTS_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20241121 Aspen trees in autumn, Stewart-Cassiar Highway, British Columbia, Canada (© Yva Momatiuk and John Eastcott/Minden Pictures)
 
 ![](images/2024-11/20241121_AspenTrees_1920x1080.jpg)
-
-#### 20241120 皮埃尔桥，波尔多，法国 (© SergiyN/Getty Images)
-
-![](images/2024-11/20241120_PontBordeaux_1920x1080.jpg)
 
 
 

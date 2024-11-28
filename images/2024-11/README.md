@@ -1,3 +1,7 @@
+#### 20241128 Wild turkeys, New York (© John Cancalosi/Alamy)
+
+![](20241128_TomTurkeys_1920x1080.jpg)
+
 #### 20241128 日落时分风暴渐渐消散，阿西尼博因山省立公园，加拿大 (© Jeff Lewis/TANDEM Stills + Motion)
 
 ![](20241128_AssiniboineTS_1920x1080.jpg)
