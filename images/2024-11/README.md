@@ -1,3 +1,7 @@
+#### 20241129 圣米歇尔山，诺曼底，法国 (© Captain Skyhigh/Getty Images)
+
+![](20241129_MtStMichel_1920x1080.jpg)
+
 #### 20241128 Wild turkeys, New York (© John Cancalosi/Alamy)
 
 ![](20241128_TomTurkeys_1920x1080.jpg)

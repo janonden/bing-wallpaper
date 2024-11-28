@@ -1,3 +1,7 @@
+#### 20241129 圣米歇尔山，诺曼底，法国 (© Captain Skyhigh/Getty Images)
+
+![](images/2024-11/20241129_MtStMichel_1920x1080.jpg)
+
 #### 20241128 Wild turkeys, New York (© John Cancalosi/Alamy)
 
 ![](images/2024-11/20241128_TomTurkeys_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20241121 Lion cubs at sunrise, South Africa (© Ruan Springorum/Getty Images)
 
 ![](images/2024-11/20241121_LionCubs_1920x1080.jpg)
-
-#### 20241121 Aspen trees in autumn, Stewart-Cassiar Highway, British Columbia, Canada (© Yva Momatiuk and John Eastcott/Minden Pictures)
-
-![](images/2024-11/20241121_AspenTrees_1920x1080.jpg)
 
 
 
