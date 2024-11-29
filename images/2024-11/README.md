@@ -1,4 +1,4 @@
-#### 20241129 圣米歇尔山，诺曼底，法国 (© Captain Skyhigh/Getty Images)
+#### 20241129 Mont-Saint-Michel, Normandy, France (© Captain Skyhigh/Getty Images)
 
 ![](20241129_MtStMichel_1920x1080.jpg)
 
