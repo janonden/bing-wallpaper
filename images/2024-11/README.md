@@ -1,3 +1,7 @@
+#### 20241130 基尔亨城堡倒映在奥湖中，阿盖尔-比特郡，苏格兰 (© Tom Mackie/plainpicture)
+
+![](20241130_KilchurnAutumn_1920x1080.jpg)
+
 #### 20241129 Mont-Saint-Michel, Normandy, France (© Captain Skyhigh/Getty Images)
 
 ![](20241129_MtStMichel_1920x1080.jpg)

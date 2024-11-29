@@ -1,3 +1,7 @@
+#### 20241130 基尔亨城堡倒映在奥湖中，阿盖尔-比特郡，苏格兰 (© Tom Mackie/plainpicture)
+
+![](images/2024-11/20241130_KilchurnAutumn_1920x1080.jpg)
+
 #### 20241129 Mont-Saint-Michel, Normandy, France (© Captain Skyhigh/Getty Images)
 
 ![](images/2024-11/20241129_MtStMichel_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20241122 白糸の滝, 静岡県 富士宮市 (© Sean Pavone/Alamy Stock Photo)
 
 ![](images/2024-11/20241122_Xiaoxue_1920x1080.jpg)
-
-#### 20241121 Lion cubs at sunrise, South Africa (© Ruan Springorum/Getty Images)
-
-![](images/2024-11/20241121_LionCubs_1920x1080.jpg)
 
 
 
