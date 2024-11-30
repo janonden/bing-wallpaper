@@ -1,4 +1,4 @@
-#### 20241130 基尔亨城堡倒映在奥湖中，阿盖尔-比特郡，苏格兰 (© Tom Mackie/plainpicture)
+#### 20241130 Kilchurn Castle reflected in Loch Awe, Argyll and Bute, Scotland (© Tom Mackie/plainpicture)
 
 ![](images/2024-11/20241130_KilchurnAutumn_1920x1080.jpg)
 
