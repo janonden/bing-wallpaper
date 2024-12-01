@@ -1,3 +1,7 @@
+#### 20241202 雌性驼鹿，德纳里国家公园，阿拉斯加州，美国 (© Cavan Images/Alamy Stock Photo)
+
+![](images/2024-12/20241202_SnowMoose_1920x1080.jpg)
+
 #### 20241201 Icebergs, Antarctica (© Art Wolfe/DanitaDelimont.com)
 
 ![](images/2024-12/20241201_IcebergsAntarctica_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20241124 Paris aux couleurs de l’automne (© encrier/Getty Images)
 
 ![](images/2024-11/20241124_ParisAutumn_1920x1080.jpg)
-
-#### 20241123 Spiral aloe, Kangaroo Island, Australia (© Michael Melford/Alamy)
-
-![](images/2024-11/20241123_FibonacciAloe_1920x1080.jpg)
 
 
 
