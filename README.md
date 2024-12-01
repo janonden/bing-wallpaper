@@ -2,6 +2,10 @@
 
 ![](images/2024-12/20241201_IcebergsAntarctica_1920x1080.jpg)
 
+#### 20241201 Verschneite Fachwerkhäuser in Freudenberg bei Siegen, Nordrhein-Westfalen (© Thorsten Frisch/Shutterstock)
+
+![](images/2024-12/20241201_FreudenbergHistoricHouses_1920x1080.jpg)
+
 #### 20241130 Kilchurn Castle reflected in Loch Awe, Argyll and Bute, Scotland (© Tom Mackie/plainpicture)
 
 ![](images/2024-11/20241130_KilchurnAutumn_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20241123 Spiral aloe, Kangaroo Island, Australia (© Michael Melford/Alamy)
 
 ![](images/2024-11/20241123_FibonacciAloe_1920x1080.jpg)
-
-#### 20241122 Castle of Zafra, Guadalajara province, Spain (© Eduard Gene/Getty Images)
-
-![](images/2024-11/20241122_ZafraCastle_1920x1080.jpg)
 
 
 
