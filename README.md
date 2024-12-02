@@ -1,3 +1,11 @@
+#### 20241203 Sattais Katcheri，琥珀堡，拉贾斯坦邦，印度 (© Yury Taranik/Shutterstock)
+
+![](images/2024-12/20241203_JaipurFort_1920x1080.jpg)
+
+#### 20241203 花火と豪華な山車,埼玉県 秩父市 (© ASSOCIATED PRESS/AP)
+
+![](images/2024-12/20241203_ChichibuFestival_1920x1080.jpg)
+
 #### 20241202 Female moose, Denali National Park, Alaska (© Cavan Images/Alamy)
 
 ![](images/2024-12/20241202_SnowMoose_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20241125 Masai giraffes, Amboseli National Park, Kenya (© Art Wolfe/DanitaDelimont.com)
 
 ![](images/2024-11/20241125_AmboseliGiraffes_1920x1080.jpg)
-
-#### 20241124 Sonoma Coast State Park, California (© Rachid Dahnoun/Tandem Stills + Motion)
-
-![](images/2024-11/20241124_SonomaCoast_1920x1080.jpg)
-
-#### 20241124 Paris aux couleurs de l’automne (© encrier/Getty Images)
-
-![](images/2024-11/20241124_ParisAutumn_1920x1080.jpg)
 
 
 
