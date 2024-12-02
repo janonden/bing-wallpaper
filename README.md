@@ -1,4 +1,4 @@
-#### 20241202 雌性驼鹿，德纳里国家公园，阿拉斯加州，美国 (© Cavan Images/Alamy Stock Photo)
+#### 20241202 Female moose, Denali National Park, Alaska (© Cavan Images/Alamy)
 
 ![](images/2024-12/20241202_SnowMoose_1920x1080.jpg)
 
