@@ -1,3 +1,7 @@
+#### 20241204 雄性白犀，纳库鲁湖，肯尼亚 (© Ingo Arndt/Minden Pictures)
+
+![](images/2024-12/20241204_RhinosKenya_1920x1080.jpg)
+
 #### 20241203 Sattais Katcheri (Court of 27 Pillars), Amber Fort, Rajasthan, India (© Yury Taranik/Shutterstock)
 
 ![](images/2024-12/20241203_JaipurFort_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20241125 Weihnachtsmarkt in Regensburg, Bayern (© Harald Nachtmann/Getty Images)
 
 ![](images/2024-11/20241125_RegensburgChristmasMarket_1920x1080.jpg)
-
-#### 20241125 Masai giraffes, Amboseli National Park, Kenya (© Art Wolfe/DanitaDelimont.com)
-
-![](images/2024-11/20241125_AmboseliGiraffes_1920x1080.jpg)
 
 
 

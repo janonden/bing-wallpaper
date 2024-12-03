@@ -1,3 +1,7 @@
+#### 20241204 雄性白犀，纳库鲁湖，肯尼亚 (© Ingo Arndt/Minden Pictures)
+
+![](20241204_RhinosKenya_1920x1080.jpg)
+
 #### 20241203 Sattais Katcheri (Court of 27 Pillars), Amber Fort, Rajasthan, India (© Yury Taranik/Shutterstock)
 
 ![](20241203_JaipurFort_1920x1080.jpg)
