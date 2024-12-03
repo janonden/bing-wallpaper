@@ -1,4 +1,4 @@
-#### 20241203 Sattais Katcheri，琥珀堡，拉贾斯坦邦，印度 (© Yury Taranik/Shutterstock)
+#### 20241203 Sattais Katcheri (Court of 27 Pillars), Amber Fort, Rajasthan, India (© Yury Taranik/Shutterstock)
 
 ![](images/2024-12/20241203_JaipurFort_1920x1080.jpg)
 
