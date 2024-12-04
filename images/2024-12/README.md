@@ -1,3 +1,7 @@
+#### 20241205 莫诺湖的石灰华地层，加利福尼亚州，美国 (© Susanna Patras/TANDEM Stills + Motion)
+
+![](20241205_MonoTufa_1920x1080.jpg)
+
 #### 20241204 Male white rhinoceroses, Lake Nakuru, Kenya (© Ingo Arndt/Minden Pictures)
 
 ![](20241204_RhinosKenya_1920x1080.jpg)

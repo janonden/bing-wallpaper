@@ -1,3 +1,7 @@
+#### 20241205 莫诺湖的石灰华地层，加利福尼亚州，美国 (© Susanna Patras/TANDEM Stills + Motion)
+
+![](images/2024-12/20241205_MonoTufa_1920x1080.jpg)
+
 #### 20241204 Male white rhinoceroses, Lake Nakuru, Kenya (© Ingo Arndt/Minden Pictures)
 
 ![](images/2024-12/20241204_RhinosKenya_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20241126 金鱗湖の鳥居, 大分県 由布市 (© T-Mizuguchi/Shutterstock)
 
 ![](images/2024-11/20241126_HotBathDay_1920x1080.jpg)
-
-#### 20241125 Weihnachtsmarkt in Regensburg, Bayern (© Harald Nachtmann/Getty Images)
-
-![](images/2024-11/20241125_RegensburgChristmasMarket_1920x1080.jpg)
 
 
 
