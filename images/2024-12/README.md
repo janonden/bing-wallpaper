@@ -1,4 +1,4 @@
-#### 20241204 雄性白犀，纳库鲁湖，肯尼亚 (© Ingo Arndt/Minden Pictures)
+#### 20241204 Male white rhinoceroses, Lake Nakuru, Kenya (© Ingo Arndt/Minden Pictures)
 
 ![](20241204_RhinosKenya_1920x1080.jpg)
 
