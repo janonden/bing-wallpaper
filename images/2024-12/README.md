@@ -1,3 +1,11 @@
+#### 20241206 ヘルシンキの旧市街, フィンランド (© Oleksiy Mark/Shutterstock)
+
+![](20241206_HelsinkiDusk_1920x1080.jpg)
+
+#### 20241206 鸟瞰冰封的大海和悬崖上的灯塔，大连泊霞湾公园，辽宁省，中国 (© zhengshun tang/Getty Images)
+
+![](20241206_GreaterSnow_1920x1080.jpg)
+
 #### 20241205 Tufa formations in Mono Lake, California (© Susanna Patras/TANDEM Stills + Motion)
 
 ![](20241205_MonoTufa_1920x1080.jpg)

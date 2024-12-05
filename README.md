@@ -1,3 +1,11 @@
+#### 20241206 ヘルシンキの旧市街, フィンランド (© Oleksiy Mark/Shutterstock)
+
+![](images/2024-12/20241206_HelsinkiDusk_1920x1080.jpg)
+
+#### 20241206 鸟瞰冰封的大海和悬崖上的灯塔，大连泊霞湾公园，辽宁省，中国 (© zhengshun tang/Getty Images)
+
+![](images/2024-12/20241206_GreaterSnow_1920x1080.jpg)
+
 #### 20241205 Tufa formations in Mono Lake, California (© Susanna Patras/TANDEM Stills + Motion)
 
 ![](images/2024-12/20241205_MonoTufa_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20241127 Baie du Marin, Martinique (© Tuul & Bruno Morandi/Getty Images)
 
 ![](images/2024-11/20241127_RaidAlyzees_1920x1080.jpg)
-
-#### 20241126 Olive grove, Valle d'Itria, Puglia, Italy (© Massimo Santi/Shutterstock)
-
-![](images/2024-11/20241126_TrulliGrove_1920x1080.jpg)
-
-#### 20241126 金鱗湖の鳥居, 大分県 由布市 (© T-Mizuguchi/Shutterstock)
-
-![](images/2024-11/20241126_HotBathDay_1920x1080.jpg)
 
 
 
