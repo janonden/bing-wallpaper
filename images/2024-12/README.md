@@ -1,4 +1,4 @@
-#### 20241205 莫诺湖的石灰华地层，加利福尼亚州，美国 (© Susanna Patras/TANDEM Stills + Motion)
+#### 20241205 Tufa formations in Mono Lake, California (© Susanna Patras/TANDEM Stills + Motion)
 
 ![](20241205_MonoTufa_1920x1080.jpg)
 
