@@ -6,6 +6,10 @@
 
 ![](images/2024-12/20241206_GreaterSnow_1920x1080.jpg)
 
+#### 20241206 Maisons traditionnelles alsaciennes à colombages et rivière Lauch Colmar, Alsace (© KavalenkavaVolha/Getty Images)
+
+![](images/2024-12/20241206_ColmarHoliday_1920x1080.jpg)
+
 #### 20241205 Tufa formations in Mono Lake, California (© Susanna Patras/TANDEM Stills + Motion)
 
 ![](images/2024-12/20241205_MonoTufa_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20241127 Tombeau du Géant (Giant's Tomb) in autumn, Bouillon, Belgium (© David Briard/Getty)
 
 ![](images/2024-11/20241127_SemoisRiver_1920x1080.jpg)
-
-#### 20241127 Baie du Marin, Martinique (© Tuul & Bruno Morandi/Getty Images)
-
-![](images/2024-11/20241127_RaidAlyzees_1920x1080.jpg)
 
 
 

@@ -6,6 +6,10 @@
 
 ![](20241206_GreaterSnow_1920x1080.jpg)
 
+#### 20241206 Maisons traditionnelles alsaciennes à colombages et rivière Lauch Colmar, Alsace (© KavalenkavaVolha/Getty Images)
+
+![](20241206_ColmarHoliday_1920x1080.jpg)
+
 #### 20241205 Tufa formations in Mono Lake, California (© Susanna Patras/TANDEM Stills + Motion)
 
 ![](20241205_MonoTufa_1920x1080.jpg)
