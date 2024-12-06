@@ -1,4 +1,4 @@
-#### 20241206 ヘルシンキの旧市街, フィンランド (© Oleksiy Mark/Shutterstock)
+#### 20241206 Old Town in Helsinki, Finland (© Oleksiy Mark/Shutterstock)
 
 ![](images/2024-12/20241206_HelsinkiDusk_1920x1080.jpg)
 
