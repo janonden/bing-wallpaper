@@ -1,3 +1,11 @@
+#### 20241207 雪化粧の五稜郭, 北海道 函館 (© Hiro1775/Getty Images)
+
+![](images/2024-12/20241207_Daxue_1920x1080.jpg)
+
+#### 20241207 里约热内卢州的阿拉亚尔多卡博，巴西 (© Derson Santana/Shutterstock)
+
+![](images/2024-12/20241207_ArraialdoCabo_1920x1080.jpg)
+
 #### 20241206 Old Town in Helsinki, Finland (© Oleksiy Mark/Shutterstock)
 
 ![](images/2024-12/20241206_HelsinkiDusk_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20241128 Wild turkeys, New York (© John Cancalosi/Alamy)
 
 ![](images/2024-11/20241128_TomTurkeys_1920x1080.jpg)
-
-#### 20241128 日落时分风暴渐渐消散，阿西尼博因山省立公园，加拿大 (© Jeff Lewis/TANDEM Stills + Motion)
-
-![](images/2024-11/20241128_AssiniboineTS_1920x1080.jpg)
-
-#### 20241127 Tombeau du Géant (Giant's Tomb) in autumn, Bouillon, Belgium (© David Briard/Getty)
-
-![](images/2024-11/20241127_SemoisRiver_1920x1080.jpg)
 
 
 
