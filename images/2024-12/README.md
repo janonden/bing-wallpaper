@@ -1,3 +1,7 @@
+#### 20241208 巴黎圣母院，巴黎，法国 (© Julien Fromentin/Getty Images)
+
+![](20241208_ReopeningNotreDame_1920x1080.jpg)
+
 #### 20241207 Lake Ontario in the winter season, Toronto (© Brendan Riley/Shutterstock)
 
 ![](20241207_TorontoWinterSkyline_1920x1080.jpg)

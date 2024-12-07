@@ -1,3 +1,7 @@
+#### 20241208 巴黎圣母院，巴黎，法国 (© Julien Fromentin/Getty Images)
+
+![](images/2024-12/20241208_ReopeningNotreDame_1920x1080.jpg)
+
 #### 20241207 Lake Ontario in the winter season, Toronto (© Brendan Riley/Shutterstock)
 
 ![](images/2024-12/20241207_TorontoWinterSkyline_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20241201 Verschneite Fachwerkhäuser in Freudenberg bei Siegen, Nordrhein-Westfalen (© Thorsten Frisch/Shutterstock)
 
 ![](images/2024-12/20241201_FreudenbergHistoricHouses_1920x1080.jpg)
-
-#### 20241130 Kilchurn Castle reflected in Loch Awe, Argyll and Bute, Scotland (© Tom Mackie/plainpicture)
-
-![](images/2024-11/20241130_KilchurnAutumn_1920x1080.jpg)
 
 
 
