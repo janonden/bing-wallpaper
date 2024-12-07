@@ -1,3 +1,11 @@
+#### 20241207 Lake Ontario in the winter season, Toronto (© Brendan Riley/Shutterstock)
+
+![](20241207_TorontoWinterSkyline_1920x1080.jpg)
+
+#### 20241207 Pearl Harbor Memorial Bridge, New Haven, Connecticut (© Enzo Figueres/Getty Images)
+
+![](20241207_NewHavenBridge_1920x1080.jpg)
+
 #### 20241207 雪化粧の五稜郭, 北海道 函館 (© Hiro1775/Getty Images)
 
 ![](20241207_Daxue_1920x1080.jpg)

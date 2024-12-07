@@ -1,3 +1,11 @@
+#### 20241207 Lake Ontario in the winter season, Toronto (© Brendan Riley/Shutterstock)
+
+![](images/2024-12/20241207_TorontoWinterSkyline_1920x1080.jpg)
+
+#### 20241207 Pearl Harbor Memorial Bridge, New Haven, Connecticut (© Enzo Figueres/Getty Images)
+
+![](images/2024-12/20241207_NewHavenBridge_1920x1080.jpg)
+
 #### 20241207 雪化粧の五稜郭, 北海道 函館 (© Hiro1775/Getty Images)
 
 ![](images/2024-12/20241207_Daxue_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20241130 Kilchurn Castle reflected in Loch Awe, Argyll and Bute, Scotland (© Tom Mackie/plainpicture)
 
 ![](images/2024-11/20241130_KilchurnAutumn_1920x1080.jpg)
-
-#### 20241129 Mont-Saint-Michel, Normandy, France (© Captain Skyhigh/Getty Images)
-
-![](images/2024-11/20241129_MtStMichel_1920x1080.jpg)
-
-#### 20241128 Wild turkeys, New York (© John Cancalosi/Alamy)
-
-![](images/2024-11/20241128_TomTurkeys_1920x1080.jpg)
 
 
 
