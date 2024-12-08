@@ -2,6 +2,10 @@
 
 ![](images/2024-12/20241209_Moorea_1920x1080.jpg)
 
+#### 20241209 两只原驼,托雷斯德尔帕恩国家公园 , 智利 (© Floris van Breugel/NPL/Minden Pictures)
+
+![](images/2024-12/20241209_GuanacosChile_1920x1080.jpg)
+
 #### 20241208 Notre-Dame Cathedral, Paris, France (© Julien Fromentin/Getty Images)
 
 ![](images/2024-12/20241208_ReopeningNotreDame_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20241202 Female moose, Denali National Park, Alaska (© Cavan Images/Alamy)
 
 ![](images/2024-12/20241202_SnowMoose_1920x1080.jpg)
-
-#### 20241201 Icebergs, Antarctica (© Art Wolfe/DanitaDelimont.com)
-
-![](images/2024-12/20241201_IcebergsAntarctica_1920x1080.jpg)
 
 
 
