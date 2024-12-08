@@ -1,4 +1,8 @@
-#### 20241208 巴黎圣母院，巴黎，法国 (© Julien Fromentin/Getty Images)
+#### 20241209 Corals and the lagoon of Mo'orea in French Polynesia (© bru_greg/Getty Images)
+
+![](20241209_Moorea_1920x1080.jpg)
+
+#### 20241208 Notre-Dame Cathedral, Paris, France (© Julien Fromentin/Getty Images)
 
 ![](20241208_ReopeningNotreDame_1920x1080.jpg)
 
