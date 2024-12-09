@@ -2,7 +2,7 @@
 
 ![](20241209_Moorea_1920x1080.jpg)
 
-#### 20241209 两只原驼,托雷斯德尔帕恩国家公园 , 智利 (© Floris van Breugel/NPL/Minden Pictures)
+#### 20241209 Guanacos, Torres del Paine National Park, Chile (© Floris van Breugel/NPL/Minden Pictures)
 
 ![](20241209_GuanacosChile_1920x1080.jpg)
 
