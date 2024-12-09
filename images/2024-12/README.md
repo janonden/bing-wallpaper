@@ -1,3 +1,7 @@
+#### 20241210 被雪覆盖的康沃尔天涯海角小径，康沃尔郡兰德恩德，英格兰 (© Josef FitzGerald-Patrick/Getty Images)
+
+![](20241210_CornwallSnow_1920x1080.jpg)
+
 #### 20241209 Corals and the lagoon of Mo'orea in French Polynesia (© bru_greg/Getty Images)
 
 ![](20241209_Moorea_1920x1080.jpg)

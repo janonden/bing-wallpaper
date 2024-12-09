@@ -1,3 +1,7 @@
+#### 20241210 被雪覆盖的康沃尔天涯海角小径，康沃尔郡兰德恩德，英格兰 (© Josef FitzGerald-Patrick/Getty Images)
+
+![](images/2024-12/20241210_CornwallSnow_1920x1080.jpg)
+
 #### 20241209 Corals and the lagoon of Mo'orea in French Polynesia (© bru_greg/Getty Images)
 
 ![](images/2024-12/20241209_Moorea_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20241203 花火と豪華な山車,埼玉県 秩父市 (© ASSOCIATED PRESS/AP)
 
 ![](images/2024-12/20241203_ChichibuFestival_1920x1080.jpg)
-
-#### 20241202 Female moose, Denali National Park, Alaska (© Cavan Images/Alamy)
-
-![](images/2024-12/20241202_SnowMoose_1920x1080.jpg)
 
 
 
