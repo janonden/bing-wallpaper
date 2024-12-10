@@ -1,3 +1,7 @@
+#### 20241211 拉瓦雷多三峰山,意大利 (© Daniel Maran/Getty Images)
+
+![](20241211_DolomitesSky_1920x1080.jpg)
+
 #### 20241210 The Cornish Coast Path covered in snow, Land's End, Cornwall, England (© Josef FitzGerald-Patrick/Getty Images)
 
 ![](20241210_CornwallSnow_1920x1080.jpg)

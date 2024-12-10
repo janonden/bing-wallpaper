@@ -1,3 +1,7 @@
+#### 20241211 拉瓦雷多三峰山,意大利 (© Daniel Maran/Getty Images)
+
+![](images/2024-12/20241211_DolomitesSky_1920x1080.jpg)
+
 #### 20241210 The Cornish Coast Path covered in snow, Land's End, Cornwall, England (© Josef FitzGerald-Patrick/Getty Images)
 
 ![](images/2024-12/20241210_CornwallSnow_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20241203 Sattais Katcheri (Court of 27 Pillars), Amber Fort, Rajasthan, India (© Yury Taranik/Shutterstock)
 
 ![](images/2024-12/20241203_JaipurFort_1920x1080.jpg)
-
-#### 20241203 花火と豪華な山車,埼玉県 秩父市 (© ASSOCIATED PRESS/AP)
-
-![](images/2024-12/20241203_ChichibuFestival_1920x1080.jpg)
 
 
 
