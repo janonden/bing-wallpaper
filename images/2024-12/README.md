@@ -1,4 +1,4 @@
-#### 20241210 被雪覆盖的康沃尔天涯海角小径，康沃尔郡兰德恩德，英格兰 (© Josef FitzGerald-Patrick/Getty Images)
+#### 20241210 The Cornish Coast Path covered in snow, Land's End, Cornwall, England (© Josef FitzGerald-Patrick/Getty Images)
 
 ![](20241210_CornwallSnow_1920x1080.jpg)
 
