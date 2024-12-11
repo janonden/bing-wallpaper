@@ -1,4 +1,4 @@
-#### 20241211 拉瓦雷多三峰山,意大利 (© Daniel Maran/Getty Images)
+#### 20241211 Tre Cime di Lavaredo, Sexten Dolomites, Italy (© Daniel Maran/Getty Images)
 
 ![](20241211_DolomitesSky_1920x1080.jpg)
 
