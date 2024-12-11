@@ -1,3 +1,7 @@
+#### 20241212 一品红或圣诞花 (© David Hosking/NPL/Minden Pictures)
+
+![](20241212_WildPoinsettia_1920x1080.jpg)
+
 #### 20241211 Tre Cime di Lavaredo, Sexten Dolomites, Italy (© Daniel Maran/Getty Images)
 
 ![](20241211_DolomitesSky_1920x1080.jpg)

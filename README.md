@@ -1,3 +1,7 @@
+#### 20241212 一品红或圣诞花 (© David Hosking/NPL/Minden Pictures)
+
+![](images/2024-12/20241212_WildPoinsettia_1920x1080.jpg)
+
 #### 20241211 Tre Cime di Lavaredo, Sexten Dolomites, Italy (© Daniel Maran/Getty Images)
 
 ![](images/2024-12/20241211_DolomitesSky_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20241204 Male white rhinoceroses, Lake Nakuru, Kenya (© Ingo Arndt/Minden Pictures)
 
 ![](images/2024-12/20241204_RhinosKenya_1920x1080.jpg)
-
-#### 20241203 Sattais Katcheri (Court of 27 Pillars), Amber Fort, Rajasthan, India (© Yury Taranik/Shutterstock)
-
-![](images/2024-12/20241203_JaipurFort_1920x1080.jpg)
 
 
 
