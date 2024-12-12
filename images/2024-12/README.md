@@ -1,3 +1,7 @@
+#### 20241213 圣诞市场，圣斯蒂芬大教堂，布达佩斯，匈牙利 (© Calin Stan/Shutterstock)
+
+![](20241213_ChristmasBudapest_1920x1080.jpg)
+
 #### 20241212 Wild poinsettia (aka Christmas flower) (© David Hosking/NPL/Minden Pictures)
 
 ![](20241212_WildPoinsettia_1920x1080.jpg)

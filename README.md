@@ -1,3 +1,7 @@
+#### 20241213 圣诞市场，圣斯蒂芬大教堂，布达佩斯，匈牙利 (© Calin Stan/Shutterstock)
+
+![](images/2024-12/20241213_ChristmasBudapest_1920x1080.jpg)
+
 #### 20241212 Wild poinsettia (aka Christmas flower) (© David Hosking/NPL/Minden Pictures)
 
 ![](images/2024-12/20241212_WildPoinsettia_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20241206 Maisons traditionnelles alsaciennes à colombages et rivière Lauch Colmar, Alsace (© KavalenkavaVolha/Getty Images)
 
 ![](images/2024-12/20241206_ColmarHoliday_1920x1080.jpg)
-
-#### 20241205 Tufa formations in Mono Lake, California (© Susanna Patras/TANDEM Stills + Motion)
-
-![](images/2024-12/20241205_MonoTufa_1920x1080.jpg)
 
 
 
