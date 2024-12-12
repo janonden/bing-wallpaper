@@ -2,6 +2,10 @@
 
 ![](20241212_WildPoinsettia_1920x1080.jpg)
 
+#### 20241212 Gefrorener See bei Wintersonnenaufgang, Deutschland (© Marc_Osborne/Getty Images)
+
+![](20241212_FrozenLakebyWintrySunrise_1920x1080.jpg)
+
 #### 20241211 Tre Cime di Lavaredo, Sexten Dolomites, Italy (© Daniel Maran/Getty Images)
 
 ![](20241211_DolomitesSky_1920x1080.jpg)

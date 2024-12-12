@@ -2,6 +2,10 @@
 
 ![](images/2024-12/20241212_WildPoinsettia_1920x1080.jpg)
 
+#### 20241212 Gefrorener See bei Wintersonnenaufgang, Deutschland (© Marc_Osborne/Getty Images)
+
+![](images/2024-12/20241212_FrozenLakebyWintrySunrise_1920x1080.jpg)
+
 #### 20241211 Tre Cime di Lavaredo, Sexten Dolomites, Italy (© Daniel Maran/Getty Images)
 
 ![](images/2024-12/20241211_DolomitesSky_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20241205 Tufa formations in Mono Lake, California (© Susanna Patras/TANDEM Stills + Motion)
 
 ![](images/2024-12/20241205_MonoTufa_1920x1080.jpg)
-
-#### 20241204 Male white rhinoceroses, Lake Nakuru, Kenya (© Ingo Arndt/Minden Pictures)
-
-![](images/2024-12/20241204_RhinosKenya_1920x1080.jpg)
 
 
 
