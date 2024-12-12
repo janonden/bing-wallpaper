@@ -1,4 +1,4 @@
-#### 20241212 一品红或圣诞花 (© David Hosking/NPL/Minden Pictures)
+#### 20241212 Wild poinsettia (aka Christmas flower) (© David Hosking/NPL/Minden Pictures)
 
 ![](images/2024-12/20241212_WildPoinsettia_1920x1080.jpg)
 
