@@ -1,4 +1,4 @@
-#### 20241214 猛鸮，加拿大 (© pchoui/Getty Images)
+#### 20241214 Northern hawk-owl, Canada (© pchoui/Getty Images)
 
 ![](20241214_NorthernHawkOwl_1920x1080.jpg)
 
