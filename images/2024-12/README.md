@@ -1,3 +1,7 @@
+#### 20241215 米苏里纳湖，多洛米蒂山脉，意大利 (© Marco Bottigelli/Getty Images)
+
+![](20241215_MisurinaLake_1920x1080.jpg)
+
 #### 20241214 Northern hawk-owl, Canada (© pchoui/Getty Images)
 
 ![](20241214_NorthernHawkOwl_1920x1080.jpg)

@@ -1,3 +1,7 @@
+#### 20241215 米苏里纳湖，多洛米蒂山脉，意大利 (© Marco Bottigelli/Getty Images)
+
+![](images/2024-12/20241215_MisurinaLake_1920x1080.jpg)
+
 #### 20241214 Northern hawk-owl, Canada (© pchoui/Getty Images)
 
 ![](images/2024-12/20241214_NorthernHawkOwl_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20241207 里约热内卢州的阿拉亚尔多卡博，巴西 (© Derson Santana/Shutterstock)
 
 ![](images/2024-12/20241207_ArraialdoCabo_1920x1080.jpg)
-
-#### 20241206 Old Town in Helsinki, Finland (© Oleksiy Mark/Shutterstock)
-
-![](images/2024-12/20241206_HelsinkiDusk_1920x1080.jpg)
 
 
 
