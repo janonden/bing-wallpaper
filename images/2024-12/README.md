@@ -2,6 +2,10 @@
 
 ![](20241214_NorthernHawkOwl_1920x1080.jpg)
 
+#### 20241214 Lynx de Boréal perché dans un arbre, France (© Marc Chesneau/Getty Images)
+
+![](20241214_LynxTree_1920x1080.jpg)
+
 #### 20241213 Christmas market, St. Stephen's Basilica, Budapest, Hungary (© Calin Stan/Shutterstock)
 
 ![](20241213_ChristmasBudapest_1920x1080.jpg)

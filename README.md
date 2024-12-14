@@ -2,6 +2,10 @@
 
 ![](images/2024-12/20241214_NorthernHawkOwl_1920x1080.jpg)
 
+#### 20241214 Lynx de Boréal perché dans un arbre, France (© Marc Chesneau/Getty Images)
+
+![](images/2024-12/20241214_LynxTree_1920x1080.jpg)
+
 #### 20241213 Christmas market, St. Stephen's Basilica, Budapest, Hungary (© Calin Stan/Shutterstock)
 
 ![](images/2024-12/20241213_ChristmasBudapest_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20241206 Old Town in Helsinki, Finland (© Oleksiy Mark/Shutterstock)
 
 ![](images/2024-12/20241206_HelsinkiDusk_1920x1080.jpg)
-
-#### 20241206 鸟瞰冰封的大海和悬崖上的灯塔，大连泊霞湾公园，辽宁省，中国 (© zhengshun tang/Getty Images)
-
-![](images/2024-12/20241206_GreaterSnow_1920x1080.jpg)
 
 
 
