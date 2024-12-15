@@ -1,3 +1,7 @@
+#### 20241216 萨尔茨堡，奥地利 (© bluejayphoto/Getty Images)
+
+![](20241216_SalzburgSnow_1920x1080.jpg)
+
 #### 20241215 Lake Misurina, Dolomites, Italy (© Marco Bottigelli/Getty Images)
 
 ![](20241215_MisurinaLake_1920x1080.jpg)

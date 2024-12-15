@@ -1,3 +1,7 @@
+#### 20241216 萨尔茨堡，奥地利 (© bluejayphoto/Getty Images)
+
+![](images/2024-12/20241216_SalzburgSnow_1920x1080.jpg)
+
 #### 20241215 Lake Misurina, Dolomites, Italy (© Marco Bottigelli/Getty Images)
 
 ![](images/2024-12/20241215_MisurinaLake_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20241207 雪化粧の五稜郭, 北海道 函館 (© Hiro1775/Getty Images)
 
 ![](images/2024-12/20241207_Daxue_1920x1080.jpg)
-
-#### 20241207 里约热内卢州的阿拉亚尔多卡博，巴西 (© Derson Santana/Shutterstock)
-
-![](images/2024-12/20241207_ArraialdoCabo_1920x1080.jpg)
 
 
 
