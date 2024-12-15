@@ -1,4 +1,4 @@
-#### 20241215 米苏里纳湖，多洛米蒂山脉，意大利 (© Marco Bottigelli/Getty Images)
+#### 20241215 Lake Misurina, Dolomites, Italy (© Marco Bottigelli/Getty Images)
 
 ![](images/2024-12/20241215_MisurinaLake_1920x1080.jpg)
 
