@@ -1,3 +1,7 @@
+#### 20241217 传统红色渔民小屋，雷讷峡湾岸边，挪威 (© Pilat666/Getty Images)
+
+![](images/2024-12/20241217_ReinefjordenNorway_1920x1080.jpg)
+
 #### 20241216 Salzburg, Austria (© bluejayphoto/Getty Images)
 
 ![](images/2024-12/20241216_SalzburgSnow_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20241207 Pearl Harbor Memorial Bridge, New Haven, Connecticut (© Enzo Figueres/Getty Images)
 
 ![](images/2024-12/20241207_NewHavenBridge_1920x1080.jpg)
-
-#### 20241207 雪化粧の五稜郭, 北海道 函館 (© Hiro1775/Getty Images)
-
-![](images/2024-12/20241207_Daxue_1920x1080.jpg)
 
 
 
