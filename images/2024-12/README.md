@@ -1,4 +1,4 @@
-#### 20241216 萨尔茨堡，奥地利 (© bluejayphoto/Getty Images)
+#### 20241216 Salzburg, Austria (© bluejayphoto/Getty Images)
 
 ![](20241216_SalzburgSnow_1920x1080.jpg)
 
