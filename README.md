@@ -1,4 +1,4 @@
-#### 20241217 传统红色渔民小屋，雷讷峡湾岸边，挪威 (© Pilat666/Getty Images)
+#### 20241217 Traditional red fishermen's cabins on the shore of Reinefjorden, Norway (© Pilat666/Getty Images)
 
 ![](images/2024-12/20241217_ReinefjordenNorway_1920x1080.jpg)
 
