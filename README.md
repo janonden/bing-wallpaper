@@ -1,3 +1,11 @@
+#### 20241218 くるみ割り人形 (© Caroline Holden/Alamy)
+
+![](images/2024-12/20241218_NutcrackerBallet_1920x1080.jpg)
+
+#### 20241218 印度吉姆科比特国家公园的大象，印度 (© ABHILASH VISWA PICASSO/Shutterstock)
+
+![](images/2024-12/20241218_MorningElephants_1920x1080.jpg)
+
 #### 20241217 Traditional red fishermen's cabins on the shore of Reinefjorden, Norway (© Pilat666/Getty Images)
 
 ![](images/2024-12/20241217_ReinefjordenNorway_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20241208 Notre-Dame Cathedral, Paris, France (© Julien Fromentin/Getty Images)
 
 ![](images/2024-12/20241208_ReopeningNotreDame_1920x1080.jpg)
-
-#### 20241207 Lake Ontario in the winter season, Toronto (© Brendan Riley/Shutterstock)
-
-![](images/2024-12/20241207_TorontoWinterSkyline_1920x1080.jpg)
-
-#### 20241207 Pearl Harbor Memorial Bridge, New Haven, Connecticut (© Enzo Figueres/Getty Images)
-
-![](images/2024-12/20241207_NewHavenBridge_1920x1080.jpg)
 
 
 

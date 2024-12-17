@@ -1,3 +1,11 @@
+#### 20241218 くるみ割り人形 (© Caroline Holden/Alamy)
+
+![](20241218_NutcrackerBallet_1920x1080.jpg)
+
+#### 20241218 印度吉姆科比特国家公园的大象，印度 (© ABHILASH VISWA PICASSO/Shutterstock)
+
+![](20241218_MorningElephants_1920x1080.jpg)
+
 #### 20241217 Traditional red fishermen's cabins on the shore of Reinefjorden, Norway (© Pilat666/Getty Images)
 
 ![](20241217_ReinefjordenNorway_1920x1080.jpg)
