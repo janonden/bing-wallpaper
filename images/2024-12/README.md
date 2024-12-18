@@ -1,3 +1,7 @@
+#### 20241219 锡比乌圣诞市场，罗马尼亚 (© Calin Stan/Alamy Stock Photo)
+
+![](20241219_SibiuRomania_1920x1080.jpg)
+
 #### 20241218 English National Ballet performing 'The Nutcracker' (© Caroline Holden/Alamy)
 
 ![](20241218_NutcrackerBallet_1920x1080.jpg)

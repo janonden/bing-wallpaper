@@ -1,3 +1,7 @@
+#### 20241219 锡比乌圣诞市场，罗马尼亚 (© Calin Stan/Alamy Stock Photo)
+
+![](images/2024-12/20241219_SibiuRomania_1920x1080.jpg)
+
 #### 20241218 English National Ballet performing 'The Nutcracker' (© Caroline Holden/Alamy)
 
 ![](images/2024-12/20241218_NutcrackerBallet_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20241209 Guanacos, Torres del Paine National Park, Chile (© Floris van Breugel/NPL/Minden Pictures)
 
 ![](images/2024-12/20241209_GuanacosChile_1920x1080.jpg)
-
-#### 20241208 Notre-Dame Cathedral, Paris, France (© Julien Fromentin/Getty Images)
-
-![](images/2024-12/20241208_ReopeningNotreDame_1920x1080.jpg)
 
 
 
