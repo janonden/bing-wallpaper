@@ -1,4 +1,4 @@
-#### 20241218 くるみ割り人形 (© Caroline Holden/Alamy)
+#### 20241218 English National Ballet performing 'The Nutcracker' (© Caroline Holden/Alamy)
 
 ![](images/2024-12/20241218_NutcrackerBallet_1920x1080.jpg)
 
