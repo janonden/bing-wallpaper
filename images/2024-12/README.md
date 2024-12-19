@@ -1,3 +1,7 @@
+#### 20241220 罗瓦涅米圣诞老人村，拉普兰，芬兰 (© Smelov/Shutterstock)
+
+![](20241220_SantaClausVillage_1920x1080.jpg)
+
 #### 20241219 Christmas market in Sibiu, Romania (© Calin Stan/Alamy)
 
 ![](20241219_SibiuRomania_1920x1080.jpg)

@@ -1,3 +1,7 @@
+#### 20241220 罗瓦涅米圣诞老人村，拉普兰，芬兰 (© Smelov/Shutterstock)
+
+![](images/2024-12/20241220_SantaClausVillage_1920x1080.jpg)
+
 #### 20241219 Christmas market in Sibiu, Romania (© Calin Stan/Alamy)
 
 ![](images/2024-12/20241219_SibiuRomania_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20241209 Corals and the lagoon of Mo'orea in French Polynesia (© bru_greg/Getty Images)
 
 ![](images/2024-12/20241209_Moorea_1920x1080.jpg)
-
-#### 20241209 Guanacos, Torres del Paine National Park, Chile (© Floris van Breugel/NPL/Minden Pictures)
-
-![](images/2024-12/20241209_GuanacosChile_1920x1080.jpg)
 
 
 
