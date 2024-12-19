@@ -1,4 +1,4 @@
-#### 20241219 锡比乌圣诞市场，罗马尼亚 (© Calin Stan/Alamy Stock Photo)
+#### 20241219 Christmas market in Sibiu, Romania (© Calin Stan/Alamy)
 
 ![](images/2024-12/20241219_SibiuRomania_1920x1080.jpg)
 
