@@ -1,3 +1,11 @@
+#### 20241221 满拉水库的雪景，日喀则，中国西藏自治区 (© Zhang Zhenqi/VCG via Getty Images)
+
+![](20241221_WinterSolstice_1920x1080.jpg)
+
+#### 20241221 ライトアップされた青い池, 北海道 美瑛町 (© Sean Pavone/Alamy Stock Photo)
+
+![](20241221_BluePond_1920x1080.jpg)
+
 #### 20241220 Santa Claus Village in Rovaniemi, Lapland, Finland (© Smelov/Shutterstock)
 
 ![](20241220_SantaClausVillage_1920x1080.jpg)

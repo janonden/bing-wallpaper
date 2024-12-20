@@ -1,3 +1,11 @@
+#### 20241221 满拉水库的雪景，日喀则，中国西藏自治区 (© Zhang Zhenqi/VCG via Getty Images)
+
+![](images/2024-12/20241221_WinterSolstice_1920x1080.jpg)
+
+#### 20241221 ライトアップされた青い池, 北海道 美瑛町 (© Sean Pavone/Alamy Stock Photo)
+
+![](images/2024-12/20241221_BluePond_1920x1080.jpg)
+
 #### 20241220 Santa Claus Village in Rovaniemi, Lapland, Finland (© Smelov/Shutterstock)
 
 ![](images/2024-12/20241220_SantaClausVillage_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20241211 Tre Cime di Lavaredo, Sexten Dolomites, Italy (© Daniel Maran/Getty Images)
 
 ![](images/2024-12/20241211_DolomitesSky_1920x1080.jpg)
-
-#### 20241210 The Cornish Coast Path covered in snow, Land's End, Cornwall, England (© Josef FitzGerald-Patrick/Getty Images)
-
-![](images/2024-12/20241210_CornwallSnow_1920x1080.jpg)
-
-#### 20241209 Corals and the lagoon of Mo'orea in French Polynesia (© bru_greg/Getty Images)
-
-![](images/2024-12/20241209_Moorea_1920x1080.jpg)
 
 
 
