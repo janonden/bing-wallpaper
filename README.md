@@ -1,3 +1,11 @@
+#### 20241222 釧路湿原のタンチョウ, 北海道 (© Wirestock, Inc./Alamy)
+
+![](images/2024-12/20241222_FestivusCranes_1920x1080.jpg)
+
+#### 20241222 水晶码头的圣诞树，太平洋海滩，加利福尼亚州，美国 (© SamAntonioPhotography/Getty Images)
+
+![](images/2024-12/20241222_CrystalPier_1920x1080.jpg)
+
 #### 20241221 满拉水库的雪景，日喀则，中国西藏自治区 (© Zhang Zhenqi/VCG via Getty Images)
 
 ![](images/2024-12/20241221_WinterSolstice_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20241214 Lynx de Boréal perché dans un arbre, France (© Marc Chesneau/Getty Images)
 
 ![](images/2024-12/20241214_LynxTree_1920x1080.jpg)
-
-#### 20241213 Christmas market, St. Stephen's Basilica, Budapest, Hungary (© Calin Stan/Shutterstock)
-
-![](images/2024-12/20241213_ChristmasBudapest_1920x1080.jpg)
-
-#### 20241212 Wild poinsettia (aka Christmas flower) (© David Hosking/NPL/Minden Pictures)
-
-![](images/2024-12/20241212_WildPoinsettia_1920x1080.jpg)
 
 
 
