@@ -2,6 +2,10 @@
 
 ![](20241221_WinterSolstice_1920x1080.jpg)
 
+#### 20241221 Halo um die Sonne, Erzgebirge, Sachsen, Deutschland (© Martin Ruegner/Getty Images)
+
+![](20241221_SolsticeHalo_1920x1080.jpg)
+
 #### 20241221 ライトアップされた青い池, 北海道 美瑛町 (© Sean Pavone/Alamy Stock Photo)
 
 ![](20241221_BluePond_1920x1080.jpg)

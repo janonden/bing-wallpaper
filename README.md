@@ -2,6 +2,10 @@
 
 ![](images/2024-12/20241221_WinterSolstice_1920x1080.jpg)
 
+#### 20241221 Halo um die Sonne, Erzgebirge, Sachsen, Deutschland (© Martin Ruegner/Getty Images)
+
+![](images/2024-12/20241221_SolsticeHalo_1920x1080.jpg)
+
 #### 20241221 ライトアップされた青い池, 北海道 美瑛町 (© Sean Pavone/Alamy Stock Photo)
 
 ![](images/2024-12/20241221_BluePond_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20241212 Gefrorener See bei Wintersonnenaufgang, Deutschland (© Marc_Osborne/Getty Images)
 
 ![](images/2024-12/20241212_FrozenLakebyWintrySunrise_1920x1080.jpg)
-
-#### 20241211 Tre Cime di Lavaredo, Sexten Dolomites, Italy (© Daniel Maran/Getty Images)
-
-![](images/2024-12/20241211_DolomitesSky_1920x1080.jpg)
 
 
 
