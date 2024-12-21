@@ -10,6 +10,10 @@
 
 ![](images/2024-12/20241221_BluePond_1920x1080.jpg)
 
+#### 20241221 Loisach River at Lake Kochelsee, Bavaria, Germany (© Christian Back/eStock Photo)
+
+![](images/2024-12/20241221_BavarianWinter_1920x1080.jpg)
+
 #### 20241220 Santa Claus Village in Rovaniemi, Lapland, Finland (© Smelov/Shutterstock)
 
 ![](images/2024-12/20241220_SantaClausVillage_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20241212 Wild poinsettia (aka Christmas flower) (© David Hosking/NPL/Minden Pictures)
 
 ![](images/2024-12/20241212_WildPoinsettia_1920x1080.jpg)
-
-#### 20241212 Gefrorener See bei Wintersonnenaufgang, Deutschland (© Marc_Osborne/Getty Images)
-
-![](images/2024-12/20241212_FrozenLakebyWintrySunrise_1920x1080.jpg)
 
 
 

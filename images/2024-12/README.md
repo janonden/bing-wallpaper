@@ -10,6 +10,10 @@
 
 ![](20241221_BluePond_1920x1080.jpg)
 
+#### 20241221 Loisach River at Lake Kochelsee, Bavaria, Germany (© Christian Back/eStock Photo)
+
+![](20241221_BavarianWinter_1920x1080.jpg)
+
 #### 20241220 Santa Claus Village in Rovaniemi, Lapland, Finland (© Smelov/Shutterstock)
 
 ![](20241220_SantaClausVillage_1920x1080.jpg)
