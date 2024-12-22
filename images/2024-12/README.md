@@ -1,3 +1,7 @@
+#### 20241223 けやき坂のイルミネーション, 東京 (© Kinsei-TGS/Getty Images)
+
+![](20241223_TokyoTower_1920x1080.jpg)
+
 #### 20241222 Adventskranz, 4. Advent (© Asvolas/Getty Images)
 
 ![](20241222_GermanyAdventWreath_1920x1080.jpg)

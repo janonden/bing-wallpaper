@@ -1,3 +1,7 @@
+#### 20241223 けやき坂のイルミネーション, 東京 (© Kinsei-TGS/Getty Images)
+
+![](images/2024-12/20241223_TokyoTower_1920x1080.jpg)
+
 #### 20241222 Adventskranz, 4. Advent (© Asvolas/Getty Images)
 
 ![](images/2024-12/20241222_GermanyAdventWreath_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20241215 Lake Misurina, Dolomites, Italy (© Marco Bottigelli/Getty Images)
 
 ![](images/2024-12/20241215_MisurinaLake_1920x1080.jpg)
-
-#### 20241214 Northern hawk-owl, Canada (© pchoui/Getty Images)
-
-![](images/2024-12/20241214_NorthernHawkOwl_1920x1080.jpg)
 
 
 
