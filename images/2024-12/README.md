@@ -1,3 +1,7 @@
+#### 20241222 Adventskranz, 4. Advent (© Asvolas/Getty Images)
+
+![](20241222_GermanyAdventWreath_1920x1080.jpg)
+
 #### 20241222 釧路湿原のタンチョウ, 北海道 (© Wirestock, Inc./Alamy)
 
 ![](20241222_FestivusCranes_1920x1080.jpg)
