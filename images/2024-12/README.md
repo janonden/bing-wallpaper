@@ -6,7 +6,7 @@
 
 ![](20241222_FestivusCranes_1920x1080.jpg)
 
-#### 20241222 水晶码头的圣诞树，太平洋海滩，加利福尼亚州，美国 (© SamAntonioPhotography/Getty Images)
+#### 20241222 Christmas tree at Crystal Pier, Pacific Beach, San Diego, California (© SamAntonioPhotography/Getty Images)
 
 ![](20241222_CrystalPier_1920x1080.jpg)
 
