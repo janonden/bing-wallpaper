@@ -6,7 +6,7 @@
 
 ![](20241222_GermanyAdventWreath_1920x1080.jpg)
 
-#### 20241222 釧路湿原のタンチョウ, 北海道 (© Wirestock, Inc./Alamy)
+#### 20241222 Red-crowned cranes in Kushiro, Hokkaido, Japan (© Wirestock, Inc./Alamy)
 
 ![](20241222_FestivusCranes_1920x1080.jpg)
 
