@@ -1,3 +1,7 @@
+#### 20241224 德国圣诞市场 (© Cyril Gosselin/Getty Images)
+
+![](20241224_SantaSnowglobe_1920x1080.jpg)
+
 #### 20241223 けやき坂のイルミネーション, 東京 (© Kinsei-TGS/Getty Images)
 
 ![](20241223_TokyoTower_1920x1080.jpg)
