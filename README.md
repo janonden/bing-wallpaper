@@ -1,4 +1,8 @@
-#### 20241224 德国圣诞市场 (© Cyril Gosselin/Getty Images)
+#### 20241225 Half-timbered Houses of Freudenberg, North Rhine-Westphalia, Germany (© Thorsten Frisch/Shutterstock)
+
+![](images/2024-12/20241225_FreudenbergHistoricHouses_1920x1080.jpg)
+
+#### 20241224 Christmas market scene in Germany (© Cyril Gosselin/Getty Images)
 
 ![](images/2024-12/20241224_SantaSnowglobe_1920x1080.jpg)
 
@@ -53,10 +57,6 @@
 #### 20241217 Traditional red fishermen's cabins on the shore of Reinefjorden, Norway (© Pilat666/Getty Images)
 
 ![](images/2024-12/20241217_ReinefjordenNorway_1920x1080.jpg)
-
-#### 20241216 Salzburg, Austria (© bluejayphoto/Getty Images)
-
-![](images/2024-12/20241216_SalzburgSnow_1920x1080.jpg)
 
 
 

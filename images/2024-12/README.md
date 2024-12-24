@@ -1,4 +1,8 @@
-#### 20241224 德国圣诞市场 (© Cyril Gosselin/Getty Images)
+#### 20241225 Half-timbered Houses of Freudenberg, North Rhine-Westphalia, Germany (© Thorsten Frisch/Shutterstock)
+
+![](20241225_FreudenbergHistoricHouses_1920x1080.jpg)
+
+#### 20241224 Christmas market scene in Germany (© Cyril Gosselin/Getty Images)
 
 ![](20241224_SantaSnowglobe_1920x1080.jpg)
 
