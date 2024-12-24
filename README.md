@@ -1,6 +1,14 @@
+#### 20241225 スヴァールバル諸島のトナカイ, ノルウェー (© Martin Zwick/REDA&CO/Universal Images Group via Getty Images)
+
+![](images/2024-12/20241225_ReindeerTrio_1920x1080.jpg)
+
 #### 20241225 Half-timbered Houses of Freudenberg, North Rhine-Westphalia, Germany (© Thorsten Frisch/Shutterstock)
 
 ![](images/2024-12/20241225_FreudenbergHistoricHouses_1920x1080.jpg)
+
+#### 20241225 科瓦东加湖，阿斯图里亚斯，西班牙 (© Carlos Fernandez/Getty Images)
+
+![](images/2024-12/20241225_CovadongaWinter_1920x1080.jpg)
 
 #### 20241224 Christmas market scene in Germany (© Cyril Gosselin/Getty Images)
 
@@ -49,14 +57,6 @@
 #### 20241218 English National Ballet performing 'The Nutcracker' (© Caroline Holden/Alamy)
 
 ![](images/2024-12/20241218_NutcrackerBallet_1920x1080.jpg)
-
-#### 20241218 印度吉姆科比特国家公园的大象，印度 (© ABHILASH VISWA PICASSO/Shutterstock)
-
-![](images/2024-12/20241218_MorningElephants_1920x1080.jpg)
-
-#### 20241217 Traditional red fishermen's cabins on the shore of Reinefjorden, Norway (© Pilat666/Getty Images)
-
-![](images/2024-12/20241217_ReinefjordenNorway_1920x1080.jpg)
 
 
 

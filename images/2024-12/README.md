@@ -1,6 +1,14 @@
+#### 20241225 スヴァールバル諸島のトナカイ, ノルウェー (© Martin Zwick/REDA&CO/Universal Images Group via Getty Images)
+
+![](20241225_ReindeerTrio_1920x1080.jpg)
+
 #### 20241225 Half-timbered Houses of Freudenberg, North Rhine-Westphalia, Germany (© Thorsten Frisch/Shutterstock)
 
 ![](20241225_FreudenbergHistoricHouses_1920x1080.jpg)
+
+#### 20241225 科瓦东加湖，阿斯图里亚斯，西班牙 (© Carlos Fernandez/Getty Images)
+
+![](20241225_CovadongaWinter_1920x1080.jpg)
 
 #### 20241224 Christmas market scene in Germany (© Cyril Gosselin/Getty Images)
 
