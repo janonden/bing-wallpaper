@@ -1,3 +1,7 @@
+#### 20241226 莫斯霍尔港的圣诞灯饰，康沃尔，英格兰 (© ianwool/Getty Images)
+
+![](images/2024-12/20241226_MouseholeXmas_1920x1080.jpg)
+
 #### 20241225 Svalbard reindeer in Van Mijenfjorden NP, Norway (© Martin Zwick/REDA&CO/Universal Images Group via Getty Images)
 
 ![](images/2024-12/20241225_ReindeerTrio_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20241220 Santa Claus Village in Rovaniemi, Lapland, Finland (© Smelov/Shutterstock)
 
 ![](images/2024-12/20241220_SantaClausVillage_1920x1080.jpg)
-
-#### 20241219 Christmas market in Sibiu, Romania (© Calin Stan/Alamy)
-
-![](images/2024-12/20241219_SibiuRomania_1920x1080.jpg)
 
 
 

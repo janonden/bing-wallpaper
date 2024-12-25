@@ -1,3 +1,7 @@
+#### 20241226 莫斯霍尔港的圣诞灯饰，康沃尔，英格兰 (© ianwool/Getty Images)
+
+![](20241226_MouseholeXmas_1920x1080.jpg)
+
 #### 20241225 Svalbard reindeer in Van Mijenfjorden NP, Norway (© Martin Zwick/REDA&CO/Universal Images Group via Getty Images)
 
 ![](20241225_ReindeerTrio_1920x1080.jpg)
