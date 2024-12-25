@@ -1,4 +1,4 @@
-#### 20241225 スヴァールバル諸島のトナカイ, ノルウェー (© Martin Zwick/REDA&CO/Universal Images Group via Getty Images)
+#### 20241225 Svalbard reindeer in Van Mijenfjorden NP, Norway (© Martin Zwick/REDA&CO/Universal Images Group via Getty Images)
 
 ![](20241225_ReindeerTrio_1920x1080.jpg)
 
@@ -9,6 +9,10 @@
 #### 20241225 科瓦东加湖，阿斯图里亚斯，西班牙 (© Carlos Fernandez/Getty Images)
 
 ![](20241225_CovadongaWinter_1920x1080.jpg)
+
+#### 20241225 Christmas trees with the Three Sisters mountain in the background, Canmore, Alberta (© Nick Fitzhardinge/Moment/Getty Images)
+
+![](20241225_Christmas_1920x1080.jpg)
 
 #### 20241224 Christmas market scene in Germany (© Cyril Gosselin/Getty Images)
 
