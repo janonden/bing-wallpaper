@@ -2,9 +2,13 @@
 
 ![](20241226_PointeDiable_1920x1080.jpg)
 
-#### 20241226 莫斯霍尔港的圣诞灯饰，康沃尔，英格兰 (© ianwool/Getty Images)
+#### 20241226 Christmas lights at Mousehole Harbour, Cornwall, England (© ianwool/Getty Images)
 
 ![](20241226_MouseholeXmas_1920x1080.jpg)
+
+#### 20241226 Gastown steam clock in Vancouver, British Columbia, Canada (© J Duquette/iStock/Getty Images)
+
+![](20241226_BoxingDay_1920x1080.jpg)
 
 #### 20241225 Svalbard reindeer in Van Mijenfjorden NP, Norway (© Martin Zwick/REDA&CO/Universal Images Group via Getty Images)
 
