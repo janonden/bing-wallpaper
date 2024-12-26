@@ -1,3 +1,7 @@
+#### 20241226 Pointe du Diable, Saint Pierre, Parc national de la Réunion (© MONTICO Lionel/Hemis/Alamy Stock Photo)
+
+![](20241226_PointeDiable_1920x1080.jpg)
+
 #### 20241226 莫斯霍尔港的圣诞灯饰，康沃尔，英格兰 (© ianwool/Getty Images)
 
 ![](20241226_MouseholeXmas_1920x1080.jpg)
