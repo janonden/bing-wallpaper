@@ -1,3 +1,7 @@
+#### 20241227 布莱德湖，斯洛文尼亚 (© Kesu01/Getty Images)
+
+![](images/2024-12/20241227_LakeBledSnow_1920x1080.jpg)
+
 #### 20241226 Pointe du Diable, Saint Pierre, Parc national de la Réunion (© MONTICO Lionel/Hemis/Alamy Stock Photo)
 
 ![](images/2024-12/20241226_PointeDiable_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20241221 Halo um die Sonne, Erzgebirge, Sachsen, Deutschland (© Martin Ruegner/Getty Images)
 
 ![](images/2024-12/20241221_SolsticeHalo_1920x1080.jpg)
-
-#### 20241221 ライトアップされた青い池, 北海道 美瑛町 (© Sean Pavone/Alamy Stock Photo)
-
-![](images/2024-12/20241221_BluePond_1920x1080.jpg)
 
 
 
