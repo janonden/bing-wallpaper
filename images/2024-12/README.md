@@ -1,4 +1,4 @@
-#### 20241227 布莱德湖，斯洛文尼亚 (© Kesu01/Getty Images)
+#### 20241227 Lake Bled, Slovenia (© Kesu01/Getty Images)
 
 ![](20241227_LakeBledSnow_1920x1080.jpg)
 
