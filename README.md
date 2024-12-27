@@ -1,3 +1,7 @@
+#### 20241228 一只绿海龟在太平洋中游泳，法国海外属地新喀里多尼亚 (© Damsea/Shutterstock)
+
+![](images/2024-12/20241228_CoralTurtle_1920x1080.jpg)
+
 #### 20241227 Lake Bled, Slovenia (© Kesu01/Getty Images)
 
 ![](images/2024-12/20241227_LakeBledSnow_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20241221 满拉水库的雪景，日喀则，中国西藏自治区 (© Zhang Zhenqi/VCG via Getty Images)
 
 ![](images/2024-12/20241221_WinterSolstice_1920x1080.jpg)
-
-#### 20241221 Halo um die Sonne, Erzgebirge, Sachsen, Deutschland (© Martin Ruegner/Getty Images)
-
-![](images/2024-12/20241221_SolsticeHalo_1920x1080.jpg)
 
 
 
