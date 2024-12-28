@@ -1,4 +1,4 @@
-#### 20241228 一只绿海龟在太平洋中游泳，法国海外属地新喀里多尼亚 (© Damsea/Shutterstock)
+#### 20241228 A green sea turtle swims in the Pacific Ocean near the French special collectivity of New Caledonia (© Damsea/Shutterstock)
 
 ![](20241228_CoralTurtle_1920x1080.jpg)
 
