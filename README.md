@@ -1,3 +1,7 @@
+#### 20241229 婆罗浮屠大佛寺，爪哇岛，印度尼西亚 (© Robertharding/Shutterstock)
+
+![](images/2024-12/20241229_BorobudurBells_1920x1080.jpg)
+
 #### 20241228 A green sea turtle swims in the Pacific Ocean near the French special collectivity of New Caledonia (© Damsea/Shutterstock)
 
 ![](images/2024-12/20241228_CoralTurtle_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20241222 Christmas tree at Crystal Pier, Pacific Beach, San Diego, California (© SamAntonioPhotography/Getty Images)
 
 ![](images/2024-12/20241222_CrystalPier_1920x1080.jpg)
-
-#### 20241221 满拉水库的雪景，日喀则，中国西藏自治区 (© Zhang Zhenqi/VCG via Getty Images)
-
-![](images/2024-12/20241221_WinterSolstice_1920x1080.jpg)
 
 
 

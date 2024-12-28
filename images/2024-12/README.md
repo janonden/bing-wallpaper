@@ -1,3 +1,7 @@
+#### 20241229 婆罗浮屠大佛寺，爪哇岛，印度尼西亚 (© Robertharding/Shutterstock)
+
+![](20241229_BorobudurBells_1920x1080.jpg)
+
 #### 20241228 A green sea turtle swims in the Pacific Ocean near the French special collectivity of New Caledonia (© Damsea/Shutterstock)
 
 ![](20241228_CoralTurtle_1920x1080.jpg)
