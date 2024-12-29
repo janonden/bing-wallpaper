@@ -1,4 +1,4 @@
-#### 20241229 婆罗浮屠大佛寺，爪哇岛，印度尼西亚 (© Robertharding/Shutterstock)
+#### 20241229 Borobudur Temple, Java, Indonesia (© Robertharding/Shutterstock)
 
 ![](images/2024-12/20241229_BorobudurBells_1920x1080.jpg)
 
