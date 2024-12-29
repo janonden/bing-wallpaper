@@ -1,3 +1,7 @@
+#### 20241230 多布森湖附近的塔斯马尼亚雪胶和班达尼植物，费尔德山国家公园，塔斯马尼亚，澳大利亚 (© Whitworth Images/Getty Images)
+
+![](20241230_MountFieldNP_1920x1080.jpg)
+
 #### 20241229 Borobudur Temple, Java, Indonesia (© Robertharding/Shutterstock)
 
 ![](20241229_BorobudurBells_1920x1080.jpg)
