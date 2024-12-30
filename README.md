@@ -1,3 +1,11 @@
+#### 20241231 平等院の梵鐘, 京都 (© Asia Images Group LLC/Alamy Stock Photo)
+
+![](images/2024-12/20241231_Omisoka_1920x1080.jpg)
+
+#### 20241231 国会山上空的烟花，渥太华，加拿大 (© naibank/Getty Images)
+
+![](images/2024-12/20241231_CANYE_1920x1080.jpg)
+
 #### 20241230 Tasmanian snow gum and pandani plants near Lake Dobson, Mount Field National Park, Tasmania, Australia (© Whitworth Images/Getty Images)
 
 ![](images/2024-12/20241230_MountFieldNP_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20241223 けやき坂のイルミネーション, 東京 (© Kinsei-TGS/Getty Images)
 
 ![](images/2024-12/20241223_TokyoTower_1920x1080.jpg)
-
-#### 20241222 Adventskranz, 4. Advent (© Asvolas/Getty Images)
-
-![](images/2024-12/20241222_GermanyAdventWreath_1920x1080.jpg)
-
-#### 20241222 Red-crowned cranes in Kushiro, Hokkaido, Japan (© Wirestock, Inc./Alamy)
-
-![](images/2024-12/20241222_FestivusCranes_1920x1080.jpg)
 
 
 
