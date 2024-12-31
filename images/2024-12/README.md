@@ -1,3 +1,7 @@
+#### 20241231 Arc de Triomphe sous les feux d’artifice, Paris (© Kiran Ridley/Getty Images)
+
+![](20241231_ParisNewYearEve_1920x1080.jpg)
+
 #### 20241231 平等院の梵鐘, 京都 (© Asia Images Group LLC/Alamy Stock Photo)
 
 ![](20241231_Omisoka_1920x1080.jpg)
@@ -5,6 +9,10 @@
 #### 20241231 国会山上空的烟花，渥太华，加拿大 (© naibank/Getty Images)
 
 ![](20241231_CANYE_1920x1080.jpg)
+
+#### 20241231 Silvesterfeuerwerk über der Stadt Garmisch-Partenkirchen mit Blick auf die Zugspitzgruppe, Bayern (© Marc Hohenleitner/Huber/eStock Photo)
+
+![](20241231_BavariaNewYearsEveFireworks_1920x1080.jpg)
 
 #### 20241230 Tasmanian snow gum and pandani plants near Lake Dobson, Mount Field National Park, Tasmania, Australia (© Whitworth Images/Getty Images)
 
