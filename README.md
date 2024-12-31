@@ -1,3 +1,11 @@
+#### 20250101 朝日と白髭神社の鳥居, 滋賀県 高島市 (© Cavan Images/Alamy Stock Photo)
+
+![](images/2025-01/20250101_ShirahigeSunrise_1920x1080.jpg)
+
+#### 20250101 在北极玩耍的北极熊 (© Ondrej Prosicky/Shutterstock)
+
+![](images/2025-01/20250101_PolarBearSwim_1920x1080.jpg)
+
 #### 20241231 New Year's Eve fireworks over Copacabana Beach, Rio de Janeiro, Brazil (© Wagner Meier/Getty Images)
 
 ![](images/2024-12/20241231_RioNewYear_1920x1080.jpg)
@@ -50,14 +58,6 @@
 
 ![](images/2024-12/20241225_ReindeerTrio_1920x1080.jpg)
 
-#### 20241225 Half-timbered Houses of Freudenberg, North Rhine-Westphalia, Germany (© Thorsten Frisch/Shutterstock)
-
-![](images/2024-12/20241225_FreudenbergHistoricHouses_1920x1080.jpg)
-
-#### 20241225 科瓦东加湖，阿斯图里亚斯，西班牙 (© Carlos Fernandez/Getty Images)
-
-![](images/2024-12/20241225_CovadongaWinter_1920x1080.jpg)
-
 
 
 
@@ -65,6 +65,8 @@
 #### all wallpaper
 
 
+
+- 2025&emsp;&emsp;[01](images/2025-01/README.md) 
 
 - 2024&emsp;&emsp;[12](images/2024-12/README.md) &emsp;&emsp;[11](images/2024-11/README.md) &emsp;&emsp;[10](images/2024-10/README.md) &emsp;&emsp;[09](images/2024-09/README.md) &emsp;&emsp;[08](images/2024-08/README.md) &emsp;&emsp;[07](images/2024-07/README.md) &emsp;&emsp;[06](images/2024-06/README.md) &emsp;&emsp;[05](images/2024-05/README.md) &emsp;&emsp;[04](images/2024-04/README.md) &emsp;&emsp;[03](images/2024-03/README.md) &emsp;&emsp;[02](images/2024-02/README.md) &emsp;&emsp;[01](images/2024-01/README.md) 
 
