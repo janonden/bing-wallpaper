@@ -1,3 +1,7 @@
+#### 20241231 New Year's Eve fireworks over Copacabana Beach, Rio de Janeiro, Brazil (© Wagner Meier/Getty Images)
+
+![](images/2024-12/20241231_RioNewYear_1920x1080.jpg)
+
 #### 20241231 Arc de Triomphe sous les feux d’artifice, Paris (© Kiran Ridley/Getty Images)
 
 ![](images/2024-12/20241231_ParisNewYearEve_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20241225 科瓦东加湖，阿斯图里亚斯，西班牙 (© Carlos Fernandez/Getty Images)
 
 ![](images/2024-12/20241225_CovadongaWinter_1920x1080.jpg)
-
-#### 20241225 Christmas trees with the Three Sisters mountain in the background, Canmore, Alberta (© Nick Fitzhardinge/Moment/Getty Images)
-
-![](images/2024-12/20241225_Christmas_1920x1080.jpg)
 
 
 

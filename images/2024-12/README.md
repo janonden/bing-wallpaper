@@ -1,3 +1,7 @@
+#### 20241231 New Year's Eve fireworks over Copacabana Beach, Rio de Janeiro, Brazil (© Wagner Meier/Getty Images)
+
+![](20241231_RioNewYear_1920x1080.jpg)
+
 #### 20241231 Arc de Triomphe sous les feux d’artifice, Paris (© Kiran Ridley/Getty Images)
 
 ![](20241231_ParisNewYearEve_1920x1080.jpg)
