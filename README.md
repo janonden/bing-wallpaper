@@ -2,7 +2,7 @@
 
 ![](images/2025-01/20250101_ShirahigeSunrise_1920x1080.jpg)
 
-#### 20250101 在北极玩耍的北极熊 (© Ondrej Prosicky/Shutterstock)
+#### 20250101 Polar bears at play in the Arctic (© Ondrej Prosicky/Shutterstock)
 
 ![](images/2025-01/20250101_PolarBearSwim_1920x1080.jpg)
 
