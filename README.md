@@ -1,3 +1,11 @@
+#### 20250102 コセイインコ, インド カルナータカ州 (© Hira Punjabi/Alamy)
+
+![](images/2025-01/20250102_PlumParakeet_1920x1080.jpg)
+
+#### 20250102 阿尔德兹村上空的星轨，格劳宾登州，瑞士 (© Roberto Moiola/Getty Images)
+
+![](images/2025-01/20250102_ArdezSwitzerland_1920x1080.jpg)
+
 #### 20250101 朝日と白髭神社の鳥居, 滋賀県 高島市 (© Cavan Images/Alamy Stock Photo)
 
 ![](images/2025-01/20250101_ShirahigeSunrise_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20241226 Christmas lights at Mousehole Harbour, Cornwall, England (© ianwool/Getty Images)
 
 ![](images/2024-12/20241226_MouseholeXmas_1920x1080.jpg)
-
-#### 20241226 Gastown steam clock in Vancouver, British Columbia, Canada (© J Duquette/iStock/Getty Images)
-
-![](images/2024-12/20241226_BoxingDay_1920x1080.jpg)
-
-#### 20241225 Svalbard reindeer in Van Mijenfjorden NP, Norway (© Martin Zwick/REDA&CO/Universal Images Group via Getty Images)
-
-![](images/2024-12/20241225_ReindeerTrio_1920x1080.jpg)
 
 
 
