@@ -2,7 +2,7 @@
 
 ![](20250102_PlumParakeet_1920x1080.jpg)
 
-#### 20250102 阿尔德兹村上空的星轨，格劳宾登州，瑞士 (© Roberto Moiola/Getty Images)
+#### 20250102 Star trails over Ardez, Graubunden, Switzerland (© Roberto Moiola/Getty Images)
 
 ![](20250102_ArdezSwitzerland_1920x1080.jpg)
 
