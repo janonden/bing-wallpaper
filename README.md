@@ -6,6 +6,10 @@
 
 ![](images/2025-01/20250102_ArdezSwitzerland_1920x1080.jpg)
 
+#### 20250102 Montagne enneigée au coucher du soleil, Alpes françaises (© raeva/Getty Images)
+
+![](images/2025-01/20250102_AlpsSunset_1920x1080.jpg)
+
 #### 20250101 朝日と白髭神社の鳥居, 滋賀県 高島市 (© Cavan Images/Alamy Stock Photo)
 
 ![](images/2025-01/20250101_ShirahigeSunrise_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20241226 Pointe du Diable, Saint Pierre, Parc national de la Réunion (© MONTICO Lionel/Hemis/Alamy Stock Photo)
 
 ![](images/2024-12/20241226_PointeDiable_1920x1080.jpg)
-
-#### 20241226 Christmas lights at Mousehole Harbour, Cornwall, England (© ianwool/Getty Images)
-
-![](images/2024-12/20241226_MouseholeXmas_1920x1080.jpg)
 
 
 
