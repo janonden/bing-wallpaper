@@ -1,3 +1,7 @@
+#### 20250103 英国拉德克里夫图书馆和万灵学院，牛津大学，英格兰 (© atiger/Shutterstock)
+
+![](images/2025-01/20250103_TolkienOxford_1920x1080.jpg)
+
 #### 20250102 コセイインコ, インド カルナータカ州 (© Hira Punjabi/Alamy)
 
 ![](images/2025-01/20250102_PlumParakeet_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20241227 Lake Bled, Slovenia (© Kesu01/Getty Images)
 
 ![](images/2024-12/20241227_LakeBledSnow_1920x1080.jpg)
-
-#### 20241226 Pointe du Diable, Saint Pierre, Parc national de la Réunion (© MONTICO Lionel/Hemis/Alamy Stock Photo)
-
-![](images/2024-12/20241226_PointeDiable_1920x1080.jpg)
 
 
 

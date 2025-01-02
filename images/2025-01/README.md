@@ -1,3 +1,7 @@
+#### 20250103 英国拉德克里夫图书馆和万灵学院，牛津大学，英格兰 (© atiger/Shutterstock)
+
+![](20250103_TolkienOxford_1920x1080.jpg)
+
 #### 20250102 コセイインコ, インド カルナータカ州 (© Hira Punjabi/Alamy)
 
 ![](20250102_PlumParakeet_1920x1080.jpg)
