@@ -1,4 +1,4 @@
-#### 20250103 英国拉德克里夫图书馆和万灵学院，牛津大学，英格兰 (© atiger/Shutterstock)
+#### 20250103 The Radcliffe Camera and All Souls College, University of Oxford, England (© atiger/Shutterstock)
 
 ![](images/2025-01/20250103_TolkienOxford_1920x1080.jpg)
 
