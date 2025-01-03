@@ -1,3 +1,11 @@
+#### 20250104 归春河上的板约-德天瀑布，中国与越南边境 (© Shane P. White/Minden Pictures)
+
+![](images/2025-01/20250104_VietnamFalls_1920x1080.jpg)
+
+#### 20250104 丸い巨石が転がる海岸, ニュージーランド (© Douglas Pearson/eStock Photo)
+
+![](images/2025-01/20250104_BouldersNZ_1920x1080.jpg)
+
 #### 20250103 The Radcliffe Camera and All Souls College, University of Oxford, England (© atiger/Shutterstock)
 
 ![](images/2025-01/20250103_TolkienOxford_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20241229 Borobudur Temple, Java, Indonesia (© Robertharding/Shutterstock)
 
 ![](images/2024-12/20241229_BorobudurBells_1920x1080.jpg)
-
-#### 20241228 A green sea turtle swims in the Pacific Ocean near the French special collectivity of New Caledonia (© Damsea/Shutterstock)
-
-![](images/2024-12/20241228_CoralTurtle_1920x1080.jpg)
-
-#### 20241227 Lake Bled, Slovenia (© Kesu01/Getty Images)
-
-![](images/2024-12/20241227_LakeBledSnow_1920x1080.jpg)
 
 
 

@@ -1,3 +1,11 @@
+#### 20250104 归春河上的板约-德天瀑布，中国与越南边境 (© Shane P. White/Minden Pictures)
+
+![](20250104_VietnamFalls_1920x1080.jpg)
+
+#### 20250104 丸い巨石が転がる海岸, ニュージーランド (© Douglas Pearson/eStock Photo)
+
+![](20250104_BouldersNZ_1920x1080.jpg)
+
 #### 20250103 The Radcliffe Camera and All Souls College, University of Oxford, England (© atiger/Shutterstock)
 
 ![](20250103_TolkienOxford_1920x1080.jpg)
