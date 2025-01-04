@@ -1,4 +1,4 @@
-#### 20250104 归春河上的板约-德天瀑布，中国与越南边境 (© Shane P. White/Minden Pictures)
+#### 20250104 Bản Giốc–Detian Falls on the Quây Sơn River, Vietnam (© Shane P. White/Minden Pictures)
 
 ![](images/2025-01/20250104_VietnamFalls_1920x1080.jpg)
 
