@@ -1,3 +1,7 @@
+#### 20250105 Winterlandschaft in Bayern, Deutschland (© wingmar/Getty Images)
+
+![](images/2025-01/20250105_WinterLandscapeBavaria_1920x1080.jpg)
+
 #### 20250104 Bản Giốc–Detian Falls on the Quây Sơn River, Vietnam (© Shane P. White/Minden Pictures)
 
 ![](images/2025-01/20250104_VietnamFalls_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20241230 Tasmanian snow gum and pandani plants near Lake Dobson, Mount Field National Park, Tasmania, Australia (© Whitworth Images/Getty Images)
 
 ![](images/2024-12/20241230_MountFieldNP_1920x1080.jpg)
-
-#### 20241229 Borobudur Temple, Java, Indonesia (© Robertharding/Shutterstock)
-
-![](images/2024-12/20241229_BorobudurBells_1920x1080.jpg)
 
 
 
