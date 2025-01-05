@@ -14,7 +14,7 @@
 
 ![](20250103_TolkienOxford_1920x1080.jpg)
 
-#### 20250102 コセイインコ, インド カルナータカ州 (© Hira Punjabi/Alamy)
+#### 20250102 Plum-headed parakeet at Shimoga, Karnataka, India (© Hira Punjabi/Alamy)
 
 ![](20250102_PlumParakeet_1920x1080.jpg)
 
