@@ -1,3 +1,7 @@
+#### 20250106 被水淹没的地下室，圣弗朗西斯大教堂，拉文纳，意大利 (© Andrea Pucci/Getty Images)
+
+![](images/2025-01/20250106_RavennaBasilica_1920x1080.jpg)
+
 #### 20250105 Winterlandschaft in Bayern, Deutschland (© wingmar/Getty Images)
 
 ![](images/2025-01/20250105_WinterLandscapeBavaria_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20241231 Silvesterfeuerwerk über der Stadt Garmisch-Partenkirchen mit Blick auf die Zugspitzgruppe, Bayern (© Marc Hohenleitner/Huber/eStock Photo)
 
 ![](images/2024-12/20241231_BavariaNewYearsEveFireworks_1920x1080.jpg)
-
-#### 20241230 Tasmanian snow gum and pandani plants near Lake Dobson, Mount Field National Park, Tasmania, Australia (© Whitworth Images/Getty Images)
-
-![](images/2024-12/20241230_MountFieldNP_1920x1080.jpg)
 
 
 

@@ -1,3 +1,7 @@
+#### 20250106 被水淹没的地下室，圣弗朗西斯大教堂，拉文纳，意大利 (© Andrea Pucci/Getty Images)
+
+![](20250106_RavennaBasilica_1920x1080.jpg)
+
 #### 20250105 Winterlandschaft in Bayern, Deutschland (© wingmar/Getty Images)
 
 ![](20250105_WinterLandscapeBavaria_1920x1080.jpg)
