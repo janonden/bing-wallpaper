@@ -1,3 +1,7 @@
+#### 20250108 被雪覆盖的长城，中国 (© View Stock/Alamy Stock Photo)
+
+![](images/2025-01/20250108_GreatWallStairs_1920x1080.jpg)
+
 #### 20250106 Flooded crypt, Basilica of San Francesco, Ravenna, Italy (© Andrea Pucci/Getty Images)
 
 ![](images/2025-01/20250106_RavennaBasilica_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20241231 国会山上空的烟花，渥太华，加拿大 (© naibank/Getty Images)
 
 ![](images/2024-12/20241231_CANYE_1920x1080.jpg)
-
-#### 20241231 Silvesterfeuerwerk über der Stadt Garmisch-Partenkirchen mit Blick auf die Zugspitzgruppe, Bayern (© Marc Hohenleitner/Huber/eStock Photo)
-
-![](images/2024-12/20241231_BavariaNewYearsEveFireworks_1920x1080.jpg)
 
 
 
