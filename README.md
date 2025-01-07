@@ -10,7 +10,7 @@
 
 ![](images/2025-01/20250104_VietnamFalls_1920x1080.jpg)
 
-#### 20250104 丸い巨石が転がる海岸, ニュージーランド (© Douglas Pearson/eStock Photo)
+#### 20250104 Moeraki Boulders at sunset, South Island, New Zealand (© Douglas Pearson/eStock Photo)
 
 ![](images/2025-01/20250104_BouldersNZ_1920x1080.jpg)
 
