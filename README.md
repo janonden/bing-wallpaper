@@ -1,4 +1,4 @@
-#### 20250108 被雪覆盖的长城，中国 (© View Stock/Alamy Stock Photo)
+#### 20250108 Snow on the Great Wall of China (© View Stock/Alamy)
 
 ![](images/2025-01/20250108_GreatWallStairs_1920x1080.jpg)
 
