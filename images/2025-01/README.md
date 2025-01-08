@@ -1,3 +1,7 @@
+#### 20250109 苏丝斯黎沙丘，纳米布沙漠，纳米比亚 (© Airpano/Amazing Aerial Agency)
+
+![](20250109_NamibiaDunes_1920x1080.jpg)
+
 #### 20250108 Snow on the Great Wall of China (© View Stock/Alamy)
 
 ![](20250108_GreatWallStairs_1920x1080.jpg)

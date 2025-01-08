@@ -1,3 +1,7 @@
+#### 20250109 苏丝斯黎沙丘，纳米布沙漠，纳米比亚 (© Airpano/Amazing Aerial Agency)
+
+![](images/2025-01/20250109_NamibiaDunes_1920x1080.jpg)
+
 #### 20250108 Snow on the Great Wall of China (© View Stock/Alamy)
 
 ![](images/2025-01/20250108_GreatWallStairs_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20241231 平等院の梵鐘, 京都 (© Asia Images Group LLC/Alamy Stock Photo)
 
 ![](images/2024-12/20241231_Omisoka_1920x1080.jpg)
-
-#### 20241231 国会山上空的烟花，渥太华，加拿大 (© naibank/Getty Images)
-
-![](images/2024-12/20241231_CANYE_1920x1080.jpg)
 
 
 
