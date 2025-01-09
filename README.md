@@ -1,3 +1,7 @@
+#### 20250110 亚伯拉罕湖，阿尔伯塔省，加拿大 (© Basic Elements Photography/Getty Images)
+
+![](images/2025-01/20250110_BubbleLake_1920x1080.jpg)
+
 #### 20250109 苏丝斯黎沙丘，纳米布沙漠，纳米比亚 (© Airpano/Amazing Aerial Agency)
 
 ![](images/2025-01/20250109_NamibiaDunes_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20241231 New Year's Eve fireworks over Copacabana Beach, Rio de Janeiro, Brazil (© Wagner Meier/Getty Images)
 
 ![](images/2024-12/20241231_RioNewYear_1920x1080.jpg)
-
-#### 20241231 Arc de Triomphe sous les feux d’artifice, Paris (© Kiran Ridley/Getty Images)
-
-![](images/2024-12/20241231_ParisNewYearEve_1920x1080.jpg)
 
 
 

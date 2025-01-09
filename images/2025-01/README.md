@@ -1,3 +1,7 @@
+#### 20250110 亚伯拉罕湖，阿尔伯塔省，加拿大 (© Basic Elements Photography/Getty Images)
+
+![](20250110_BubbleLake_1920x1080.jpg)
+
 #### 20250109 苏丝斯黎沙丘，纳米布沙漠，纳米比亚 (© Airpano/Amazing Aerial Agency)
 
 ![](20250109_NamibiaDunes_1920x1080.jpg)
