@@ -2,6 +2,10 @@
 
 ![](images/2025-01/20250109_NamibiaDunes_1920x1080.jpg)
 
+#### 20250109 The US Capitol dome with flags flying at half-staff in honor of former President Jimmy Carter, Washington, DC (© J. David Ake/Getty Images)
+
+![](images/2025-01/20250109_CarterMemorial_1920x1080.jpg)
+
 #### 20250108 Snow on the Great Wall of China (© View Stock/Alamy)
 
 ![](images/2025-01/20250108_GreatWallStairs_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20241231 Arc de Triomphe sous les feux d’artifice, Paris (© Kiran Ridley/Getty Images)
 
 ![](images/2024-12/20241231_ParisNewYearEve_1920x1080.jpg)
-
-#### 20241231 平等院の梵鐘, 京都 (© Asia Images Group LLC/Alamy Stock Photo)
-
-![](images/2024-12/20241231_Omisoka_1920x1080.jpg)
 
 
 

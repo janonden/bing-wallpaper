@@ -2,6 +2,10 @@
 
 ![](20250109_NamibiaDunes_1920x1080.jpg)
 
+#### 20250109 The US Capitol dome with flags flying at half-staff in honor of former President Jimmy Carter, Washington, DC (© J. David Ake/Getty Images)
+
+![](20250109_CarterMemorial_1920x1080.jpg)
+
 #### 20250108 Snow on the Great Wall of China (© View Stock/Alamy)
 
 ![](20250108_GreatWallStairs_1920x1080.jpg)
