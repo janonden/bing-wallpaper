@@ -1,3 +1,7 @@
+#### 20250111 梅克内斯的Heri es-Swani，摩洛哥 (© Calin Stan/Shutterstock)
+
+![](20250111_MeknesMorocco_1920x1080.jpg)
+
 #### 20250110 Route de la bande dessinée, peinture murale de Tintin de Hergé à Bruxelles (© travelpix/Alamy Stock Photo)
 
 ![](20250110_DayTintin_1920x1080.jpg)
