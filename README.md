@@ -1,3 +1,7 @@
+#### 20250110 Route de la bande dessinée, peinture murale de Tintin de Hergé à Bruxelles (© travelpix/Alamy Stock Photo)
+
+![](images/2025-01/20250110_DayTintin_1920x1080.jpg)
+
 #### 20250110 亚伯拉罕湖，阿尔伯塔省，加拿大 (© Basic Elements Photography/Getty Images)
 
 ![](images/2025-01/20250110_BubbleLake_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250101 Polar bears at play in the Arctic (© Ondrej Prosicky/Shutterstock)
 
 ![](images/2025-01/20250101_PolarBearSwim_1920x1080.jpg)
-
-#### 20241231 New Year's Eve fireworks over Copacabana Beach, Rio de Janeiro, Brazil (© Wagner Meier/Getty Images)
-
-![](images/2024-12/20241231_RioNewYear_1920x1080.jpg)
 
 
 
