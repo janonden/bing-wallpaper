@@ -2,7 +2,7 @@
 
 ![](20250110_DayTintin_1920x1080.jpg)
 
-#### 20250110 亚伯拉罕湖，阿尔伯塔省，加拿大 (© Basic Elements Photography/Getty Images)
+#### 20250110 Abraham Lake, Alberta, Canada (© Basic Elements Photography/Getty Images)
 
 ![](20250110_BubbleLake_1920x1080.jpg)
 
