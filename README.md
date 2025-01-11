@@ -2,6 +2,10 @@
 
 ![](images/2025-01/20250111_MeknesMorocco_1920x1080.jpg)
 
+#### 20250111 Apfel hängt an einem verschneiten Baum, Deutschland (© Westend61/Getty Images)
+
+![](images/2025-01/20250111_GermanyAppleOnWinterTree_1920x1080.jpg)
+
 #### 20250110 Route de la bande dessinée, peinture murale de Tintin de Hergé à Bruxelles (© travelpix/Alamy Stock Photo)
 
 ![](images/2025-01/20250110_DayTintin_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250102 Montagne enneigée au coucher du soleil, Alpes françaises (© raeva/Getty Images)
 
 ![](images/2025-01/20250102_AlpsSunset_1920x1080.jpg)
-
-#### 20250101 朝日と白髭神社の鳥居, 滋賀県 高島市 (© Cavan Images/Alamy Stock Photo)
-
-![](images/2025-01/20250101_ShirahigeSunrise_1920x1080.jpg)
 
 
 
