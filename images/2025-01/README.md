@@ -1,3 +1,11 @@
+#### 20250112 大堡礁的宝石大眼鲷鱼，澳大利亚 (© Fred Bavendam/Minden Pictures)
+
+![](20250112_CrescentTail_1920x1080.jpg)
+
+#### 20250112 サアラ・デ・ラ・シエラ,  スペイン (© SEN LI/Getty Images)
+
+![](20250112_CadizSpain_1920x1080.jpg)
+
 #### 20250111 Heri es-Swani in Meknes, Morocco (© Calin Stan/Shutterstock)
 
 ![](20250111_MeknesMorocco_1920x1080.jpg)
