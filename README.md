@@ -1,4 +1,4 @@
-#### 20250111 梅克内斯的Heri es-Swani，摩洛哥 (© Calin Stan/Shutterstock)
+#### 20250111 Heri es-Swani in Meknes, Morocco (© Calin Stan/Shutterstock)
 
 ![](images/2025-01/20250111_MeknesMorocco_1920x1080.jpg)
 
