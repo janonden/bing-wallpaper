@@ -1,4 +1,4 @@
-#### 20250112 大堡礁的宝石大眼鲷鱼，澳大利亚 (© Fred Bavendam/Minden Pictures)
+#### 20250112 Crescent-tail bigeye fish in the Great Barrier Reef, Australia (© Fred Bavendam/Minden Pictures)
 
 ![](images/2025-01/20250112_CrescentTail_1920x1080.jpg)
 
