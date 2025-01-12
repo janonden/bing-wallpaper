@@ -1,3 +1,7 @@
+#### 20250113 小屋和特尔莫尔灯塔，兰德温岛，威尔士，英国 (© Westend61 on Offset/Shutterstock)
+
+![](images/2025-01/20250113_CoastalWales_1920x1080.jpg)
+
 #### 20250112 Crescent-tail bigeye fish in the Great Barrier Reef, Australia (© Fred Bavendam/Minden Pictures)
 
 ![](images/2025-01/20250112_CrescentTail_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250103 The Radcliffe Camera and All Souls College, University of Oxford, England (© atiger/Shutterstock)
 
 ![](images/2025-01/20250103_TolkienOxford_1920x1080.jpg)
-
-#### 20250102 Plum-headed parakeet at Shimoga, Karnataka, India (© Hira Punjabi/Alamy)
-
-![](images/2025-01/20250102_PlumParakeet_1920x1080.jpg)
 
 
 

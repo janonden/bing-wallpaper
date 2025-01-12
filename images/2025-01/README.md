@@ -1,3 +1,7 @@
+#### 20250113 小屋和特尔莫尔灯塔，兰德温岛，威尔士，英国 (© Westend61 on Offset/Shutterstock)
+
+![](20250113_CoastalWales_1920x1080.jpg)
+
 #### 20250112 Crescent-tail bigeye fish in the Great Barrier Reef, Australia (© Fred Bavendam/Minden Pictures)
 
 ![](20250112_CrescentTail_1920x1080.jpg)
