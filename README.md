@@ -1,3 +1,7 @@
+#### 20250114 大英博物館, イギリス (© Cavan Images/Offset/Shutterstock)
+
+![](images/2025-01/20250114_MuseumCourt_1920x1080.jpg)
+
 #### 20250113 Cottage with Tŵr Mawr Lighthouse in the background, Ynys Llanddwyn, Wales (© Westend61 on Offset/Shutterstock)
 
 ![](images/2025-01/20250113_CoastalWales_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250104 Moeraki Boulders at sunset, South Island, New Zealand (© Douglas Pearson/eStock Photo)
 
 ![](images/2025-01/20250104_BouldersNZ_1920x1080.jpg)
-
-#### 20250103 The Radcliffe Camera and All Souls College, University of Oxford, England (© atiger/Shutterstock)
-
-![](images/2025-01/20250103_TolkienOxford_1920x1080.jpg)
 
 
 
