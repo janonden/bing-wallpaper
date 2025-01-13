@@ -1,4 +1,4 @@
-#### 20250113 小屋和特尔莫尔灯塔，兰德温岛，威尔士，英国 (© Westend61 on Offset/Shutterstock)
+#### 20250113 Cottage with Tŵr Mawr Lighthouse in the background, Ynys Llanddwyn, Wales (© Westend61 on Offset/Shutterstock)
 
 ![](images/2025-01/20250113_CoastalWales_1920x1080.jpg)
 
