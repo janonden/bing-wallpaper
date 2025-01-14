@@ -1,8 +1,16 @@
+#### 20250115 Pointe du Diable，圣皮埃尔，留尼汪岛 (© MONTICO Lionel/Alamy)
+
+![](20250115_PointeDiable_1920x1080.jpg)
+
+#### 20250115 カラフルな餅花, 愛知県 豊田市 (© Photo taken by Bong Grit/Getty Images)
+
+![](20250115_Mochibana_1920x1080.jpg)
+
 #### 20250114 大英博物館, イギリス (© Cavan Images/Offset/Shutterstock)
 
 ![](20250114_MuseumCourt_1920x1080.jpg)
 
-#### 20250113 Cottage with Tŵr Mawr Lighthouse in the background, Ynys Llanddwyn, Wales (© Westend61 on Offset/Shutterstock)
+#### 20250113 Cottage with Tŵr Bach Lighthouse in the background, Ynys Llanddwyn, Wales (© Westend61 on Offset/Shutterstock)
 
 ![](20250113_CoastalWales_1920x1080.jpg)
 
