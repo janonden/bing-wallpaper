@@ -10,7 +10,7 @@
 
 ![](images/2025-01/20250112_CrescentTail_1920x1080.jpg)
 
-#### 20250112 サアラ・デ・ラ・シエラ,  スペイン (© SEN LI/Getty Images)
+#### 20250112 Village of Zahara de la Sierra overlooking Zahara-El Gastor Reservoir, Cádiz province, Spain (© SEN LI/Getty Images)
 
 ![](images/2025-01/20250112_CadizSpain_1920x1080.jpg)
 
