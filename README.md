@@ -6,7 +6,11 @@
 
 ![](images/2025-01/20250115_Mochibana_1920x1080.jpg)
 
-#### 20250114 大英博物館, イギリス (© Cavan Images/Offset/Shutterstock)
+#### 20250115 Lake Superior during winters, Thunder Bay, Ontario (© Susan Dykstra/plainpicture)
+
+![](images/2025-01/20250115_FrozenLakeSuperior_1920x1080.jpg)
+
+#### 20250114 The Great Court of the British Museum, London, England (© Cavan Images/Offset/Shutterstock)
 
 ![](images/2025-01/20250114_MuseumCourt_1920x1080.jpg)
 
@@ -53,10 +57,6 @@
 #### 20250106 Flooded crypt, Basilica of San Francesco, Ravenna, Italy (© Andrea Pucci/Getty Images)
 
 ![](images/2025-01/20250106_RavennaBasilica_1920x1080.jpg)
-
-#### 20250105 Winterlandschaft in Bayern, Deutschland (© wingmar/Getty Images)
-
-![](images/2025-01/20250105_WinterLandscapeBavaria_1920x1080.jpg)
 
 
 

@@ -6,7 +6,11 @@
 
 ![](20250115_Mochibana_1920x1080.jpg)
 
-#### 20250114 大英博物館, イギリス (© Cavan Images/Offset/Shutterstock)
+#### 20250115 Lake Superior during winters, Thunder Bay, Ontario (© Susan Dykstra/plainpicture)
+
+![](20250115_FrozenLakeSuperior_1920x1080.jpg)
+
+#### 20250114 The Great Court of the British Museum, London, England (© Cavan Images/Offset/Shutterstock)
 
 ![](20250114_MuseumCourt_1920x1080.jpg)
 
