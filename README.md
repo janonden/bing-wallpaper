@@ -1,3 +1,7 @@
+#### 20250116 尖峰国家公园的高峰步道，圣贝尼托县，加利福尼亚州，美国 (© yhelfman/Getty Images)
+
+![](images/2025-01/20250116_PinnaclesPeaks_1920x1080.jpg)
+
 #### 20250115 Pointe du Diable，圣皮埃尔，留尼汪岛 (© MONTICO Lionel/Alamy)
 
 ![](images/2025-01/20250115_PointeDiable_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250108 Snow on the Great Wall of China (© View Stock/Alamy)
 
 ![](images/2025-01/20250108_GreatWallStairs_1920x1080.jpg)
-
-#### 20250106 Flooded crypt, Basilica of San Francesco, Ravenna, Italy (© Andrea Pucci/Getty Images)
-
-![](images/2025-01/20250106_RavennaBasilica_1920x1080.jpg)
 
 
 
