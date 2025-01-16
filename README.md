@@ -1,4 +1,4 @@
-#### 20250116 尖峰国家公园的高峰步道，圣贝尼托县，加利福尼亚州，美国 (© yhelfman/Getty Images)
+#### 20250116 High Peaks Trail in Pinnacles National Park, San Benito County, California (© yhelfman/Getty Images)
 
 ![](images/2025-01/20250116_PinnaclesPeaks_1920x1080.jpg)
 
