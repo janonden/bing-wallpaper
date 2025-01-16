@@ -1,3 +1,11 @@
+#### 20250117 褐鹈鹕，圣地亚哥，加利福尼亚州，美国 (© Arthur Morris/BIRDS AS ART/Getty Images)
+
+![](images/2025-01/20250117_PelicanPortrait_1920x1080.jpg)
+
+#### 20250117 マウント・アシニボイン州立公園, カナダ ブリティッシュコロンビア州 (© Jeff Lewis/TANDEM Stills + Motion)
+
+![](images/2025-01/20250117_AssiniboineTS_1920x1080.jpg)
+
 #### 20250116 High Peaks Trail in Pinnacles National Park, San Benito County, California (© yhelfman/Getty Images)
 
 ![](images/2025-01/20250116_PinnaclesPeaks_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20250110 Abraham Lake, Alberta, Canada (© Basic Elements Photography/Getty Images)
 
 ![](images/2025-01/20250110_BubbleLake_1920x1080.jpg)
-
-#### 20250109 苏丝斯黎沙丘，纳米布沙漠，纳米比亚 (© Airpano/Amazing Aerial Agency)
-
-![](images/2025-01/20250109_NamibiaDunes_1920x1080.jpg)
-
-#### 20250109 The US Capitol dome with flags flying at half-staff in honor of former President Jimmy Carter, Washington, DC (© J. David Ake/Getty Images)
-
-![](images/2025-01/20250109_CarterMemorial_1920x1080.jpg)
 
 
 

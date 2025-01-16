@@ -1,3 +1,11 @@
+#### 20250117 褐鹈鹕，圣地亚哥，加利福尼亚州，美国 (© Arthur Morris/BIRDS AS ART/Getty Images)
+
+![](20250117_PelicanPortrait_1920x1080.jpg)
+
+#### 20250117 マウント・アシニボイン州立公園, カナダ ブリティッシュコロンビア州 (© Jeff Lewis/TANDEM Stills + Motion)
+
+![](20250117_AssiniboineTS_1920x1080.jpg)
+
 #### 20250116 High Peaks Trail in Pinnacles National Park, San Benito County, California (© yhelfman/Getty Images)
 
 ![](20250116_PinnaclesPeaks_1920x1080.jpg)
