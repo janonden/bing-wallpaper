@@ -1,4 +1,4 @@
-#### 20250117 褐鹈鹕，圣地亚哥，加利福尼亚州，美国 (© Arthur Morris/BIRDS AS ART/Getty Images)
+#### 20250117 Brown pelican, San Diego, California (© Arthur Morris/BIRDS AS ART/Getty Images)
 
 ![](20250117_PelicanPortrait_1920x1080.jpg)
 
