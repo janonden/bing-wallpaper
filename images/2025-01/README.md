@@ -2,6 +2,10 @@
 
 ![](20250117_PelicanPortrait_1920x1080.jpg)
 
+#### 20250117 Blick über den Golf von Neapel auf den Vesuv, Italien (© ezypix/Getty Images)
+
+![](20250117_NapoliPizza_1920x1080.jpg)
+
 #### 20250117 マウント・アシニボイン州立公園, カナダ ブリティッシュコロンビア州 (© Jeff Lewis/TANDEM Stills + Motion)
 
 ![](20250117_AssiniboineTS_1920x1080.jpg)

@@ -2,6 +2,10 @@
 
 ![](images/2025-01/20250117_PelicanPortrait_1920x1080.jpg)
 
+#### 20250117 Blick über den Golf von Neapel auf den Vesuv, Italien (© ezypix/Getty Images)
+
+![](images/2025-01/20250117_NapoliPizza_1920x1080.jpg)
+
 #### 20250117 マウント・アシニボイン州立公園, カナダ ブリティッシュコロンビア州 (© Jeff Lewis/TANDEM Stills + Motion)
 
 ![](images/2025-01/20250117_AssiniboineTS_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250110 Route de la bande dessinée, peinture murale de Tintin de Hergé à Bruxelles (© travelpix/Alamy Stock Photo)
 
 ![](images/2025-01/20250110_DayTintin_1920x1080.jpg)
-
-#### 20250110 Abraham Lake, Alberta, Canada (© Basic Elements Photography/Getty Images)
-
-![](images/2025-01/20250110_BubbleLake_1920x1080.jpg)
 
 
 
