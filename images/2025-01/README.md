@@ -1,3 +1,7 @@
+#### 20250118 白沙国家公园的日落，新墨西哥州，美国 (© Image Professionals GmbH/Alamy Stock Photo)
+
+![](20250118_WhiteSandsNP_1920x1080.jpg)
+
 #### 20250117 Brown pelican, San Diego, California (© Arthur Morris/BIRDS AS ART/Getty Images)
 
 ![](20250117_PelicanPortrait_1920x1080.jpg)

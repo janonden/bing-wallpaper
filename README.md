@@ -1,3 +1,7 @@
+#### 20250118 白沙国家公园的日落，新墨西哥州，美国 (© Image Professionals GmbH/Alamy Stock Photo)
+
+![](images/2025-01/20250118_WhiteSandsNP_1920x1080.jpg)
+
 #### 20250117 Brown pelican, San Diego, California (© Arthur Morris/BIRDS AS ART/Getty Images)
 
 ![](images/2025-01/20250117_PelicanPortrait_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250111 Apfel hängt an einem verschneiten Baum, Deutschland (© Westend61/Getty Images)
 
 ![](images/2025-01/20250111_GermanyAppleOnWinterTree_1920x1080.jpg)
-
-#### 20250110 Route de la bande dessinée, peinture murale de Tintin de Hergé à Bruxelles (© travelpix/Alamy Stock Photo)
-
-![](images/2025-01/20250110_DayTintin_1920x1080.jpg)
 
 
 
