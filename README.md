@@ -1,3 +1,7 @@
+#### 20250119 海王星石窟，撒丁岛， 意大利 (© Carlo Murenu/Getty Images)
+
+![](images/2025-01/20250119_NeptunesGrotto_1920x1080.jpg)
+
 #### 20250118 Sunset at White Sands National Park, New Mexico (© Image Professionals GmbH/Alamy)
 
 ![](images/2025-01/20250118_WhiteSandsNP_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250111 Heri es-Swani in Meknes, Morocco (© Calin Stan/Shutterstock)
 
 ![](images/2025-01/20250111_MeknesMorocco_1920x1080.jpg)
-
-#### 20250111 Apfel hängt an einem verschneiten Baum, Deutschland (© Westend61/Getty Images)
-
-![](images/2025-01/20250111_GermanyAppleOnWinterTree_1920x1080.jpg)
 
 
 

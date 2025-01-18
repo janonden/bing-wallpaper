@@ -1,3 +1,7 @@
+#### 20250119 海王星石窟，撒丁岛， 意大利 (© Carlo Murenu/Getty Images)
+
+![](20250119_NeptunesGrotto_1920x1080.jpg)
+
 #### 20250118 Sunset at White Sands National Park, New Mexico (© Image Professionals GmbH/Alamy)
 
 ![](20250118_WhiteSandsNP_1920x1080.jpg)
