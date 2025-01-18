@@ -1,4 +1,4 @@
-#### 20250118 白沙国家公园的日落，新墨西哥州，美国 (© Image Professionals GmbH/Alamy Stock Photo)
+#### 20250118 Sunset at White Sands National Park, New Mexico (© Image Professionals GmbH/Alamy)
 
 ![](images/2025-01/20250118_WhiteSandsNP_1920x1080.jpg)
 
