@@ -1,4 +1,4 @@
-#### 20250119 海王星石窟，撒丁岛， 意大利 (© Carlo Murenu/Getty Images)
+#### 20250119 Neptune's Grotto, Sardinia, Italy (© Carlo Murenu/Getty Images)
 
 ![](20250119_NeptunesGrotto_1920x1080.jpg)
 
