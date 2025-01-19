@@ -1,3 +1,11 @@
+#### 20250120 欧亚红松鼠与毒蘑菇 (© Edwin Giesbers/Minden Pictures)
+
+![](20250120_DutchSquirrel_1920x1080.jpg)
+
+#### 20250120 コタンの湯, 北海道 川上郡 (© NitiChuysakul Photography/Getty Images)
+
+![](20250120_Daikan_1920x1080.jpg)
+
 #### 20250119 Neptune's Grotto, Sardinia, Italy (© Carlo Murenu/Getty Images)
 
 ![](20250119_NeptunesGrotto_1920x1080.jpg)

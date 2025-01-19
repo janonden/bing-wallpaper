@@ -1,3 +1,11 @@
+#### 20250120 欧亚红松鼠与毒蘑菇 (© Edwin Giesbers/Minden Pictures)
+
+![](images/2025-01/20250120_DutchSquirrel_1920x1080.jpg)
+
+#### 20250120 コタンの湯, 北海道 川上郡 (© NitiChuysakul Photography/Getty Images)
+
+![](images/2025-01/20250120_Daikan_1920x1080.jpg)
+
 #### 20250119 Neptune's Grotto, Sardinia, Italy (© Carlo Murenu/Getty Images)
 
 ![](images/2025-01/20250119_NeptunesGrotto_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20250112 Crescent-tail bigeye fish in the Great Barrier Reef, Australia (© Fred Bavendam/Minden Pictures)
 
 ![](images/2025-01/20250112_CrescentTail_1920x1080.jpg)
-
-#### 20250112 Village of Zahara de la Sierra overlooking Zahara-El Gastor Reservoir, Cádiz province, Spain (© SEN LI/Getty Images)
-
-![](images/2025-01/20250112_CadizSpain_1920x1080.jpg)
-
-#### 20250111 Heri es-Swani in Meknes, Morocco (© Calin Stan/Shutterstock)
-
-![](images/2025-01/20250111_MeknesMorocco_1920x1080.jpg)
 
 
 
