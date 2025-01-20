@@ -10,6 +10,10 @@
 
 ![](20250120_Daikan_1920x1080.jpg)
 
+#### 20250120 Lac Abraham, Alberta, Canada (© Basic Elements Photography/Getty Images)
+
+![](20250120_BubbleLake_1920x1080.jpg)
+
 #### 20250119 Neptune's Grotto, Sardinia, Italy (© Carlo Murenu/Getty Images)
 
 ![](20250119_NeptunesGrotto_1920x1080.jpg)

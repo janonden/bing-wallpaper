@@ -10,6 +10,10 @@
 
 ![](images/2025-01/20250120_Daikan_1920x1080.jpg)
 
+#### 20250120 Lac Abraham, Alberta, Canada (© Basic Elements Photography/Getty Images)
+
+![](images/2025-01/20250120_BubbleLake_1920x1080.jpg)
+
 #### 20250119 Neptune's Grotto, Sardinia, Italy (© Carlo Murenu/Getty Images)
 
 ![](images/2025-01/20250119_NeptunesGrotto_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250114 The Great Court of the British Museum, London, England (© Cavan Images/Offset/Shutterstock)
 
 ![](images/2025-01/20250114_MuseumCourt_1920x1080.jpg)
-
-#### 20250113 Cottage with Tŵr Bach Lighthouse in the background, Ynys Llanddwyn, Wales (© Westend61 on Offset/Shutterstock)
-
-![](images/2025-01/20250113_CoastalWales_1920x1080.jpg)
 
 
 
