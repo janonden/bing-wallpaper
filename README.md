@@ -1,3 +1,7 @@
+#### 20250120 Martin Luther King Jr. Memorial in Washington, DC (© Win McNamee/Getty Images)
+
+![](images/2025-01/20250120_KingMemorial_1920x1080.jpg)
+
 #### 20250120 欧亚红松鼠与毒蘑菇 (© Edwin Giesbers/Minden Pictures)
 
 ![](images/2025-01/20250120_DutchSquirrel_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250113 Cottage with Tŵr Bach Lighthouse in the background, Ynys Llanddwyn, Wales (© Westend61 on Offset/Shutterstock)
 
 ![](images/2025-01/20250113_CoastalWales_1920x1080.jpg)
-
-#### 20250112 Crescent-tail bigeye fish in the Great Barrier Reef, Australia (© Fred Bavendam/Minden Pictures)
-
-![](images/2025-01/20250112_CrescentTail_1920x1080.jpg)
 
 
 

@@ -1,3 +1,7 @@
+#### 20250120 Martin Luther King Jr. Memorial in Washington, DC (© Win McNamee/Getty Images)
+
+![](20250120_KingMemorial_1920x1080.jpg)
+
 #### 20250120 欧亚红松鼠与毒蘑菇 (© Edwin Giesbers/Minden Pictures)
 
 ![](20250120_DutchSquirrel_1920x1080.jpg)
