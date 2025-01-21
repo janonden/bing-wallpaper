@@ -1,3 +1,7 @@
+#### 20250121 Cabanes aux toits colorés recouvertes de neige à Gouville-sur-Mer, Normandie (© Andia/Getty Images)
+
+![](20250121_ColourfulBlueMonday_1920x1080.jpg)
+
 #### 20250120 Martin Luther King Jr. Memorial in Washington, DC (© Win McNamee/Getty Images)
 
 ![](20250120_KingMemorial_1920x1080.jpg)

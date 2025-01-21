@@ -1,3 +1,7 @@
+#### 20250121 Cabanes aux toits colorés recouvertes de neige à Gouville-sur-Mer, Normandie (© Andia/Getty Images)
+
+![](images/2025-01/20250121_ColourfulBlueMonday_1920x1080.jpg)
+
 #### 20250120 Martin Luther King Jr. Memorial in Washington, DC (© Win McNamee/Getty Images)
 
 ![](images/2025-01/20250120_KingMemorial_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250115 Lake Superior during winters, Thunder Bay, Ontario (© Susan Dykstra/plainpicture)
 
 ![](images/2025-01/20250115_FrozenLakeSuperior_1920x1080.jpg)
-
-#### 20250114 The Great Court of the British Museum, London, England (© Cavan Images/Offset/Shutterstock)
-
-![](images/2025-01/20250114_MuseumCourt_1920x1080.jpg)
 
 
 
