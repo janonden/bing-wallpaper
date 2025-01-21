@@ -1,3 +1,7 @@
+#### 20250122 代尔修道院，佩特拉，约旦 (© Punnawit Suwuttananun/Getty Images)
+
+![](20250122_PetraMonastery_1920x1080.jpg)
+
 #### 20250121 Cabanes aux toits colorés recouvertes de neige à Gouville-sur-Mer, Normandie (© Andia/Getty Images)
 
 ![](20250121_ColourfulBlueMonday_1920x1080.jpg)

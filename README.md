@@ -1,3 +1,7 @@
+#### 20250122 代尔修道院，佩特拉，约旦 (© Punnawit Suwuttananun/Getty Images)
+
+![](images/2025-01/20250122_PetraMonastery_1920x1080.jpg)
+
 #### 20250121 Cabanes aux toits colorés recouvertes de neige à Gouville-sur-Mer, Normandie (© Andia/Getty Images)
 
 ![](images/2025-01/20250121_ColourfulBlueMonday_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250115 カラフルな餅花, 愛知県 豊田市 (© Photo taken by Bong Grit/Getty Images)
 
 ![](images/2025-01/20250115_Mochibana_1920x1080.jpg)
-
-#### 20250115 Lake Superior during winters, Thunder Bay, Ontario (© Susan Dykstra/plainpicture)
-
-![](images/2025-01/20250115_FrozenLakeSuperior_1920x1080.jpg)
 
 
 
