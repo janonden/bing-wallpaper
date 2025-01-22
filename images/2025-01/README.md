@@ -1,3 +1,7 @@
+#### 20250123 黄昏时的鹿谷，帕克城，犹他州，美国 (© Adventure_Photo/Getty Images)
+
+![](20250123_DeerValley_1920x1080.jpg)
+
 #### 20250122 Ad-Deir, Petra, Jordan (© Punnawit Suwuttananun/Getty Images)
 
 ![](20250122_PetraMonastery_1920x1080.jpg)

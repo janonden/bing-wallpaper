@@ -1,3 +1,7 @@
+#### 20250123 黄昏时的鹿谷，帕克城，犹他州，美国 (© Adventure_Photo/Getty Images)
+
+![](images/2025-01/20250123_DeerValley_1920x1080.jpg)
+
 #### 20250122 Ad-Deir, Petra, Jordan (© Punnawit Suwuttananun/Getty Images)
 
 ![](images/2025-01/20250122_PetraMonastery_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250115 Pointe du Diable，圣皮埃尔，留尼汪岛 (© MONTICO Lionel/Alamy)
 
 ![](images/2025-01/20250115_PointeDiable_1920x1080.jpg)
-
-#### 20250115 カラフルな餅花, 愛知県 豊田市 (© Photo taken by Bong Grit/Getty Images)
-
-![](images/2025-01/20250115_Mochibana_1920x1080.jpg)
 
 
 
