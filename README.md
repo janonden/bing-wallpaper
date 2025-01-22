@@ -1,4 +1,4 @@
-#### 20250122 代尔修道院，佩特拉，约旦 (© Punnawit Suwuttananun/Getty Images)
+#### 20250122 Ad-Deir, Petra, Jordan (© Punnawit Suwuttananun/Getty Images)
 
 ![](images/2025-01/20250122_PetraMonastery_1920x1080.jpg)
 
