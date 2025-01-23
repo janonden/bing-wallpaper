@@ -1,4 +1,4 @@
-#### 20250123 黄昏时的鹿谷，帕克城，犹他州，美国 (© Adventure_Photo/Getty Images)
+#### 20250123 Deer Valley at dusk, Park City, Utah (© Adventure_Photo/Getty Images)
 
 ![](20250123_DeerValley_1920x1080.jpg)
 
