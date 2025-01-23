@@ -1,3 +1,7 @@
+#### 20250124 冰岛的史托克间歇泉 (© John and Tina Reid/Getty Images)
+
+![](images/2025-01/20250124_IcelandGeyser_1920x1080.jpg)
+
 #### 20250123 Deer Valley at dusk, Park City, Utah (© Adventure_Photo/Getty Images)
 
 ![](images/2025-01/20250123_DeerValley_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250116 Bartmeisen (Panurus biarmicus) Männchen und Weibchen auf Nahrungssuche in verschneiten Schilfrohren, Baden-Wuerttemberg (© Martin Grimm/Alamy Stock Photo)
 
 ![](images/2025-01/20250116_BeardedTitsInSnowyReeds_1920x1080.jpg)
-
-#### 20250115 Pointe du Diable，圣皮埃尔，留尼汪岛 (© MONTICO Lionel/Alamy)
-
-![](images/2025-01/20250115_PointeDiable_1920x1080.jpg)
 
 
 

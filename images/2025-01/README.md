@@ -1,3 +1,7 @@
+#### 20250124 冰岛的史托克间歇泉 (© John and Tina Reid/Getty Images)
+
+![](20250124_IcelandGeyser_1920x1080.jpg)
+
 #### 20250123 Deer Valley at dusk, Park City, Utah (© Adventure_Photo/Getty Images)
 
 ![](20250123_DeerValley_1920x1080.jpg)
