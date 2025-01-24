@@ -1,3 +1,7 @@
+#### 20250125 波尔图，葡萄牙 (© Starcevic/Getty Images)
+
+![](images/2025-01/20250125_PortoSunset_1920x1080.jpg)
+
 #### 20250124 Strokkur geyser in Iceland (© John and Tina Reid/Getty Images)
 
 ![](images/2025-01/20250124_IcelandGeyser_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250116 High Peaks Trail in Pinnacles National Park, San Benito County, California (© yhelfman/Getty Images)
 
 ![](images/2025-01/20250116_PinnaclesPeaks_1920x1080.jpg)
-
-#### 20250116 Bartmeisen (Panurus biarmicus) Männchen und Weibchen auf Nahrungssuche in verschneiten Schilfrohren, Baden-Wuerttemberg (© Martin Grimm/Alamy Stock Photo)
-
-![](images/2025-01/20250116_BeardedTitsInSnowyReeds_1920x1080.jpg)
 
 
 
