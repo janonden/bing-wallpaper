@@ -1,4 +1,4 @@
-#### 20250124 冰岛的史托克间歇泉 (© John and Tina Reid/Getty Images)
+#### 20250124 Strokkur geyser in Iceland (© John and Tina Reid/Getty Images)
 
 ![](20250124_IcelandGeyser_1920x1080.jpg)
 
