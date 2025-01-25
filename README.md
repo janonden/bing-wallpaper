@@ -1,3 +1,7 @@
+#### 20250126 比利时的欧洲山毛榉森林 (© Philippe Moes/Minden Pictures)
+
+![](images/2025-01/20250126_FrostedBeech_1920x1080.jpg)
+
 #### 20250125 Porto, Portugal (© Starcevic/Getty Images)
 
 ![](images/2025-01/20250125_PortoSunset_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250117 マウント・アシニボイン州立公園, カナダ ブリティッシュコロンビア州 (© Jeff Lewis/TANDEM Stills + Motion)
 
 ![](images/2025-01/20250117_AssiniboineTS_1920x1080.jpg)
-
-#### 20250116 High Peaks Trail in Pinnacles National Park, San Benito County, California (© yhelfman/Getty Images)
-
-![](images/2025-01/20250116_PinnaclesPeaks_1920x1080.jpg)
 
 
 

@@ -1,3 +1,7 @@
+#### 20250126 比利时的欧洲山毛榉森林 (© Philippe Moes/Minden Pictures)
+
+![](20250126_FrostedBeech_1920x1080.jpg)
+
 #### 20250125 Porto, Portugal (© Starcevic/Getty Images)
 
 ![](20250125_PortoSunset_1920x1080.jpg)
