@@ -1,4 +1,4 @@
-#### 20250125 波尔图，葡萄牙 (© Starcevic/Getty Images)
+#### 20250125 Porto, Portugal (© Starcevic/Getty Images)
 
 ![](20250125_PortoSunset_1920x1080.jpg)
 
