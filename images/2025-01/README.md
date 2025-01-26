@@ -1,3 +1,7 @@
+#### 20250127 琐罗亚斯德神庙，大峡谷国家公园，亚利桑那州，美国 (© Nick Lake/Tandem Stills + Motion)
+
+![](20250127_CanyonSnow_1920x1080.jpg)
+
 #### 20250126 European beech forest in Belgium (© Philippe Moes/Minden Pictures)
 
 ![](20250126_FrostedBeech_1920x1080.jpg)

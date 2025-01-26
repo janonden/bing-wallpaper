@@ -1,3 +1,7 @@
+#### 20250127 琐罗亚斯德神庙，大峡谷国家公园，亚利桑那州，美国 (© Nick Lake/Tandem Stills + Motion)
+
+![](images/2025-01/20250127_CanyonSnow_1920x1080.jpg)
+
 #### 20250126 European beech forest in Belgium (© Philippe Moes/Minden Pictures)
 
 ![](images/2025-01/20250126_FrostedBeech_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250117 Blick über den Golf von Neapel auf den Vesuv, Italien (© ezypix/Getty Images)
 
 ![](images/2025-01/20250117_NapoliPizza_1920x1080.jpg)
-
-#### 20250117 マウント・アシニボイン州立公園, カナダ ブリティッシュコロンビア州 (© Jeff Lewis/TANDEM Stills + Motion)
-
-![](images/2025-01/20250117_AssiniboineTS_1920x1080.jpg)
 
 
 
