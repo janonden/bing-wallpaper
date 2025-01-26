@@ -1,4 +1,4 @@
-#### 20250126 比利时的欧洲山毛榉森林 (© Philippe Moes/Minden Pictures)
+#### 20250126 European beech forest in Belgium (© Philippe Moes/Minden Pictures)
 
 ![](images/2025-01/20250126_FrostedBeech_1920x1080.jpg)
 
