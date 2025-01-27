@@ -1,3 +1,7 @@
+#### 20250127 La tour Eiffel sous la neige, Paris (© Orbon Alija/Getty Images)
+
+![](images/2025-01/20250127_ParisSnow_1920x1080.jpg)
+
 #### 20250127 琐罗亚斯德神庙，大峡谷国家公园，亚利桑那州，美国 (© Nick Lake/Tandem Stills + Motion)
 
 ![](images/2025-01/20250127_CanyonSnow_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250117 Brown pelican, San Diego, California (© Arthur Morris/BIRDS AS ART/Getty Images)
 
 ![](images/2025-01/20250117_PelicanPortrait_1920x1080.jpg)
-
-#### 20250117 Blick über den Golf von Neapel auf den Vesuv, Italien (© ezypix/Getty Images)
-
-![](images/2025-01/20250117_NapoliPizza_1920x1080.jpg)
 
 
 
