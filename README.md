@@ -2,7 +2,7 @@
 
 ![](images/2025-01/20250128_LunarNewYearEve_1920x1080.jpg)
 
-#### 20250128 吹雪の中を飛ぶコミミズク (© Dilshan Muthalib/Getty Images)
+#### 20250128 Short-eared owl hunting in heavy snow (© Dilshan Muthalib/Getty Images)
 
 ![](images/2025-01/20250128_FlyingOwl_1920x1080.jpg)
 
