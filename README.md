@@ -1,8 +1,12 @@
+#### 20250130 Prioro, Castile and León, Spain (© Ruben Earth/Getty Images)
+
+![](images/2025-01/20250130_PrioroWinter_1920x1080.jpg)
+
 #### 20250129 南京夫子庙的春节许愿牌，江苏省，中国 (© lazy dragon/Shutterstock)
 
 ![](images/2025-01/20250129_SpringFestival_1920x1080.jpg)
 
-#### 20250129 鉄の花の中で舞う龍舞, 中国 湖北省 (© Miao Jian/Wuhan Morning Post/Visual China Group via Getty Images)
+#### 20250129 Dragon dance, Wuhan, China (© Miao Jian/Wuhan Morning Post/Visual China Group via Getty Images)
 
 ![](images/2025-01/20250129_LunarDragon_1920x1080.jpg)
 
@@ -53,10 +57,6 @@
 #### 20250120 Eurasian red squirrel (© Edwin Giesbers/Minden Pictures)
 
 ![](images/2025-01/20250120_DutchSquirrel_1920x1080.jpg)
-
-#### 20250120 コタンの湯, 北海道 川上郡 (© NitiChuysakul Photography/Getty Images)
-
-![](images/2025-01/20250120_Daikan_1920x1080.jpg)
 
 
 
