@@ -2,6 +2,10 @@
 
 ![](images/2025-01/20250130_PrioroWinter_1920x1080.jpg)
 
+#### 20250130 罗兰多山口，奥德萨和佩迪多山国家公园，西班牙 (© Inaki Relanzon/Nature Picture Library/Alamy Stock Photo)
+
+![](images/2025-01/20250130_OrdesaSpain_1920x1080.jpg)
+
 #### 20250129 南京夫子庙的春节许愿牌，江苏省，中国 (© lazy dragon/Shutterstock)
 
 ![](images/2025-01/20250129_SpringFestival_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250120 Martin Luther King Jr. Memorial in Washington, DC (© Win McNamee/Getty Images)
 
 ![](images/2025-01/20250120_KingMemorial_1920x1080.jpg)
-
-#### 20250120 Eurasian red squirrel (© Edwin Giesbers/Minden Pictures)
-
-![](images/2025-01/20250120_DutchSquirrel_1920x1080.jpg)
 
 
 
