@@ -2,9 +2,13 @@
 
 ![](images/2025-01/20250130_PrioroWinter_1920x1080.jpg)
 
-#### 20250130 罗兰多山口，奥德萨和佩迪多山国家公园，西班牙 (© Inaki Relanzon/Nature Picture Library/Alamy Stock Photo)
+#### 20250130 La Brecha de Rolando, Ordesa y Monte Perdido National Park, Spain (© Inaki Relanzon/Nature Picture Library/Alamy)
 
 ![](images/2025-01/20250130_OrdesaSpain_1920x1080.jpg)
+
+#### 20250130 Granville Island in Vancouver, British Columbia, Canada (© AWL Images/DanitaDelimont.com)
+
+![](images/2025-01/20250130_BoatShowVan_1920x1080.jpg)
 
 #### 20250129 南京夫子庙的春节许愿牌，江苏省，中国 (© lazy dragon/Shutterstock)
 
@@ -53,10 +57,6 @@
 #### 20250121 Cabanes aux toits colorés recouvertes de neige à Gouville-sur-Mer, Normandie (© Andia/Getty Images)
 
 ![](images/2025-01/20250121_ColourfulBlueMonday_1920x1080.jpg)
-
-#### 20250120 Martin Luther King Jr. Memorial in Washington, DC (© Win McNamee/Getty Images)
-
-![](images/2025-01/20250120_KingMemorial_1920x1080.jpg)
 
 
 
