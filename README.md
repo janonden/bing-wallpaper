@@ -1,3 +1,7 @@
+#### 20250131 日出时的平原斑马，莫卡拉国家公园，南非 (© EcoPrint/Shutterstock)
+
+![](images/2025-01/20250131_PlainsZebra_1920x1080.jpg)
+
 #### 20250130 Prioro, Castile and León, Spain (© Ruben Earth/Getty Images)
 
 ![](images/2025-01/20250130_PrioroWinter_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250122 Ad-Deir, Petra, Jordan (© Punnawit Suwuttananun/Getty Images)
 
 ![](images/2025-01/20250122_PetraMonastery_1920x1080.jpg)
-
-#### 20250121 Cabanes aux toits colorés recouvertes de neige à Gouville-sur-Mer, Normandie (© Andia/Getty Images)
-
-![](images/2025-01/20250121_ColourfulBlueMonday_1920x1080.jpg)
 
 
 

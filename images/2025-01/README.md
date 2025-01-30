@@ -1,3 +1,7 @@
+#### 20250131 日出时的平原斑马，莫卡拉国家公园，南非 (© EcoPrint/Shutterstock)
+
+![](20250131_PlainsZebra_1920x1080.jpg)
+
 #### 20250130 Prioro, Castile and León, Spain (© Ruben Earth/Getty Images)
 
 ![](20250130_PrioroWinter_1920x1080.jpg)
