@@ -1,3 +1,11 @@
+#### 20250201 ゴールデンブリッジ, ベトナム (© Hien Phung Thu/Shutterstock)
+
+![](images/2025-02/20250201_GoldenBridge_1920x1080.jpg)
+
+#### 20250201 国王岩堡垒 , 瑞士撒克逊, 德国 (© Bildagentur-online/Exss/Alamy)
+
+![](images/2025-02/20250201_FestungKonigsteinElbsandsteingebirge_1920x1080.jpg)
+
 #### 20250131 Plains zebras at sunrise, Mokala National Park, South Africa (© EcoPrint/Shutterstock)
 
 ![](images/2025-01/20250131_PlainsZebra_1920x1080.jpg)
@@ -50,14 +58,6 @@
 
 ![](images/2025-01/20250124_IcelandGeyser_1920x1080.jpg)
 
-#### 20250123 Deer Valley at dusk, Park City, Utah (© Adventure_Photo/Getty Images)
-
-![](images/2025-01/20250123_DeerValley_1920x1080.jpg)
-
-#### 20250122 Ad-Deir, Petra, Jordan (© Punnawit Suwuttananun/Getty Images)
-
-![](images/2025-01/20250122_PetraMonastery_1920x1080.jpg)
-
 
 
 
@@ -66,7 +66,7 @@
 
 
 
-- 2025&emsp;&emsp;[01](images/2025-01/README.md) 
+- 2025&emsp;&emsp;[02](images/2025-02/README.md) &emsp;&emsp;[01](images/2025-01/README.md) 
 
 - 2024&emsp;&emsp;[12](images/2024-12/README.md) &emsp;&emsp;[11](images/2024-11/README.md) &emsp;&emsp;[10](images/2024-10/README.md) &emsp;&emsp;[09](images/2024-09/README.md) &emsp;&emsp;[08](images/2024-08/README.md) &emsp;&emsp;[07](images/2024-07/README.md) &emsp;&emsp;[06](images/2024-06/README.md) &emsp;&emsp;[05](images/2024-05/README.md) &emsp;&emsp;[04](images/2024-04/README.md) &emsp;&emsp;[03](images/2024-03/README.md) &emsp;&emsp;[02](images/2024-02/README.md) &emsp;&emsp;[01](images/2024-01/README.md) 
 
