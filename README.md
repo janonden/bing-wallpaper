@@ -1,4 +1,4 @@
-#### 20250131 日出时的平原斑马，莫卡拉国家公园，南非 (© EcoPrint/Shutterstock)
+#### 20250131 Plains zebras at sunrise, Mokala National Park, South Africa (© EcoPrint/Shutterstock)
 
 ![](images/2025-01/20250131_PlainsZebra_1920x1080.jpg)
 
