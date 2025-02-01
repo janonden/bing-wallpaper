@@ -10,6 +10,10 @@
 
 ![](images/2025-02/20250201_DeerForest_1920x1080.jpg)
 
+#### 20250201 National Museum of African American History & Culture, Washington, DC (© BrianPIrwin/Shutterstock)
+
+![](images/2025-02/20250201_AfricanMuseumDC_1920x1080.jpg)
+
 #### 20250131 Plains zebras at sunrise, Mokala National Park, South Africa (© EcoPrint/Shutterstock)
 
 ![](images/2025-01/20250131_PlainsZebra_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250126 European beech forest in Belgium (© Philippe Moes/Minden Pictures)
 
 ![](images/2025-01/20250126_FrostedBeech_1920x1080.jpg)
-
-#### 20250125 Porto, Portugal (© Starcevic/Getty Images)
-
-![](images/2025-01/20250125_PortoSunset_1920x1080.jpg)
 
 
 
