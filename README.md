@@ -1,3 +1,7 @@
+#### 20250202 年幼的高山土拨鼠 (© Jonas Fichtner-Pflaum/Getty Images)
+
+![](images/2025-02/20250202_AustriaMarmot_1920x1080.jpg)
+
 #### 20250201 ゴールデンブリッジ, ベトナム (© Hien Phung Thu/Shutterstock)
 
 ![](images/2025-02/20250201_GoldenBridge_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250127 Zoroaster Temple, Grand Canyon National Park, Arizona (© Nick Lake/Tandem Stills + Motion)
 
 ![](images/2025-01/20250127_CanyonSnow_1920x1080.jpg)
-
-#### 20250126 European beech forest in Belgium (© Philippe Moes/Minden Pictures)
-
-![](images/2025-01/20250126_FrostedBeech_1920x1080.jpg)
 
 
 
