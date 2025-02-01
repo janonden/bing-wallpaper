@@ -6,6 +6,10 @@
 
 ![](images/2025-02/20250201_FestungKonigsteinElbsandsteingebirge_1920x1080.jpg)
 
+#### 20250201 Cerf élaphe, forêt de Rambouillet,  Île-de-France (© Nicolas Le Boulanger/500px/Getty Image)
+
+![](images/2025-02/20250201_DeerForest_1920x1080.jpg)
+
 #### 20250131 Plains zebras at sunrise, Mokala National Park, South Africa (© EcoPrint/Shutterstock)
 
 ![](images/2025-01/20250131_PlainsZebra_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250125 Porto, Portugal (© Starcevic/Getty Images)
 
 ![](images/2025-01/20250125_PortoSunset_1920x1080.jpg)
-
-#### 20250124 Strokkur geyser in Iceland (© John and Tina Reid/Getty Images)
-
-![](images/2025-01/20250124_IcelandGeyser_1920x1080.jpg)
 
 
 
