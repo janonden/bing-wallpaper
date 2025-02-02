@@ -1,3 +1,7 @@
+#### 20250202 Westerhever, Nationalpark Schleswig-Holsteinisches Wattenmeer (© 3quarks/Getty Images)
+
+![](images/2025-02/20250202_WaddenSeaBiosphereReserve_1920x1080.jpg)
+
 #### 20250202 年幼的高山土拨鼠 (© Jonas Fichtner-Pflaum/Getty Images)
 
 ![](images/2025-02/20250202_AustriaMarmot_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250127 La tour Eiffel sous la neige, Paris (© Orbon Alija/Getty Images)
 
 ![](images/2025-01/20250127_ParisSnow_1920x1080.jpg)
-
-#### 20250127 Zoroaster Temple, Grand Canyon National Park, Arizona (© Nick Lake/Tandem Stills + Motion)
-
-![](images/2025-01/20250127_CanyonSnow_1920x1080.jpg)
 
 
 
