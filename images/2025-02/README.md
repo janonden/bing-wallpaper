@@ -2,7 +2,7 @@
 
 ![](20250202_WaddenSeaBiosphereReserve_1920x1080.jpg)
 
-#### 20250202 年幼的高山土拨鼠 (© Jonas Fichtner-Pflaum/Getty Images)
+#### 20250202 Young alpine marmot (© Jonas Fichtner-Pflaum/Getty Images)
 
 ![](20250202_AustriaMarmot_1920x1080.jpg)
 
