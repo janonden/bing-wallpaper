@@ -1,3 +1,7 @@
+#### 20250204 犬山城の大雪像, 北海道 札幌市 (© Randy Green/Alamy Stock Photo)
+
+![](20250204_YukiMatsuri_1920x1080.jpg)
+
 #### 20250203 梅の花で吸蜜するメジロ (© yankane/shutterstock)
 
 ![](20250203_Risshun_1920x1080.jpg)
