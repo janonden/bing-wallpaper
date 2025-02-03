@@ -2,7 +2,7 @@
 
 ![](images/2025-02/20250203_Risshun_1920x1080.jpg)
 
-#### 20250203 Ribblehead-Viadukt und Ingleborough-Berg, North Yorkshire, England, UK (© AWL Images/DanitaDelimont.com)
+#### 20250203 Ribblehead Viaduct and Ingleborough mountain, North Yorkshire, England (© AWL Images/DanitaDelimont.com)
 
 ![](images/2025-02/20250203_RibbleheadViaduct_1920x1080.jpg)
 
