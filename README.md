@@ -1,3 +1,7 @@
+#### 20250205 拱门群岛，瓦拉里基海滩，南岛，新西兰 (© Francesco Vaninetti/AWL/plainpicture)
+
+![](images/2025-02/20250205_ScottishSheep_1920x1080.jpg)
+
 #### 20250204 犬山城の大雪像, 北海道 札幌市 (© Randy Green/Alamy Stock Photo)
 
 ![](images/2025-02/20250204_YukiMatsuri_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250130 Granville Island in Vancouver, British Columbia, Canada (© AWL Images/DanitaDelimont.com)
 
 ![](images/2025-01/20250130_BoatShowVan_1920x1080.jpg)
-
-#### 20250129 南京夫子庙的春节许愿牌，江苏省，中国 (© lazy dragon/Shutterstock)
-
-![](images/2025-01/20250129_SpringFestival_1920x1080.jpg)
 
 
 
