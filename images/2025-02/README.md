@@ -22,7 +22,7 @@
 
 ![](20250202_AustriaMarmot_1920x1080.jpg)
 
-#### 20250201 ゴールデンブリッジ, ベトナム (© Hien Phung Thu/Shutterstock)
+#### 20250201 Golden Bridge, Bà Nà Hills, Da Nang, Vietnam (© Hien Phung Thu/Shutterstock)
 
 ![](20250201_GoldenBridge_1920x1080.jpg)
 
