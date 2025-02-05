@@ -1,4 +1,4 @@
-#### 20250205 拱门群岛，瓦拉里基海滩，南岛，新西兰 (© Francesco Vaninetti/AWL/plainpicture)
+#### 20250205 Scottish Blackface sheep, Aberdeenshire, Scotland  (© Mike Powles/Getty Images)
 
 ![](20250205_ScottishSheep_1920x1080.jpg)
 
