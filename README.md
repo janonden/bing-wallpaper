@@ -1,3 +1,7 @@
+#### 20250206 拱门群岛，瓦拉里基海滩，南岛，新西兰 (© Francesco Vaninetti/AWL/plainpicture)
+
+![](images/2025-02/20250206_WhararikiBeach_1920x1080.jpg)
+
 #### 20250205 Scottish Blackface sheep, Aberdeenshire, Scotland  (© Mike Powles/Getty Images)
 
 ![](images/2025-02/20250205_ScottishSheep_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250130 La Brecha de Rolando, Ordesa y Monte Perdido National Park, Spain (© Inaki Relanzon/Nature Picture Library/Alamy)
 
 ![](images/2025-01/20250130_OrdesaSpain_1920x1080.jpg)
-
-#### 20250130 Granville Island in Vancouver, British Columbia, Canada (© AWL Images/DanitaDelimont.com)
-
-![](images/2025-01/20250130_BoatShowVan_1920x1080.jpg)
 
 
 
