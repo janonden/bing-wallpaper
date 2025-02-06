@@ -1,3 +1,7 @@
+#### 20250207 特隆赫姆的蓝色时刻，挪威 (© Jeanny Mueller/Getty Images)
+
+![](images/2025-02/20250207_BlueNorway_1920x1080.jpg)
+
 #### 20250206 Archway Islands, Wharariki Beach, South Island, New Zealand (© Francesco Vaninetti/AWL/plainpicture)
 
 ![](images/2025-02/20250206_WhararikiBeach_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250130 Prioro, Castile and León, Spain (© Ruben Earth/Getty Images)
 
 ![](images/2025-01/20250130_PrioroWinter_1920x1080.jpg)
-
-#### 20250130 La Brecha de Rolando, Ordesa y Monte Perdido National Park, Spain (© Inaki Relanzon/Nature Picture Library/Alamy)
-
-![](images/2025-01/20250130_OrdesaSpain_1920x1080.jpg)
 
 
 

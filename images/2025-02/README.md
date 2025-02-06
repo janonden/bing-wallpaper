@@ -1,3 +1,7 @@
+#### 20250207 特隆赫姆的蓝色时刻，挪威 (© Jeanny Mueller/Getty Images)
+
+![](20250207_BlueNorway_1920x1080.jpg)
+
 #### 20250206 Archway Islands, Wharariki Beach, South Island, New Zealand (© Francesco Vaninetti/AWL/plainpicture)
 
 ![](20250206_WhararikiBeach_1920x1080.jpg)
