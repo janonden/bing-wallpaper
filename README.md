@@ -1,4 +1,4 @@
-#### 20250206 拱门群岛，瓦拉里基海滩，南岛，新西兰 (© Francesco Vaninetti/AWL/plainpicture)
+#### 20250206 Archway Islands, Wharariki Beach, South Island, New Zealand (© Francesco Vaninetti/AWL/plainpicture)
 
 ![](images/2025-02/20250206_WhararikiBeach_1920x1080.jpg)
 
