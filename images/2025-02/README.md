@@ -1,3 +1,11 @@
+#### 20250212 ホッキョクグマ  (© Ondrej Prosicky/Shutterstock)
+
+![](20250212_PolarBearSwim_1920x1080.jpg)
+
+#### 20250212 上海豫园的灯会，元宵节，上海市，中国 (© atiger/Shutterstock)
+
+![](20250212_LanterFestival_1920x1080.jpg)
+
 #### 20250211 Yungang Grottoes, Datong, Shanxi province, China (© Eric Yang/Getty Images)
 
 ![](20250211_YungangGrottoes_1920x1080.jpg)
