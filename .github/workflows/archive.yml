@@ -1,0 +1,55 @@
+name: Archive Bing.com wallpaper
+
+on:
+  workflow_dispatch:
+
+jobs:
+  # This workflow contains a single job called "build"
+  build:
+    # The type of runner that the job will run on
+    runs-on: ubuntu-latest
+
+    # Steps represent a sequence of tasks that will be executed as part of the job
+    steps:
+      # Checks-out your repository under $GITHUB_WORKSPACE, so your job can access it
+      - uses: actions/checkout@v3
+      - name: Setup Python
+        uses: actions/setup-python@v4
+        with:
+          python-version: '3.x'
+      - name: Cache pip
+        uses: actions/cache@v3
+        with:
+          # This path is specific to Ubuntu
+          path: ~/.cache/pip
+          # Look to see if there is a cache hit for the corresponding requirements file
+          key: ${{ runner.os }}-pip-${{ hashFiles('requirements.txt') }}
+          restore-keys: |
+            ${{ runner.os }}-pip-
+            ${{ runner.os }}-
+      - name: Install dependencies
+        run: pip install -r requirements.txt
+      - name: Get last year
+        id: date
+        run: echo "last_year=$(date -d last-year +%Y)" >> $GITHUB_OUTPUT
+      - name: Init
+        run: |
+          git config user.name ${{ secrets.USER_NAME }}
+          git config user.email ${{ secrets.USER_EMAIL }}
+          git checkout --orphan archive_branch
+      - name: Archive image
+        run: |
+          python BingWallPaper.py archive ${{ steps.date.outputs.last_year }}
+      - name: Commit
+        run: |
+          rm -f BingWallPaper.py
+          rm -f requirements.txt
+          rm -rf .github
+          git add images/ README.md
+          git commit -am "Archive ${{ steps.date.outputs.last_year }}"
+          git branch -m ${{ steps.date.outputs.last_year }}
+      - name: Push
+        uses: ad-m/github-push-action@master
+        with:
+          github_token: ${{ secrets.GITHUB_TOKEN }}
+          branch: ${{ steps.date.outputs.last_year }}

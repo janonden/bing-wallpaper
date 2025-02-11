@@ -1,0 +1,45 @@
+name: Clear History
+# It is best to execute it after January 8th every year
+on:
+  workflow_dispatch:
+    inputs:
+      delLastYearImg:
+        description: "Delete Last Year Img?"
+        required: true
+        default: "no"
+
+jobs:
+  # This workflow contains a single job called "build"
+  build:
+    # The type of runner that the job will run on
+    runs-on: ubuntu-latest
+
+    # Steps represent a sequence of tasks that will be executed as part of the job
+    steps:
+      # Checks-out your repository under $GITHUB_WORKSPACE, so your job can access it
+      - uses: actions/checkout@v3
+      - name: Get last year
+        id: date
+        run: echo "last_year=$(date -d last-year +%Y)" >> $GITHUB_OUTPUT
+      - name: Init
+        run: |
+          git config user.name ${{ secrets.USER_NAME }}
+          git config user.email ${{ secrets.USER_EMAIL }}
+          git checkout --orphan latest_branch
+      - name: Delete Old Year Image
+        if: github.event.inputs.delLastYearImg == 'yes'
+        run: |
+          find images -name "${{ steps.date.outputs.last_year }}-*" -type d | xargs rm -rf
+          python BingWallPaper.py
+      - name: Commit
+        run: |
+          git add -A
+          git commit -am "auto commit from github actions"
+          git branch -D main
+          git branch -m main
+      - name: Push
+        uses: ad-m/github-push-action@master
+        with:
+          github_token: ${{ secrets.GITHUB_TOKEN }}
+          branch: main
+          force: true
