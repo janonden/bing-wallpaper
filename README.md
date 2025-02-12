@@ -6,7 +6,7 @@
 
 ![](images/2025-02/20250212_LanterFestival_1920x1080.jpg)
 
-#### 20250212 Meerechsen, Galápagos-Inseln, Ecuador (© helovi/Getty Images)
+#### 20250212 Marine iguanas, Galápagos Islands, Ecuador (© helovi/Getty Images)
 
 ![](images/2025-02/20250212_GalapagosIguana_1920x1080.jpg)
 
