@@ -1,3 +1,7 @@
+#### 20250213 泰瑞尔湖，维多利亚州，澳大利亚 (© Monica Bertolazzi/Getty Images)
+
+![](images/2025-02/20250213_LakeTyrrell_1920x1080.jpg)
+
 #### 20250212 ホッキョクグマ  (© Ondrej Prosicky/Shutterstock)
 
 ![](images/2025-02/20250212_PolarBearSwim_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250205 Scottish Blackface sheep, Aberdeenshire, Scotland  (© Mike Powles/Getty Images)
 
 ![](images/2025-02/20250205_ScottishSheep_1920x1080.jpg)
-
-#### 20250204 犬山城の大雪像, 北海道 札幌市 (© Randy Green/Alamy Stock Photo)
-
-![](images/2025-02/20250204_YukiMatsuri_1920x1080.jpg)
 
 
 

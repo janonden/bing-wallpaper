@@ -1,3 +1,7 @@
+#### 20250213 泰瑞尔湖，维多利亚州，澳大利亚 (© Monica Bertolazzi/Getty Images)
+
+![](20250213_LakeTyrrell_1920x1080.jpg)
+
 #### 20250212 ホッキョクグマ  (© Ondrej Prosicky/Shutterstock)
 
 ![](20250212_PolarBearSwim_1920x1080.jpg)
