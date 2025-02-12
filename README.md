@@ -6,6 +6,10 @@
 
 ![](images/2025-02/20250212_LanterFestival_1920x1080.jpg)
 
+#### 20250212 Meerechsen, Galápagos-Inseln, Ecuador (© helovi/Getty Images)
+
+![](images/2025-02/20250212_GalapagosIguana_1920x1080.jpg)
+
 #### 20250211 Yungang Grottoes, Datong, Shanxi province, China (© Eric Yang/Getty Images)
 
 ![](images/2025-02/20250211_YungangGrottoes_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250204 犬山城の大雪像, 北海道 札幌市 (© Randy Green/Alamy Stock Photo)
 
 ![](images/2025-02/20250204_YukiMatsuri_1920x1080.jpg)
-
-#### 20250203 梅の花で吸蜜するメジロ (© yankane/shutterstock)
-
-![](images/2025-02/20250203_Risshun_1920x1080.jpg)
 
 
 

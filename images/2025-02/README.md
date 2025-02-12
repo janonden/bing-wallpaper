@@ -6,6 +6,10 @@
 
 ![](20250212_LanterFestival_1920x1080.jpg)
 
+#### 20250212 Meerechsen, Galápagos-Inseln, Ecuador (© helovi/Getty Images)
+
+![](20250212_GalapagosIguana_1920x1080.jpg)
+
 #### 20250211 Yungang Grottoes, Datong, Shanxi province, China (© Eric Yang/Getty Images)
 
 ![](20250211_YungangGrottoes_1920x1080.jpg)
