@@ -2,6 +2,10 @@
 
 ![](20250213_LakeTyrrell_1920x1080.jpg)
 
+#### 20250213 Kino Zoo Palast, Berlin (© Ponizak/Agencja Fotograficzna Caro/Alamy Stock Photo)
+
+![](20250213_BerlinKinoZooPalast_1920x1080.jpg)
+
 #### 20250212 ホッキョクグマ  (© Ondrej Prosicky/Shutterstock)
 
 ![](20250212_PolarBearSwim_1920x1080.jpg)
