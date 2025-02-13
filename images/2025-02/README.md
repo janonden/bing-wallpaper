@@ -1,3 +1,7 @@
+#### 20250214 两只麦哲伦企鹅，福克兰群岛 (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)
+
+![](20250214_PenguinLove_1920x1080.jpg)
+
 #### 20250213 Lake Tyrrell, Victoria, Australia (© Monica Bertolazzi/Getty Images)
 
 ![](20250213_LakeTyrrell_1920x1080.jpg)

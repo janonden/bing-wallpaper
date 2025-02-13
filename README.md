@@ -1,3 +1,7 @@
+#### 20250214 两只麦哲伦企鹅，福克兰群岛 (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)
+
+![](images/2025-02/20250214_PenguinLove_1920x1080.jpg)
+
 #### 20250213 Lake Tyrrell, Victoria, Australia (© Monica Bertolazzi/Getty Images)
 
 ![](images/2025-02/20250213_LakeTyrrell_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250207 Blue hour in Trondheim, Norway (© Jeanny Mueller/Getty Images)
 
 ![](images/2025-02/20250207_BlueNorway_1920x1080.jpg)
-
-#### 20250206 Archway Islands, Wharariki Beach, South Island, New Zealand (© Francesco Vaninetti/AWL/plainpicture)
-
-![](images/2025-02/20250206_WhararikiBeach_1920x1080.jpg)
 
 
 
