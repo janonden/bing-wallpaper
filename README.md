@@ -1,4 +1,4 @@
-#### 20250213 泰瑞尔湖，维多利亚州，澳大利亚 (© Monica Bertolazzi/Getty Images)
+#### 20250213 Lake Tyrrell, Victoria, Australia (© Monica Bertolazzi/Getty Images)
 
 ![](images/2025-02/20250213_LakeTyrrell_1920x1080.jpg)
 
