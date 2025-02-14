@@ -1,4 +1,4 @@
-#### 20250214 两只麦哲伦企鹅，福克兰群岛 (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)
+#### 20250214 Magellanic penguins in the Falkland Islands (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)
 
 ![](images/2025-02/20250214_PenguinLove_1920x1080.jpg)
 
