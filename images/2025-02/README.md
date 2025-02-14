@@ -1,3 +1,7 @@
+#### 20250215 三十槌冰柱，秩父市，日本 (© watayu0821/shutterstock)
+
+![](20250215_Misotsuchi_1920x1080.jpg)
+
 #### 20250214 Magellanic penguins in the Falkland Islands (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)
 
 ![](20250214_PenguinLove_1920x1080.jpg)

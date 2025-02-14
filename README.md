@@ -1,3 +1,7 @@
+#### 20250215 三十槌冰柱，秩父市，日本 (© watayu0821/shutterstock)
+
+![](images/2025-02/20250215_Misotsuchi_1920x1080.jpg)
+
 #### 20250214 Magellanic penguins in the Falkland Islands (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)
 
 ![](images/2025-02/20250214_PenguinLove_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250207 Pyramide du Louvre, Paris, France (© Andriy Kravchenko/Alamy Stock Photo)
 
 ![](images/2025-02/20250207_LouvreRainyDay_1920x1080.jpg)
-
-#### 20250207 Blue hour in Trondheim, Norway (© Jeanny Mueller/Getty Images)
-
-![](images/2025-02/20250207_BlueNorway_1920x1080.jpg)
 
 
 
