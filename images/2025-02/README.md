@@ -1,4 +1,4 @@
-#### 20250215 三十槌冰柱，秩父市，日本 (© watayu0821/shutterstock)
+#### 20250215 Icicles of Misotsuchi, Chichibu, Japan (© watayu0821/Shutterstock)
 
 ![](20250215_Misotsuchi_1920x1080.jpg)
 
