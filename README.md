@@ -1,3 +1,7 @@
+#### 20250216 座头鲸妈妈和宝宝，汤加 (© Chase Dekker/Minden Pictures)
+
+![](images/2025-02/20250216_HumpbackMother_1920x1080.jpg)
+
 #### 20250215 Icicles of Misotsuchi, Chichibu, Japan (© watayu0821/Shutterstock)
 
 ![](images/2025-02/20250215_Misotsuchi_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250209 Alstrom Point, Lake Powell, Utah (© T.M. Schultze/TANDEM Stills + Motion)
 
 ![](images/2025-02/20250209_AlstromPoint_1920x1080.jpg)
-
-#### 20250208 Medieval towers in Mestia, Upper Svaneti, Georgia (© photoaliona/Getty Images)
-
-![](images/2025-02/20250208_SnowySvaneti_1920x1080.jpg)
 
 
 

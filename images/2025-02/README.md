@@ -1,3 +1,7 @@
+#### 20250216 座头鲸妈妈和宝宝，汤加 (© Chase Dekker/Minden Pictures)
+
+![](20250216_HumpbackMother_1920x1080.jpg)
+
 #### 20250215 Icicles of Misotsuchi, Chichibu, Japan (© watayu0821/Shutterstock)
 
 ![](20250215_Misotsuchi_1920x1080.jpg)
