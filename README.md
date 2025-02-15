@@ -2,6 +2,10 @@
 
 ![](images/2025-02/20250215_Misotsuchi_1920x1080.jpg)
 
+#### 20250215 Défilé du Carnaval de Nice, le Roi sur la Promenade des Anglais (© aerial-photos.com/Alamy Stock Photo)
+
+![](images/2025-02/20250215_CarnivalNice_1920x1080.jpg)
+
 #### 20250214 Magellanic penguins in the Falkland Islands (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)
 
 ![](images/2025-02/20250214_PenguinLove_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250208 Medieval towers in Mestia, Upper Svaneti, Georgia (© photoaliona/Getty Images)
 
 ![](images/2025-02/20250208_SnowySvaneti_1920x1080.jpg)
-
-#### 20250207 Pyramide du Louvre, Paris, France (© Andriy Kravchenko/Alamy Stock Photo)
-
-![](images/2025-02/20250207_LouvreRainyDay_1920x1080.jpg)
 
 
 

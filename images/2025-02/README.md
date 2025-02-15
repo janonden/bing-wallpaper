@@ -2,6 +2,10 @@
 
 ![](20250215_Misotsuchi_1920x1080.jpg)
 
+#### 20250215 Défilé du Carnaval de Nice, le Roi sur la Promenade des Anglais (© aerial-photos.com/Alamy Stock Photo)
+
+![](20250215_CarnivalNice_1920x1080.jpg)
+
 #### 20250214 Magellanic penguins in the Falkland Islands (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)
 
 ![](20250214_PenguinLove_1920x1080.jpg)
