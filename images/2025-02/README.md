@@ -1,3 +1,7 @@
+#### 20250217 Coll d'Ares，加泰罗尼亚比利牛斯​​山脉 (© CRISTIAN IONUT ZAHARIA/Shutterstock)
+
+![](20250217_CatalanPyrenees_1920x1080.jpg)
+
 #### 20250216 Humpback whale mother and calf, Tonga (© Chase Dekker/Minden Pictures)
 
 ![](20250216_HumpbackMother_1920x1080.jpg)
