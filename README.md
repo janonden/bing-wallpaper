@@ -1,4 +1,4 @@
-#### 20250216 座头鲸妈妈和宝宝，汤加 (© Chase Dekker/Minden Pictures)
+#### 20250216 Humpback whale mother and calf, Tonga (© Chase Dekker/Minden Pictures)
 
 ![](images/2025-02/20250216_HumpbackMother_1920x1080.jpg)
 
