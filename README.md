@@ -1,3 +1,7 @@
+#### 20250218 大蓝洞，伯利兹 (© JamiesOnAMission/Shutterstock)
+
+![](images/2025-02/20250218_BlueBelize_1920x1080.jpg)
+
 #### 20250217 The Washington Monument seen from the Lincoln Memorial, Washington, DC (© lucky-photographer/Alamy)
 
 ![](images/2025-02/20250217_LincolnSunrise_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250210 Art installation of umbrellas at Borough Market in London, England (© Malcolm P Chapman/Getty Images)
 
 ![](images/2025-02/20250210_UmbrellaDay_1920x1080.jpg)
-
-#### 20250210 Banff National Park in winter, Alberta, Canada (© Waitforlight/Moment/Getty Images)
-
-![](images/2025-02/20250210_BanffSnow_1920x1080.jpg)
 
 
 

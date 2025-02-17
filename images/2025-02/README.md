@@ -1,3 +1,7 @@
+#### 20250218 大蓝洞，伯利兹 (© JamiesOnAMission/Shutterstock)
+
+![](20250218_BlueBelize_1920x1080.jpg)
+
 #### 20250217 The Washington Monument seen from the Lincoln Memorial, Washington, DC (© lucky-photographer/Alamy)
 
 ![](20250217_LincolnSunrise_1920x1080.jpg)
