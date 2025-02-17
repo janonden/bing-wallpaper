@@ -1,3 +1,7 @@
+#### 20250217 The Washington Monument seen from the Lincoln Memorial, Washington, DC (© lucky-photographer/Alamy)
+
+![](images/2025-02/20250217_LincolnSunrise_1920x1080.jpg)
+
 #### 20250217 Coll d'Ares，加泰罗尼亚比利牛斯​​山脉 (© CRISTIAN IONUT ZAHARIA/Shutterstock)
 
 ![](images/2025-02/20250217_CatalanPyrenees_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250210 Banff National Park in winter, Alberta, Canada (© Waitforlight/Moment/Getty Images)
 
 ![](images/2025-02/20250210_BanffSnow_1920x1080.jpg)
-
-#### 20250209 Leonardo Glass Cube, Bad Driburg, Nordrhein-Westfalen (© Nathan Willock-VIEW/Alamy Stock Foto)
-
-![](images/2025-02/20250209_LeonardoGlassCubeBadDriburg_1920x1080.jpg)
 
 
 

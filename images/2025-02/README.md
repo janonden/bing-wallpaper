@@ -1,3 +1,7 @@
+#### 20250217 The Washington Monument seen from the Lincoln Memorial, Washington, DC (© lucky-photographer/Alamy)
+
+![](20250217_LincolnSunrise_1920x1080.jpg)
+
 #### 20250217 Coll d'Ares，加泰罗尼亚比利牛斯​​山脉 (© CRISTIAN IONUT ZAHARIA/Shutterstock)
 
 ![](20250217_CatalanPyrenees_1920x1080.jpg)
