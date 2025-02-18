@@ -1,3 +1,7 @@
+#### 20250219 欧亚水獭，莱利斯塔德，荷兰 (© Ernst Dirksen/Minden Pictures)
+
+![](images/2025-02/20250219_IceHoleOtter_1920x1080.jpg)
+
 #### 20250218 Great Blue Hole, Belize (© JamiesOnAMission/Shutterstock)
 
 ![](images/2025-02/20250218_BlueBelize_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250211 春の訪れを告げる梅の花, 茨城県 水戸市 (© dekitateyo/shutterstock)
 
 ![](images/2025-02/20250211_KairakuUme_1920x1080.jpg)
-
-#### 20250210 Art installation of umbrellas at Borough Market in London, England (© Malcolm P Chapman/Getty Images)
-
-![](images/2025-02/20250210_UmbrellaDay_1920x1080.jpg)
 
 
 
