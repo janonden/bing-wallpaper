@@ -1,3 +1,11 @@
+#### 20250220 ケーニッヒシュタイン要塞, ドイツ (© Bildagentur-online/Exss/Alamy)
+
+![](images/2025-02/20250220_FestungKonigsteinElbsandsteingebirge_1920x1080.jpg)
+
+#### 20250220 马鹿，加拿大 (© Delbars/Getty Images)
+
+![](images/2025-02/20250220_CanadaDeer_1920x1080.jpg)
+
 #### 20250219 European river otter, Lelystad, Netherlands (© Ernst Dirksen/Minden Pictures)
 
 ![](images/2025-02/20250219_IceHoleOtter_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20250212 Marine iguanas, Galápagos Islands, Ecuador (© helovi/Getty Images)
 
 ![](images/2025-02/20250212_GalapagosIguana_1920x1080.jpg)
-
-#### 20250211 Yungang Grottoes, Datong, Shanxi province, China (© Eric Yang/Getty Images)
-
-![](images/2025-02/20250211_YungangGrottoes_1920x1080.jpg)
-
-#### 20250211 春の訪れを告げる梅の花, 茨城県 水戸市 (© dekitateyo/shutterstock)
-
-![](images/2025-02/20250211_KairakuUme_1920x1080.jpg)
 
 
 

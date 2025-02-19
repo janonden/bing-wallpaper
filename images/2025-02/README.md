@@ -1,3 +1,11 @@
+#### 20250220 ケーニッヒシュタイン要塞, ドイツ (© Bildagentur-online/Exss/Alamy)
+
+![](20250220_FestungKonigsteinElbsandsteingebirge_1920x1080.jpg)
+
+#### 20250220 马鹿，加拿大 (© Delbars/Getty Images)
+
+![](20250220_CanadaDeer_1920x1080.jpg)
+
 #### 20250219 European river otter, Lelystad, Netherlands (© Ernst Dirksen/Minden Pictures)
 
 ![](20250219_IceHoleOtter_1920x1080.jpg)
