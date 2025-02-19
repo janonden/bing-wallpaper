@@ -1,4 +1,4 @@
-#### 20250219 欧亚水獭，莱利斯塔德，荷兰 (© Ernst Dirksen/Minden Pictures)
+#### 20250219 European river otter, Lelystad, Netherlands (© Ernst Dirksen/Minden Pictures)
 
 ![](20250219_IceHoleOtter_1920x1080.jpg)
 
