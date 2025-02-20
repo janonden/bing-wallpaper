@@ -1,3 +1,7 @@
+#### 20250221 希莫加附近的 Champaka Sarasi 池塘，卡纳塔克邦，印度 (© Amith Nag Photography/Getty Images)
+
+![](20250221_ChampakaSarasi_1920x1080.jpg)
+
 #### 20250220 ケーニッヒシュタイン要塞, ドイツ (© Bildagentur-online/Exss/Alamy)
 
 ![](20250220_FestungKonigsteinElbsandsteingebirge_1920x1080.jpg)

@@ -1,3 +1,7 @@
+#### 20250221 希莫加附近的 Champaka Sarasi 池塘，卡纳塔克邦，印度 (© Amith Nag Photography/Getty Images)
+
+![](images/2025-02/20250221_ChampakaSarasi_1920x1080.jpg)
+
 #### 20250220 ケーニッヒシュタイン要塞, ドイツ (© Bildagentur-online/Exss/Alamy)
 
 ![](images/2025-02/20250220_FestungKonigsteinElbsandsteingebirge_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250213 Kino Zoo Palast, Berlin (© Ponizak/Agencja Fotograficzna Caro/Alamy Stock Photo)
 
 ![](images/2025-02/20250213_BerlinKinoZooPalast_1920x1080.jpg)
-
-#### 20250212 ホッキョクグマ  (© Ondrej Prosicky/Shutterstock)
-
-![](images/2025-02/20250212_PolarBearSwim_1920x1080.jpg)
 
 
 
