@@ -6,6 +6,10 @@
 
 ![](images/2025-02/20250220_CanadaDeer_1920x1080.jpg)
 
+#### 20250220 Heure bleue à Trondheim, Norvège (© Jeanny Mueller/Getty Images)
+
+![](images/2025-02/20250220_BlueNorway_1920x1080.jpg)
+
 #### 20250219 European river otter, Lelystad, Netherlands (© Ernst Dirksen/Minden Pictures)
 
 ![](images/2025-02/20250219_IceHoleOtter_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250212 上海豫园的灯会，元宵节，上海市，中国 (© atiger/Shutterstock)
 
 ![](images/2025-02/20250212_LanterFestival_1920x1080.jpg)
-
-#### 20250212 Marine iguanas, Galápagos Islands, Ecuador (© helovi/Getty Images)
-
-![](images/2025-02/20250212_GalapagosIguana_1920x1080.jpg)
 
 
 

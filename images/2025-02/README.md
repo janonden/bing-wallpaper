@@ -6,6 +6,10 @@
 
 ![](20250220_CanadaDeer_1920x1080.jpg)
 
+#### 20250220 Heure bleue à Trondheim, Norvège (© Jeanny Mueller/Getty Images)
+
+![](20250220_BlueNorway_1920x1080.jpg)
+
 #### 20250219 European river otter, Lelystad, Netherlands (© Ernst Dirksen/Minden Pictures)
 
 ![](20250219_IceHoleOtter_1920x1080.jpg)
