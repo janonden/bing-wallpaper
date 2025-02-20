@@ -10,6 +10,10 @@
 
 ![](images/2025-02/20250220_BlueNorway_1920x1080.jpg)
 
+#### 20250220 Alpenglow on Half Dome, Yosemite National Park, California (© Matthew Kuhns/TANDEM Stills + Motion)
+
+![](images/2025-02/20250220_AdamsYosemite_1920x1080.jpg)
+
 #### 20250219 European river otter, Lelystad, Netherlands (© Ernst Dirksen/Minden Pictures)
 
 ![](images/2025-02/20250219_IceHoleOtter_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250212 ホッキョクグマ  (© Ondrej Prosicky/Shutterstock)
 
 ![](images/2025-02/20250212_PolarBearSwim_1920x1080.jpg)
-
-#### 20250212 上海豫园的灯会，元宵节，上海市，中国 (© atiger/Shutterstock)
-
-![](images/2025-02/20250212_LanterFestival_1920x1080.jpg)
 
 
 

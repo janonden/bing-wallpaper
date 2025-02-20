@@ -10,6 +10,10 @@
 
 ![](20250220_BlueNorway_1920x1080.jpg)
 
+#### 20250220 Alpenglow on Half Dome, Yosemite National Park, California (© Matthew Kuhns/TANDEM Stills + Motion)
+
+![](20250220_AdamsYosemite_1920x1080.jpg)
+
 #### 20250219 European river otter, Lelystad, Netherlands (© Ernst Dirksen/Minden Pictures)
 
 ![](20250219_IceHoleOtter_1920x1080.jpg)
