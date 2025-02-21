@@ -34,6 +34,10 @@
 
 ![](20250218_BlueBelize_1920x1080.jpg)
 
+#### 20250217 雲崗石窟, 中国 山西省 (© Eric Yang/Getty Images)
+
+![](20250217_YungangGrottoes_1920x1080.jpg)
+
 #### 20250217 The Washington Monument seen from the Lincoln Memorial, Washington, DC (© lucky-photographer/Alamy)
 
 ![](20250217_LincolnSunrise_1920x1080.jpg)

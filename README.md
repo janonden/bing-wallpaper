@@ -34,6 +34,10 @@
 
 ![](images/2025-02/20250218_BlueBelize_1920x1080.jpg)
 
+#### 20250217 雲崗石窟, 中国 山西省 (© Eric Yang/Getty Images)
+
+![](images/2025-02/20250217_YungangGrottoes_1920x1080.jpg)
+
 #### 20250217 The Washington Monument seen from the Lincoln Memorial, Washington, DC (© lucky-photographer/Alamy)
 
 ![](images/2025-02/20250217_LincolnSunrise_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250215 Défilé du Carnaval de Nice, le Roi sur la Promenade des Anglais (© aerial-photos.com/Alamy Stock Photo)
 
 ![](images/2025-02/20250215_CarnivalNice_1920x1080.jpg)
-
-#### 20250214 Magellanic penguins in the Falkland Islands (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)
-
-![](images/2025-02/20250214_PenguinLove_1920x1080.jpg)
 
 
 
