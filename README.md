@@ -1,3 +1,7 @@
+#### 20250222 圣路易斯拱门, 密苏里州, 美国 (© f11photo/Getty Images)
+
+![](images/2025-02/20250222_StLouisArch_1920x1080.jpg)
+
 #### 20250221 Fête du citron, Menton, Alpes-Maritimes (© NelzTabcharani316/Shutterstock)
 
 ![](images/2025-02/20250221_MentonFestival_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250215 Icicles of Misotsuchi, Chichibu, Japan (© watayu0821/Shutterstock)
 
 ![](images/2025-02/20250215_Misotsuchi_1920x1080.jpg)
-
-#### 20250215 Défilé du Carnaval de Nice, le Roi sur la Promenade des Anglais (© aerial-photos.com/Alamy Stock Photo)
-
-![](images/2025-02/20250215_CarnivalNice_1920x1080.jpg)
 
 
 
