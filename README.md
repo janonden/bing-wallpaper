@@ -1,3 +1,11 @@
+#### 20250221 Fête du citron, Menton, Alpes-Maritimes (© NelzTabcharani316/Shutterstock)
+
+![](images/2025-02/20250221_MentonFestival_1920x1080.jpg)
+
+#### 20250221 Stieglitze (Carduelis carduelis) auf der Nahrungssuche in einem Sonnenblumenfeld, Deutschland (© Arndt, S.E./Juniors Bildarchiv GmbH/Alamy Stock Foto)
+
+![](images/2025-02/20250221_GoldfinchSunflower_1920x1080.jpg)
+
 #### 20250221 希莫加附近的 Champaka Sarasi 池塘，卡纳塔克邦，印度 (© Amith Nag Photography/Getty Images)
 
 ![](images/2025-02/20250221_ChampakaSarasi_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20250214 Magellanic penguins in the Falkland Islands (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)
 
 ![](images/2025-02/20250214_PenguinLove_1920x1080.jpg)
-
-#### 20250213 Lake Tyrrell, Victoria, Australia (© Monica Bertolazzi/Getty Images)
-
-![](images/2025-02/20250213_LakeTyrrell_1920x1080.jpg)
-
-#### 20250213 Kino Zoo Palast, Berlin (© Ponizak/Agencja Fotograficzna Caro/Alamy Stock Photo)
-
-![](images/2025-02/20250213_BerlinKinoZooPalast_1920x1080.jpg)
 
 
 

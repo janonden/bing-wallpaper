@@ -1,3 +1,11 @@
+#### 20250221 Fête du citron, Menton, Alpes-Maritimes (© NelzTabcharani316/Shutterstock)
+
+![](20250221_MentonFestival_1920x1080.jpg)
+
+#### 20250221 Stieglitze (Carduelis carduelis) auf der Nahrungssuche in einem Sonnenblumenfeld, Deutschland (© Arndt, S.E./Juniors Bildarchiv GmbH/Alamy Stock Foto)
+
+![](20250221_GoldfinchSunflower_1920x1080.jpg)
+
 #### 20250221 希莫加附近的 Champaka Sarasi 池塘，卡纳塔克邦，印度 (© Amith Nag Photography/Getty Images)
 
 ![](20250221_ChampakaSarasi_1920x1080.jpg)
