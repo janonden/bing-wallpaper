@@ -1,3 +1,7 @@
+#### 20250223 日出时分的富士山, 河口湖, 日本 (© Twenty47studio/Getty Images)
+
+![](20250223_MtFujiSunrise_1920x1080.jpg)
+
 #### 20250222 The Gateway Arch in St. Louis, Missouri (© f11photo/Getty Images)
 
 ![](20250222_StLouisArch_1920x1080.jpg)
