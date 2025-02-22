@@ -1,4 +1,4 @@
-#### 20250222 圣路易斯拱门, 密苏里州, 美国 (© f11photo/Getty Images)
+#### 20250222 The Gateway Arch in St. Louis, Missouri (© f11photo/Getty Images)
 
 ![](20250222_StLouisArch_1920x1080.jpg)
 
