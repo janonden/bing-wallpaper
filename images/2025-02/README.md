@@ -1,3 +1,11 @@
+#### 20250224 リブルヘッド高架橋, イングランド ノース・ヨークシャー (© AWL Images/DanitaDelimont.com)
+
+![](20250224_RibbleheadViaduct_1920x1080.jpg)
+
+#### 20250224 斯潘塞湾的一群伞膜乌贼, 怀阿拉,南澳大利亚 (© Gary Bell/Minden Pictures)
+
+![](20250224_GiantCuttlefish_1920x1080.jpg)
+
 #### 20250223 Mount Fuji at sunrise, Lake Kawaguchi, Japan (© Twenty47studio/Getty Images)
 
 ![](20250223_MtFujiSunrise_1920x1080.jpg)
