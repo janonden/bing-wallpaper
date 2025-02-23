@@ -1,4 +1,4 @@
-#### 20250223 日出时分的富士山, 河口湖, 日本 (© Twenty47studio/Getty Images)
+#### 20250223 Mount Fuji at sunrise, Lake Kawaguchi, Japan (© Twenty47studio/Getty Images)
 
 ![](images/2025-02/20250223_MtFujiSunrise_1920x1080.jpg)
 
