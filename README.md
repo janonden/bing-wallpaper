@@ -1,3 +1,7 @@
+#### 20250225 砂岩石柱，布莱斯峡谷国家公园，犹他州，美国 (© Stephen Matera/TANDEM Stills + Motion)
+
+![](images/2025-02/20250225_BryceHoodoos_1920x1080.jpg)
+
 #### 20250224 リブルヘッド高架橋, イングランド ノース・ヨークシャー (© AWL Images/DanitaDelimont.com)
 
 ![](images/2025-02/20250224_RibbleheadViaduct_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250217 雲崗石窟, 中国 山西省 (© Eric Yang/Getty Images)
 
 ![](images/2025-02/20250217_YungangGrottoes_1920x1080.jpg)
-
-#### 20250217 The Washington Monument seen from the Lincoln Memorial, Washington, DC (© lucky-photographer/Alamy)
-
-![](images/2025-02/20250217_LincolnSunrise_1920x1080.jpg)
 
 
 

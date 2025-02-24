@@ -1,3 +1,7 @@
+#### 20250225 砂岩石柱，布莱斯峡谷国家公园，犹他州，美国 (© Stephen Matera/TANDEM Stills + Motion)
+
+![](20250225_BryceHoodoos_1920x1080.jpg)
+
 #### 20250224 リブルヘッド高架橋, イングランド ノース・ヨークシャー (© AWL Images/DanitaDelimont.com)
 
 ![](20250224_RibbleheadViaduct_1920x1080.jpg)
