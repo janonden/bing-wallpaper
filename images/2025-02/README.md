@@ -2,7 +2,7 @@
 
 ![](20250224_RibbleheadViaduct_1920x1080.jpg)
 
-#### 20250224 斯潘塞湾的一群伞膜乌贼, 怀阿拉,南澳大利亚 (© Gary Bell/Minden Pictures)
+#### 20250224 Group of giant cuttlefish in Spencer Gulf, off Whyalla, South Australia (© Gary Bell/Minden Pictures)
 
 ![](20250224_GiantCuttlefish_1920x1080.jpg)
 
