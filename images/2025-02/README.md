@@ -2,7 +2,7 @@
 
 ![](20250225_MillauBridge_1920x1080.jpg)
 
-#### 20250225 砂岩石柱，布莱斯峡谷国家公园，犹他州，美国 (© Stephen Matera/TANDEM Stills + Motion)
+#### 20250225 Sandstone hoodoos, Bryce Canyon National Park, Utah (© Stephen Matera/TANDEM Stills + Motion)
 
 ![](20250225_BryceHoodoos_1920x1080.jpg)
 
