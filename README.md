@@ -1,3 +1,7 @@
+#### 20250226 莱奇湖上的斯托克尔城堡，阿盖尔郡，苏格兰 (© WLDavies/Getty Images)
+
+![](images/2025-02/20250226_ArgyllStalker_1920x1080.jpg)
+
 #### 20250225 Viaduc de Millau, Aveyron, France (© Andrzej Gorzkowski Photography/Alamy Stock Photo)
 
 ![](images/2025-02/20250225_MillauBridge_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250219 European river otter, Lelystad, Netherlands (© Ernst Dirksen/Minden Pictures)
 
 ![](images/2025-02/20250219_IceHoleOtter_1920x1080.jpg)
-
-#### 20250218 Great Blue Hole, Belize (© JamiesOnAMission/Shutterstock)
-
-![](images/2025-02/20250218_BlueBelize_1920x1080.jpg)
 
 
 

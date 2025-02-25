@@ -1,3 +1,7 @@
+#### 20250226 莱奇湖上的斯托克尔城堡，阿盖尔郡，苏格兰 (© WLDavies/Getty Images)
+
+![](20250226_ArgyllStalker_1920x1080.jpg)
+
 #### 20250225 Viaduc de Millau, Aveyron, France (© Andrzej Gorzkowski Photography/Alamy Stock Photo)
 
 ![](20250225_MillauBridge_1920x1080.jpg)
