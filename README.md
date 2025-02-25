@@ -1,3 +1,7 @@
+#### 20250225 Viaduc de Millau, Aveyron, France (© Andrzej Gorzkowski Photography/Alamy Stock Photo)
+
+![](images/2025-02/20250225_MillauBridge_1920x1080.jpg)
+
 #### 20250225 砂岩石柱，布莱斯峡谷国家公园，犹他州，美国 (© Stephen Matera/TANDEM Stills + Motion)
 
 ![](images/2025-02/20250225_BryceHoodoos_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250218 Great Blue Hole, Belize (© JamiesOnAMission/Shutterstock)
 
 ![](images/2025-02/20250218_BlueBelize_1920x1080.jpg)
-
-#### 20250217 雲崗石窟, 中国 山西省 (© Eric Yang/Getty Images)
-
-![](images/2025-02/20250217_YungangGrottoes_1920x1080.jpg)
 
 
 
