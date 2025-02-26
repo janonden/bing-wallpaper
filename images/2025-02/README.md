@@ -1,4 +1,4 @@
-#### 20250226 莱奇湖上的斯托克尔城堡，阿盖尔郡，苏格兰 (© WLDavies/Getty Images)
+#### 20250226 Castle Stalker on Loch Laich, Argyll, Scotland (© WLDavies/Getty Images)
 
 ![](20250226_ArgyllStalker_1920x1080.jpg)
 
