@@ -1,3 +1,7 @@
+#### 20250227 北极熊幼崽，丘吉尔，马尼托巴省，加拿大 (© Eric Baccega/NPL/Minden Pictures)
+
+![](images/2025-02/20250227_PolarCub_1920x1080.jpg)
+
 #### 20250226 Castle Stalker on Loch Laich, Argyll, Scotland (© WLDavies/Getty Images)
 
 ![](images/2025-02/20250226_ArgyllStalker_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250220 Alpenglow on Half Dome, Yosemite National Park, California (© Matthew Kuhns/TANDEM Stills + Motion)
 
 ![](images/2025-02/20250220_AdamsYosemite_1920x1080.jpg)
-
-#### 20250219 European river otter, Lelystad, Netherlands (© Ernst Dirksen/Minden Pictures)
-
-![](images/2025-02/20250219_IceHoleOtter_1920x1080.jpg)
 
 
 
