@@ -2,6 +2,10 @@
 
 ![](images/2025-02/20250227_PolarCub_1920x1080.jpg)
 
+#### 20250227 Hohenzollernbrücke mit dem Kölner Dom und dem Rhein bei Sonnenuntergang in Köln (© Prasit Rodphan/Alamy Stock Foto)
+
+![](images/2025-02/20250227_CologneNight_1920x1080.jpg)
+
 #### 20250226 Castle Stalker on Loch Laich, Argyll, Scotland (© WLDavies/Getty Images)
 
 ![](images/2025-02/20250226_ArgyllStalker_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250220 Heure bleue à Trondheim, Norvège (© Jeanny Mueller/Getty Images)
 
 ![](images/2025-02/20250220_BlueNorway_1920x1080.jpg)
-
-#### 20250220 Alpenglow on Half Dome, Yosemite National Park, California (© Matthew Kuhns/TANDEM Stills + Motion)
-
-![](images/2025-02/20250220_AdamsYosemite_1920x1080.jpg)
 
 
 

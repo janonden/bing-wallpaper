@@ -2,6 +2,10 @@
 
 ![](20250227_PolarCub_1920x1080.jpg)
 
+#### 20250227 Hohenzollernbrücke mit dem Kölner Dom und dem Rhein bei Sonnenuntergang in Köln (© Prasit Rodphan/Alamy Stock Foto)
+
+![](20250227_CologneNight_1920x1080.jpg)
+
 #### 20250226 Castle Stalker on Loch Laich, Argyll, Scotland (© WLDavies/Getty Images)
 
 ![](20250226_ArgyllStalker_1920x1080.jpg)
