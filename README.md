@@ -1,4 +1,4 @@
-#### 20250227 北极熊幼崽，丘吉尔，马尼托巴省，加拿大 (© Eric Baccega/NPL/Minden Pictures)
+#### 20250227 Polar bear cub, Churchill, Manitoba, Canada (© Eric Baccega/NPL/Minden Pictures)
 
 ![](images/2025-02/20250227_PolarCub_1920x1080.jpg)
 
