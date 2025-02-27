@@ -1,3 +1,7 @@
+#### 20250228 虎穴寺，不丹 (© Baron Reznik/Getty Images)
+
+![](20250228_BhutanMonastery_1920x1080.jpg)
+
 #### 20250227 Polar bear cub, Churchill, Manitoba, Canada (© Eric Baccega/NPL/Minden Pictures)
 
 ![](20250227_PolarCub_1920x1080.jpg)

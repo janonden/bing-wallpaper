@@ -1,3 +1,7 @@
+#### 20250228 虎穴寺，不丹 (© Baron Reznik/Getty Images)
+
+![](images/2025-02/20250228_BhutanMonastery_1920x1080.jpg)
+
 #### 20250227 Polar bear cub, Churchill, Manitoba, Canada (© Eric Baccega/NPL/Minden Pictures)
 
 ![](images/2025-02/20250227_PolarCub_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250220 马鹿，加拿大 (© Delbars/Getty Images)
 
 ![](images/2025-02/20250220_CanadaDeer_1920x1080.jpg)
-
-#### 20250220 Heure bleue à Trondheim, Norvège (© Jeanny Mueller/Getty Images)
-
-![](images/2025-02/20250220_BlueNorway_1920x1080.jpg)
 
 
 
