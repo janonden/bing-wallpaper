@@ -1,4 +1,8 @@
-#### 20250228 虎穴寺，不丹 (© Baron Reznik/Getty Images)
+#### 20250228 Desert bighorn sheep in Valley of Fire State Park, Nevada, United States (© Rachid Dahnoun/Cavan Images)
+
+![](images/2025-02/20250228_NevadaBigHorns_1920x1080.jpg)
+
+#### 20250228 Paro Taktsang, a Buddhist monastery in Bhutan (© Baron Reznik/Getty Images)
 
 ![](images/2025-02/20250228_BhutanMonastery_1920x1080.jpg)
 
@@ -53,10 +57,6 @@
 #### 20250220 ケーニッヒシュタイン要塞, ドイツ (© Bildagentur-online/Exss/Alamy)
 
 ![](images/2025-02/20250220_FestungKonigsteinElbsandsteingebirge_1920x1080.jpg)
-
-#### 20250220 马鹿，加拿大 (© Delbars/Getty Images)
-
-![](images/2025-02/20250220_CanadaDeer_1920x1080.jpg)
 
 
 
