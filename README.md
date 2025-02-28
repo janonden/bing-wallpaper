@@ -1,3 +1,11 @@
+#### 20250301 玛琳湖精灵岛上空的北极光，贾斯珀国家公园，加拿大 (© Mumemories/Getty Images)
+
+![](images/2025-03/20250301_MaligneLakeJasper_1920x1080.jpg)
+
+#### 20250301 ブルー・マウンテンズ国立公園, オーストラリア ニューサウスウェールズ州 (© Andrew Peacock/TANDEM Stills + Motion)
+
+![](images/2025-03/20250301_EucalyptusForest_1920x1080.jpg)
+
 #### 20250228 Desert bighorn sheep in Valley of Fire State Park, Nevada, United States (© Rachid Dahnoun/Cavan Images)
 
 ![](images/2025-02/20250228_NevadaBigHorns_1920x1080.jpg)
@@ -50,14 +58,6 @@
 
 ![](images/2025-02/20250221_GoldfinchSunflower_1920x1080.jpg)
 
-#### 20250221 Champaka Sarasi pond near Shivamogga, Karnataka, India (© Amith Nag Photography/Getty Images)
-
-![](images/2025-02/20250221_ChampakaSarasi_1920x1080.jpg)
-
-#### 20250220 ケーニッヒシュタイン要塞, ドイツ (© Bildagentur-online/Exss/Alamy)
-
-![](images/2025-02/20250220_FestungKonigsteinElbsandsteingebirge_1920x1080.jpg)
-
 
 
 
@@ -66,7 +66,7 @@
 
 
 
-- 2025&emsp;&emsp;[02](images/2025-02/README.md) &emsp;&emsp;[01](images/2025-01/README.md) 
+- 2025&emsp;&emsp;[03](images/2025-03/README.md) &emsp;&emsp;[02](images/2025-02/README.md) &emsp;&emsp;[01](images/2025-01/README.md) 
 
 - 2024&emsp;&emsp;[12](https://github.com/janonden/bing-wallpaper/blob/2024/images/2024-12/README.md) &emsp;&emsp;[11](https://github.com/janonden/bing-wallpaper/blob/2024/images/2024-11/README.md) &emsp;&emsp;[10](https://github.com/janonden/bing-wallpaper/blob/2024/images/2024-10/README.md) &emsp;&emsp;[09](https://github.com/janonden/bing-wallpaper/blob/2024/images/2024-09/README.md) &emsp;&emsp;[08](https://github.com/janonden/bing-wallpaper/blob/2024/images/2024-08/README.md) &emsp;&emsp;[07](https://github.com/janonden/bing-wallpaper/blob/2024/images/2024-07/README.md) &emsp;&emsp;[06](https://github.com/janonden/bing-wallpaper/blob/2024/images/2024-06/README.md) &emsp;&emsp;[05](https://github.com/janonden/bing-wallpaper/blob/2024/images/2024-05/README.md) &emsp;&emsp;[04](https://github.com/janonden/bing-wallpaper/blob/2024/images/2024-04/README.md) &emsp;&emsp;[03](https://github.com/janonden/bing-wallpaper/blob/2024/images/2024-03/README.md) &emsp;&emsp;[02](https://github.com/janonden/bing-wallpaper/blob/2024/images/2024-02/README.md) &emsp;&emsp;[01](https://github.com/janonden/bing-wallpaper/blob/2024/images/2024-01/README.md) 
 
