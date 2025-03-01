@@ -1,3 +1,7 @@
+#### 20250302 ミナミキバシコサイチョウ, 南アフリカ (© Richard Du Toit/Minden Pictures)
+
+![](20250302_HornbillPair_1920x1080.jpg)
+
 #### 20250301 Dr. Anna Howard Shaw leading a suffrage parade in 1910s New York City (© Bettmann/Getty Images)
 
 ![](20250301_SuffragetteCity_1920x1080.jpg)

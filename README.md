@@ -1,3 +1,7 @@
+#### 20250302 ミナミキバシコサイチョウ, 南アフリカ (© Richard Du Toit/Minden Pictures)
+
+![](images/2025-03/20250302_HornbillPair_1920x1080.jpg)
+
 #### 20250301 Dr. Anna Howard Shaw leading a suffrage parade in 1910s New York City (© Bettmann/Getty Images)
 
 ![](images/2025-03/20250301_SuffragetteCity_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250222 The Gateway Arch in St. Louis, Missouri (© f11photo/Getty Images)
 
 ![](images/2025-02/20250222_StLouisArch_1920x1080.jpg)
-
-#### 20250221 Fête du citron, Menton, Alpes-Maritimes (© NelzTabcharani316/Shutterstock)
-
-![](images/2025-02/20250221_MentonFestival_1920x1080.jpg)
 
 
 
