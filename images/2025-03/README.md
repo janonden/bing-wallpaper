@@ -10,7 +10,7 @@
 
 ![](20250301_MaligneLakeJasper_1920x1080.jpg)
 
-#### 20250301 ブルー・マウンテンズ国立公園, オーストラリア ニューサウスウェールズ州 (© Andrew Peacock/TANDEM Stills + Motion)
+#### 20250301 Eucalyptus trees, Megalong Valley, Blue Mountains National Park, NSW, Australia (© Andrew Peacock/TANDEM Stills + Motion)
 
 ![](20250301_EucalyptusForest_1920x1080.jpg)
 
