@@ -1,3 +1,7 @@
+#### 20250303 かぐやびな, 兵庫県 上郡町 (© Buddhika Weerasinghe/特派員/Getty Images)
+
+![](images/2025-03/20250303_Hinamatsuri_1920x1080.jpg)
+
 #### 20250302 ミナミキバシコサイチョウ, 南アフリカ (© Richard Du Toit/Minden Pictures)
 
 ![](images/2025-03/20250302_HornbillPair_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250223 Mount Fuji at sunrise, Lake Kawaguchi, Japan (© Twenty47studio/Getty Images)
 
 ![](images/2025-02/20250223_MtFujiSunrise_1920x1080.jpg)
-
-#### 20250222 The Gateway Arch in St. Louis, Missouri (© f11photo/Getty Images)
-
-![](images/2025-02/20250222_StLouisArch_1920x1080.jpg)
 
 
 
