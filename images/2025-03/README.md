@@ -1,3 +1,7 @@
+#### 20250304 杰克逊广场，新奥尔良，路易斯安那州，美国 (© SeanPavonePhoto/Getty Images)
+
+![](20250304_MardiGrasJackson_1920x1080.jpg)
+
 #### 20250303 かぐやびな, 兵庫県 上郡町 (© Buddhika Weerasinghe/特派員/Getty Images)
 
 ![](20250303_Hinamatsuri_1920x1080.jpg)

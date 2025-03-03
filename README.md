@@ -1,3 +1,7 @@
+#### 20250304 杰克逊广场，新奥尔良，路易斯安那州，美国 (© SeanPavonePhoto/Getty Images)
+
+![](images/2025-03/20250304_MardiGrasJackson_1920x1080.jpg)
+
 #### 20250303 かぐやびな, 兵庫県 上郡町 (© Buddhika Weerasinghe/特派員/Getty Images)
 
 ![](images/2025-03/20250303_Hinamatsuri_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250224 Group of giant cuttlefish in Spencer Gulf, off Whyalla, South Australia (© Gary Bell/Minden Pictures)
 
 ![](images/2025-02/20250224_GiantCuttlefish_1920x1080.jpg)
-
-#### 20250223 Mount Fuji at sunrise, Lake Kawaguchi, Japan (© Twenty47studio/Getty Images)
-
-![](images/2025-02/20250223_MtFujiSunrise_1920x1080.jpg)
 
 
 
