@@ -1,4 +1,4 @@
-#### 20250304 杰克逊广场，新奥尔良，路易斯安那州，美国 (© SeanPavonePhoto/Getty Images)
+#### 20250304 Jackson Square, New Orleans, Louisiana (© SeanPavonePhoto/Getty Images)
 
 ![](20250304_MardiGrasJackson_1920x1080.jpg)
 
