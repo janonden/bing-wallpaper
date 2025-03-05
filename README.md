@@ -1,4 +1,4 @@
-#### 20250305 俯瞰拷索山林国家公园，素叻府，泰国 (© Peetatham Kongkapech/Getty Images)
+#### 20250305 Aerial view of Khao Sok National Park, Surat Thani, Thailand (© Peetatham Kongkapech/Getty Images)
 
 ![](images/2025-03/20250305_SuratThani_1920x1080.jpg)
 
