@@ -1,3 +1,7 @@
+#### 20250306 Walterdale Bridge in Edmonton, Canada (© ronniechua/Getty Images)
+
+![](20250306_WalterdaleBridge_1920x1080.jpg)
+
 #### 20250305 Aerial view of Khao Sok National Park, Surat Thani, Thailand (© Peetatham Kongkapech/Getty Images)
 
 ![](20250305_SuratThani_1920x1080.jpg)

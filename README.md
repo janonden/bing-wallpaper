@@ -1,3 +1,7 @@
+#### 20250306 Walterdale Bridge in Edmonton, Canada (© ronniechua/Getty Images)
+
+![](images/2025-03/20250306_WalterdaleBridge_1920x1080.jpg)
+
 #### 20250305 Aerial view of Khao Sok National Park, Surat Thani, Thailand (© Peetatham Kongkapech/Getty Images)
 
 ![](images/2025-03/20250305_SuratThani_1920x1080.jpg)
@@ -26,7 +30,7 @@
 
 ![](images/2025-03/20250301_EucalyptusForest_1920x1080.jpg)
 
-#### 20250228 Desert bighorn sheep in Valley of Fire State Park, Nevada, United States (© Rachid Dahnoun/Cavan Images)
+#### 20250228 Desert bighorn sheep in Valley of Fire State Park, Nevada (© Rachid Dahnoun/Cavan Images)
 
 ![](images/2025-02/20250228_NevadaBigHorns_1920x1080.jpg)
 
@@ -53,10 +57,6 @@
 #### 20250225 Sandstone hoodoos, Bryce Canyon National Park, Utah (© Stephen Matera/TANDEM Stills + Motion)
 
 ![](images/2025-02/20250225_BryceHoodoos_1920x1080.jpg)
-
-#### 20250224 リブルヘッド高架橋, イングランド ノース・ヨークシャー (© AWL Images/DanitaDelimont.com)
-
-![](images/2025-02/20250224_RibbleheadViaduct_1920x1080.jpg)
 
 
 

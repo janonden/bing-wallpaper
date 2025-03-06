@@ -1,4 +1,4 @@
-#### 20250228 Desert bighorn sheep in Valley of Fire State Park, Nevada, United States (© Rachid Dahnoun/Cavan Images)
+#### 20250228 Desert bighorn sheep in Valley of Fire State Park, Nevada (© Rachid Dahnoun/Cavan Images)
 
 ![](20250228_NevadaBigHorns_1920x1080.jpg)
 
