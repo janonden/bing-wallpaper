@@ -1,4 +1,4 @@
-#### 20250307 中国的梅花 (© zhikun sun/Getty Images)
+#### 20250307 Plum blossoms in China (© zhikun sun/Getty Images)
 
 ![](images/2025-03/20250307_PlumBlossom_1920x1080.jpg)
 
