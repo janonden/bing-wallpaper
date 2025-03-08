@@ -2,7 +2,7 @@
 
 ![](images/2025-03/20250308_WaddenSeaBiosphereReserve_1920x1080.jpg)
 
-#### 20250308 恐れを知らぬ少女, 米国 ニューヨーク州 (© JOHANNES EISELE/AFP via Getty Images)
+#### 20250308 Fearless Girl statue facing the New York Stock Exchange, New York City (© JOHANNES EISELE/AFP via Getty Images)
 
 ![](images/2025-03/20250308_FearlessWomen_1920x1080.jpg)
 
