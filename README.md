@@ -2,7 +2,7 @@
 
 ![](images/2025-03/20250309_kingfisherFr_1920x1080.jpg)
 
-#### 20250309 圣马可钟楼，威尼斯，意大利 (© scaliger/Getty Images)
+#### 20250309 St. Mark's Clock Tower, Venice, Italy (© scaliger/Getty Images)
 
 ![](images/2025-03/20250309_ItalyClock_1920x1080.jpg)
 
