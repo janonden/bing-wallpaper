@@ -1,3 +1,11 @@
+#### 20250311 追悼イベントの灯籠, 宮城県 名取市 (© Kuni Takahashi/寄稿者/Getty Images)
+
+![](20250311_TohokuEarthquake_1920x1080.jpg)
+
+#### 20250311 努沙佩尼达岛的破碎海滩, 巴厘岛, 印度尼西亚 (© joakimbkk/Getty Images)
+
+![](20250311_NusaPenida_1920x1080.jpg)
+
 #### 20250310 パンダの赤ちゃん, 中国 (© Cheryl Schneider/Alamy)
 
 ![](20250310_PandaSnow_1920x1080.jpg)
