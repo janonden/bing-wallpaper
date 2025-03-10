@@ -2,7 +2,7 @@
 
 ![](images/2025-03/20250310_PandaSnow_1920x1080.jpg)
 
-#### 20250310 在伊沙沙区里正在睡觉的狮子，伊丽莎白女王国家公园，乌干达 (© Gunter Nuyts/Getty Images)
+#### 20250310 A lion sleeping in Ishasha Sector, Queen Elizabeth National Park, Uganda (© Gunter Nuyts/Getty Images)
 
 ![](images/2025-03/20250310_NappingLion_1920x1080.jpg)
 
