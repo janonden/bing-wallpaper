@@ -50,13 +50,13 @@
 
 ![](images/2025-03/20250306_WalterdaleBridge_1920x1080.jpg)
 
+#### 20250306 Desert bighorn sheep in Valley of Fire State Park, Nevada (© Rachid Dahnoun/Cavan Images)
+
+![](images/2025-03/20250306_NevadaBigHorns_1920x1080.jpg)
+
 #### 20250305 Aerial view of Khao Sok National Park, Surat Thani, Thailand (© Peetatham Kongkapech/Getty Images)
 
 ![](images/2025-03/20250305_SuratThani_1920x1080.jpg)
-
-#### 20250304 Jackson Square, New Orleans, Louisiana (© SeanPavonePhoto/Getty Images)
-
-![](images/2025-03/20250304_MardiGrasJackson_1920x1080.jpg)
 
 
 

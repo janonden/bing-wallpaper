@@ -50,6 +50,10 @@
 
 ![](20250306_WalterdaleBridge_1920x1080.jpg)
 
+#### 20250306 Desert bighorn sheep in Valley of Fire State Park, Nevada (© Rachid Dahnoun/Cavan Images)
+
+![](20250306_NevadaBigHorns_1920x1080.jpg)
+
 #### 20250305 Aerial view of Khao Sok National Park, Surat Thani, Thailand (© Peetatham Kongkapech/Getty Images)
 
 ![](20250305_SuratThani_1920x1080.jpg)
