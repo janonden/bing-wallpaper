@@ -2,7 +2,7 @@
 
 ![](20250311_TohokuEarthquake_1920x1080.jpg)
 
-#### 20250311 努沙佩尼达岛的破碎海滩, 巴厘岛, 印度尼西亚 (© joakimbkk/Getty Images)
+#### 20250311 Broken Beach in Nusa Penida, Bali, Indonesia (© joakimbkk/Getty Images)
 
 ![](20250311_NusaPenida_1920x1080.jpg)
 
