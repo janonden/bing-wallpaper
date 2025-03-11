@@ -1,3 +1,11 @@
+#### 20250312 東大寺, 奈良県 奈良市 (© Chris Willson/Alamy Stock Photo)
+
+![](images/2025-03/20250312_Omizutori_1920x1080.jpg)
+
+#### 20250312 卢瓦尔河畔叙利城堡, 卢瓦尔中心省, 法国 (© StockPhotoAstur/Shutterstock)
+
+![](images/2025-03/20250312_ChateauLoire_1920x1080.jpg)
+
 #### 20250311 追悼イベントの灯籠, 宮城県 名取市 (© Kuni Takahashi/寄稿者/Getty Images)
 
 ![](images/2025-03/20250311_TohokuEarthquake_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20250304 Jackson Square, New Orleans, Louisiana (© SeanPavonePhoto/Getty Images)
 
 ![](images/2025-03/20250304_MardiGrasJackson_1920x1080.jpg)
-
-#### 20250303 かぐやびな, 兵庫県 上郡町 (© Buddhika Weerasinghe/特派員/Getty Images)
-
-![](images/2025-03/20250303_Hinamatsuri_1920x1080.jpg)
-
-#### 20250302 Southern yellow-billed hornbills in Kruger National Park, South Africa (© Richard Du Toit/Minden Pictures)
-
-![](images/2025-03/20250302_HornbillPair_1920x1080.jpg)
 
 
 

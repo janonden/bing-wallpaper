@@ -1,3 +1,11 @@
+#### 20250312 東大寺, 奈良県 奈良市 (© Chris Willson/Alamy Stock Photo)
+
+![](20250312_Omizutori_1920x1080.jpg)
+
+#### 20250312 卢瓦尔河畔叙利城堡, 卢瓦尔中心省, 法国 (© StockPhotoAstur/Shutterstock)
+
+![](20250312_ChateauLoire_1920x1080.jpg)
+
 #### 20250311 追悼イベントの灯籠, 宮城県 名取市 (© Kuni Takahashi/寄稿者/Getty Images)
 
 ![](20250311_TohokuEarthquake_1920x1080.jpg)
