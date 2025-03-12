@@ -2,7 +2,7 @@
 
 ![](images/2025-03/20250312_Omizutori_1920x1080.jpg)
 
-#### 20250312 卢瓦尔河畔叙利城堡, 卢瓦尔中心省, 法国 (© StockPhotoAstur/Shutterstock)
+#### 20250312 Château de Sully-sur-Loire, Center-Val de Loire, France (© StockPhotoAstur/Shutterstock)
 
 ![](images/2025-03/20250312_ChateauLoire_1920x1080.jpg)
 
