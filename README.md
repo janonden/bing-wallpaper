@@ -2,6 +2,10 @@
 
 ![](images/2025-03/20250314_Piedmont_1920x1080.jpg)
 
+#### 20250314 索尔吉奈特克斯的巨石墓，巴斯克地区，阿拉瓦省，西班牙 (© David Herraez Calzada/plainpicture)
+
+![](images/2025-03/20250314_BasqueDolmen_1920x1080.jpg)
+
 #### 20250313 Holi celebration in Jaipur, India (© powerofforever/Getty Images)
 
 ![](images/2025-03/20250313_HoliColors_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250307 Plum blossoms in China (© zhikun sun/Getty Images)
 
 ![](images/2025-03/20250307_PlumBlossom_1920x1080.jpg)
-
-#### 20250306 Walterdale Bridge in Edmonton, Canada (© ronniechua/Getty Images)
-
-![](images/2025-03/20250306_WalterdaleBridge_1920x1080.jpg)
 
 
 

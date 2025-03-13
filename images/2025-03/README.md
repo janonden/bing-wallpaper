@@ -2,6 +2,10 @@
 
 ![](20250314_Piedmont_1920x1080.jpg)
 
+#### 20250314 索尔吉奈特克斯的巨石墓，巴斯克地区，阿拉瓦省，西班牙 (© David Herraez Calzada/plainpicture)
+
+![](20250314_BasqueDolmen_1920x1080.jpg)
+
 #### 20250313 Holi celebration in Jaipur, India (© powerofforever/Getty Images)
 
 ![](20250313_HoliColors_1920x1080.jpg)
