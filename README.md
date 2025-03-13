@@ -1,4 +1,8 @@
-#### 20250313 洒红节庆祝活动，斋浦尔，印度 (© powerofforever/Getty Images)
+#### 20250314 Gran Paradiso National Park, Piedmont, Italy (© Stefano Zaccaria/Alamy)
+
+![](images/2025-03/20250314_Piedmont_1920x1080.jpg)
+
+#### 20250313 Holi celebration in Jaipur, India (© powerofforever/Getty Images)
 
 ![](images/2025-03/20250313_HoliColors_1920x1080.jpg)
 
@@ -53,10 +57,6 @@
 #### 20250306 Walterdale Bridge in Edmonton, Canada (© ronniechua/Getty Images)
 
 ![](images/2025-03/20250306_WalterdaleBridge_1920x1080.jpg)
-
-#### 20250306 Desert bighorn sheep in Valley of Fire State Park, Nevada (© Rachid Dahnoun/Cavan Images)
-
-![](images/2025-03/20250306_NevadaBigHorns_1920x1080.jpg)
 
 
 

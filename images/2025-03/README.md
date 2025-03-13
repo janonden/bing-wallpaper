@@ -1,4 +1,8 @@
-#### 20250313 洒红节庆祝活动，斋浦尔，印度 (© powerofforever/Getty Images)
+#### 20250314 Gran Paradiso National Park, Piedmont, Italy (© Stefano Zaccaria/Alamy)
+
+![](20250314_Piedmont_1920x1080.jpg)
+
+#### 20250313 Holi celebration in Jaipur, India (© powerofforever/Getty Images)
 
 ![](20250313_HoliColors_1920x1080.jpg)
 
