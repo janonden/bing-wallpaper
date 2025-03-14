@@ -1,3 +1,7 @@
+#### 20250315 罗马广场上的罗马萨图尔诺农神庙，罗马，意大利 (© Nico De Pasquale Photography/Getty Images)
+
+![](images/2025-03/20250315_ForumRomanum_1920x1080.jpg)
+
 #### 20250314 Gran Paradiso National Park, Piedmont, Italy (© Stefano Zaccaria/Alamy)
 
 ![](images/2025-03/20250314_Piedmont_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250308 Fearless Girl statue facing the New York Stock Exchange, New York City (© JOHANNES EISELE/AFP via Getty Images)
 
 ![](images/2025-03/20250308_FearlessWomen_1920x1080.jpg)
-
-#### 20250307 Plum blossoms in China (© zhikun sun/Getty Images)
-
-![](images/2025-03/20250307_PlumBlossom_1920x1080.jpg)
 
 
 
