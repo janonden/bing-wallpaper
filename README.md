@@ -1,3 +1,7 @@
+#### 20250315 Ucluelet, Vancouver Island, British Columbia (© AWL Images/DanitaDelimont.com)
+
+![](images/2025-03/20250315_WhaleFestival_1920x1080.jpg)
+
 #### 20250315 罗马广场上的罗马萨图尔诺农神庙，罗马，意大利 (© Nico De Pasquale Photography/Getty Images)
 
 ![](images/2025-03/20250315_ForumRomanum_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250308 石勒苏益格-荷尔斯泰因州瓦登海国家公园，德国 (© 3quarks/Getty Images)
 
 ![](images/2025-03/20250308_WaddenSeaBiosphereReserve_1920x1080.jpg)
-
-#### 20250308 Fearless Girl statue facing the New York Stock Exchange, New York City (© JOHANNES EISELE/AFP via Getty Images)
-
-![](images/2025-03/20250308_FearlessWomen_1920x1080.jpg)
 
 
 
