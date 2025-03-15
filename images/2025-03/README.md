@@ -2,7 +2,7 @@
 
 ![](20250315_WhaleFestival_1920x1080.jpg)
 
-#### 20250315 罗马广场上的罗马萨图尔诺农神庙，罗马，意大利 (© Nico De Pasquale Photography/Getty Images)
+#### 20250315 The Temple of Saturn in the Roman Forum, Rome, Italy (© Nico De Pasquale Photography/Getty Images)
 
 ![](20250315_ForumRomanum_1920x1080.jpg)
 
