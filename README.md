@@ -1,3 +1,7 @@
+#### 20250317 A kingfisher perched on a branch (© NJphoto/Alamy)
+
+![](images/2025-03/20250317_BigGardenBirdwatch_1920x1080.jpg)
+
 #### 20250315 Ucluelet, Vancouver Island, British Columbia (© AWL Images/DanitaDelimont.com)
 
 ![](images/2025-03/20250315_WhaleFestival_1920x1080.jpg)
@@ -34,7 +38,7 @@
 
 ![](images/2025-03/20250311_NusaPenida_1920x1080.jpg)
 
-#### 20250310 パンダの赤ちゃん, 中国 (© Cheryl Schneider/Alamy)
+#### 20250310 Baby giant panda in the snow, China (© Cheryl Schneider/Alamy)
 
 ![](images/2025-03/20250310_PandaSnow_1920x1080.jpg)
 
@@ -53,10 +57,6 @@
 #### 20250309 Wallfahrtskirche Maria Gern und Watzmannmassiv, Berchtesgadener Alpen, Bayern (© bluejayphoto/Getty Images)
 
 ![](images/2025-03/20250309_BavarianAlpsMariaGern_1920x1080.jpg)
-
-#### 20250308 石勒苏益格-荷尔斯泰因州瓦登海国家公园，德国 (© 3quarks/Getty Images)
-
-![](images/2025-03/20250308_WaddenSeaBiosphereReserve_1920x1080.jpg)
 
 
 

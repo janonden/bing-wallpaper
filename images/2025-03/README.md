@@ -1,3 +1,7 @@
+#### 20250317 A kingfisher perched on a branch (© NJphoto/Alamy)
+
+![](20250317_BigGardenBirdwatch_1920x1080.jpg)
+
 #### 20250315 Ucluelet, Vancouver Island, British Columbia (© AWL Images/DanitaDelimont.com)
 
 ![](20250315_WhaleFestival_1920x1080.jpg)
@@ -34,7 +38,7 @@
 
 ![](20250311_NusaPenida_1920x1080.jpg)
 
-#### 20250310 パンダの赤ちゃん, 中国 (© Cheryl Schneider/Alamy)
+#### 20250310 Baby giant panda in the snow, China (© Cheryl Schneider/Alamy)
 
 ![](20250310_PandaSnow_1920x1080.jpg)
 
