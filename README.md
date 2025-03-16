@@ -2,6 +2,10 @@
 
 ![](images/2025-03/20250317_BigGardenBirdwatch_1920x1080.jpg)
 
+#### 20250317 塞缪尔·贝克特桥, 都柏林, 爱尔兰 (© Colm Keating/Tandem Stills + Motion)
+
+![](images/2025-03/20250317_BeckettBridge_1920x1080.jpg)
+
 #### 20250315 Ucluelet, Vancouver Island, British Columbia (© AWL Images/DanitaDelimont.com)
 
 ![](images/2025-03/20250315_WhaleFestival_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250309 St. Mark's Clock Tower, Venice, Italy (© scaliger/Getty Images)
 
 ![](images/2025-03/20250309_ItalyClock_1920x1080.jpg)
-
-#### 20250309 Wallfahrtskirche Maria Gern und Watzmannmassiv, Berchtesgadener Alpen, Bayern (© bluejayphoto/Getty Images)
-
-![](images/2025-03/20250309_BavarianAlpsMariaGern_1920x1080.jpg)
 
 
 
