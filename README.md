@@ -1,3 +1,7 @@
+#### 20250318 红色岩层，塞多纳，亚利桑那州，美国 (© Jim Ekstrand/Alamy Stock Photo)
+
+![](images/2025-03/20250318_SedonaSpring_1920x1080.jpg)
+
 #### 20250317 A kingfisher perched on a branch (© NJphoto/Alamy)
 
 ![](images/2025-03/20250317_BigGardenBirdwatch_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250309 Martin-pêcheur d'Europe sur une branche (© Javier Fernández Sánchez/Getty Images)
 
 ![](images/2025-03/20250309_kingfisherFr_1920x1080.jpg)
-
-#### 20250309 St. Mark's Clock Tower, Venice, Italy (© scaliger/Getty Images)
-
-![](images/2025-03/20250309_ItalyClock_1920x1080.jpg)
 
 
 
