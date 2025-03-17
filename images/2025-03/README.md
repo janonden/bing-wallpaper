@@ -2,7 +2,7 @@
 
 ![](20250317_BigGardenBirdwatch_1920x1080.jpg)
 
-#### 20250317 塞缪尔·贝克特桥, 都柏林, 爱尔兰 (© Colm Keating/Tandem Stills + Motion)
+#### 20250317 Samuel Beckett Bridge, Dublin, Ireland (© Colm Keating/Tandem Stills + Motion)
 
 ![](20250317_BeckettBridge_1920x1080.jpg)
 
