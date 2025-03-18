@@ -1,4 +1,4 @@
-#### 20250318 红色岩层，塞多纳，亚利桑那州，美国 (© Jim Ekstrand/Alamy Stock Photo)
+#### 20250318 Red rock formations, Sedona, Arizona (© Jim Ekstrand/Alamy)
 
 ![](20250318_SedonaSpring_1920x1080.jpg)
 
