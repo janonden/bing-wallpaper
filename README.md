@@ -1,4 +1,4 @@
-#### 20250319 黑鹭捕鱼，乔贝国家公园，博茨瓦纳 (© Paul Souders/Minden PIctures)
+#### 20250319 A black heron canopy feeding, Chobe National Park, Botswana (© Paul Souders/Minden Pictures)
 
 ![](images/2025-03/20250319_BlackHeron_1920x1080.jpg)
 
