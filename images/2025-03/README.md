@@ -6,6 +6,14 @@
 
 ![](20250320_SpringDaffodils_1920x1080.jpg)
 
+#### 20250320 Schneeglöckchen blühen im Wald (© gehringj/Getty Images)
+
+![](20250320_SnowdropsSpring_1920x1080.jpg)
+
+#### 20250320 Bassin d'Apollon, château de Versailles (© Petr Kovalenkov/Shutterstock)
+
+![](20250320_FrancophonieDay_1920x1080.jpg)
+
 #### 20250319 A black heron canopy feeding, Chobe National Park, Botswana (© Paul Souders/Minden Pictures)
 
 ![](20250319_BlackHeron_1920x1080.jpg)
