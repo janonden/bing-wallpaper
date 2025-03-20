@@ -2,7 +2,7 @@
 
 ![](images/2025-03/20250320_SpringequinoxY_1920x1080.jpg)
 
-#### 20250320 スイセンの花 (© LedyX/Shutterstock)
+#### 20250320 Spring daffodils glowing in morning light (© LedyX/Shutterstock)
 
 ![](images/2025-03/20250320_SpringDaffodils_1920x1080.jpg)
 
