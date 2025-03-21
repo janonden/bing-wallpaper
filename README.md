@@ -1,4 +1,4 @@
-#### 20250321 低地雨林上空的薄雾，丹浓谷，沙巴，婆罗洲，马来西亚 (© Nick Garbutt/Alamy)
+#### 20250321 Mist over a lowland rainforest, Danum Valley, Sabah, Borneo, Malaysia (© Nick Garbutt/Alamy)
 
 ![](images/2025-03/20250321_DanumValley_1920x1080.jpg)
 
