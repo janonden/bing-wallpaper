@@ -1,4 +1,4 @@
-#### 20250322 尼特哈天然井水面上的睡莲，图卢姆，墨西哥 (© Franco Banfi/NPL/Minden)
+#### 20250322 Water lilies at the surface of Cenote Nicte-Ha, Tulum, Mexico (© Franco Banfi/NPL/Minden Pictures)
 
 ![](images/2025-03/20250322_CenoteLilies_1920x1080.jpg)
 
