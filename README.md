@@ -42,6 +42,10 @@
 
 ![](images/2025-03/20250317_BeckettBridge_1920x1080.jpg)
 
+#### 20250316 Baby giant panda in the snow, China (© Cheryl Schneider/Alamy)
+
+![](images/2025-03/20250316_PandaSnow_1920x1080.jpg)
+
 #### 20250315 Ucluelet, Vancouver Island, British Columbia (© AWL Images/DanitaDelimont.com)
 
 ![](images/2025-03/20250315_WhaleFestival_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250314 Gran Paradiso National Park, Piedmont, Italy (© Stefano Zaccaria/Alamy)
 
 ![](images/2025-03/20250314_Piedmont_1920x1080.jpg)
-
-#### 20250314 Dolmen of Sorginetxe, Basque Country, Álava, Spain (© David Herraez Calzada/plainpicture)
-
-![](images/2025-03/20250314_BasqueDolmen_1920x1080.jpg)
 
 
 

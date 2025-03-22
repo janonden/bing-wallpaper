@@ -42,6 +42,10 @@
 
 ![](20250317_BeckettBridge_1920x1080.jpg)
 
+#### 20250316 Baby giant panda in the snow, China (© Cheryl Schneider/Alamy)
+
+![](20250316_PandaSnow_1920x1080.jpg)
+
 #### 20250315 Ucluelet, Vancouver Island, British Columbia (© AWL Images/DanitaDelimont.com)
 
 ![](20250315_WhaleFestival_1920x1080.jpg)
