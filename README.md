@@ -1,3 +1,7 @@
+#### 20250324 沙漠象与小象在高高的草丛中觅食，纳米比亚 (© Christophe Courteau/Minden Pictures)
+
+![](images/2025-03/20250324_ElephantGrass_1920x1080.jpg)
+
 #### 20250323 Lightning and storm clouds at sunset near Bowman, Nebraska (© john finney photography/Getty Images)
 
 ![](images/2025-03/20250323_NebraskaStorm_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250315 The Temple of Saturn in the Roman Forum, Rome, Italy (© Nico De Pasquale Photography/Getty Images)
 
 ![](images/2025-03/20250315_ForumRomanum_1920x1080.jpg)
-
-#### 20250314 Gran Paradiso National Park, Piedmont, Italy (© Stefano Zaccaria/Alamy)
-
-![](images/2025-03/20250314_Piedmont_1920x1080.jpg)
 
 
 

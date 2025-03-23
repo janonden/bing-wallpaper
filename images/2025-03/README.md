@@ -1,3 +1,7 @@
+#### 20250324 沙漠象与小象在高高的草丛中觅食，纳米比亚 (© Christophe Courteau/Minden Pictures)
+
+![](20250324_ElephantGrass_1920x1080.jpg)
+
 #### 20250323 Lightning and storm clouds at sunset near Bowman, Nebraska (© john finney photography/Getty Images)
 
 ![](20250323_NebraskaStorm_1920x1080.jpg)
