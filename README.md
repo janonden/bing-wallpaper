@@ -1,4 +1,4 @@
-#### 20250323 鲍曼附近日落时分的闪电和风暴云，布拉斯加州，美国 (© john finney photography/Getty Images)
+#### 20250323 Lightning and storm clouds at sunset near Bowman, Nebraska (© john finney photography/Getty Images)
 
 ![](images/2025-03/20250323_NebraskaStorm_1920x1080.jpg)
 
