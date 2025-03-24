@@ -1,4 +1,4 @@
-#### 20250324 沙漠象与小象在高高的草丛中觅食，纳米比亚 (© Christophe Courteau/Minden Pictures)
+#### 20250324 Desert elephant with calf feeding on tall grass, Namibia (© Christophe Courteau/Minden Pictures)
 
 ![](20250324_ElephantGrass_1920x1080.jpg)
 
