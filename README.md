@@ -2,7 +2,7 @@
 
 ![](images/2025-03/20250325_ProcrastinationD_1920x1080.jpg)
 
-#### 20250325 ホビット穴, ニュージーランド (© Kim Petersen/Alamy)
+#### 20250325 Hobbit-hole in Hobbiton Movie Set, Waikato, New Zealand (© Kim Petersen/Alamy)
 
 ![](images/2025-03/20250325_HobbitHole_1920x1080.jpg)
 
