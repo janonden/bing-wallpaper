@@ -1,3 +1,7 @@
+#### 20250325 Marmottes des Alpes, Marmota Marmota, Hautes Pyrénées (© Yann Guichaoua-Photos/Getty Images)
+
+![](images/2025-03/20250325_ProcrastinationD_1920x1080.jpg)
+
 #### 20250325 ホビット穴, ニュージーランド (© Kim Petersen/Alamy)
 
 ![](images/2025-03/20250325_HobbitHole_1920x1080.jpg)
@@ -5,6 +9,10 @@
 #### 20250325 向日葵田里的红额金翅雀，德国 (© Juniors Bildarchiv GmbH/Alamy)
 
 ![](images/2025-03/20250325_GoldfinchSunflower_1920x1080.jpg)
+
+#### 20250325 Kirschblüten am Ufer der Alster bei Sonnenuntergang, Hamburg (© Westend61/Getty Images)
+
+![](images/2025-03/20250325_AlsterLakeCherry_1920x1080.jpg)
 
 #### 20250324 Desert elephant with calf feeding on tall grass, Namibia (© Christophe Courteau/Minden Pictures)
 
@@ -49,14 +57,6 @@
 #### 20250317 A kingfisher perched on a branch (© NJphoto/Alamy)
 
 ![](images/2025-03/20250317_BigGardenBirdwatch_1920x1080.jpg)
-
-#### 20250317 Samuel Beckett Bridge, Dublin, Ireland (© Colm Keating/Tandem Stills + Motion)
-
-![](images/2025-03/20250317_BeckettBridge_1920x1080.jpg)
-
-#### 20250316 Baby giant panda in the snow, China (© Cheryl Schneider/Alamy)
-
-![](images/2025-03/20250316_PandaSnow_1920x1080.jpg)
 
 
 
