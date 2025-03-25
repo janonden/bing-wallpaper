@@ -1,3 +1,7 @@
+#### 20250326 水晶河的海牛，佛罗里达州，美国 (© Stephen Frink/Getty Images)
+
+![](images/2025-03/20250326_CrystalManatee_1920x1080.jpg)
+
 #### 20250325 Marmottes des Alpes, Marmota Marmota, Hautes Pyrénées (© Yann Guichaoua-Photos/Getty Images)
 
 ![](images/2025-03/20250325_ProcrastinationD_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250318 Red rock formations, Sedona, Arizona (© Jim Ekstrand/Alamy)
 
 ![](images/2025-03/20250318_SedonaSpring_1920x1080.jpg)
-
-#### 20250317 A kingfisher perched on a branch (© NJphoto/Alamy)
-
-![](images/2025-03/20250317_BigGardenBirdwatch_1920x1080.jpg)
 
 
 
