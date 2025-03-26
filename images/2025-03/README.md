@@ -2,6 +2,10 @@
 
 ![](20250326_CrystalManatee_1920x1080.jpg)
 
+#### 20250326 Cherry blossoms in Queen Elizabeth Park, Vancouver, Canada (© Kim Rogerson/Getty Images)
+
+![](20250326_Cherry_1920x1080.jpg)
+
 #### 20250325 Marmottes des Alpes, Marmota Marmota, Hautes Pyrénées (© Yann Guichaoua-Photos/Getty Images)
 
 ![](20250325_ProcrastinationD_1920x1080.jpg)

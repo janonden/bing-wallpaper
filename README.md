@@ -2,6 +2,10 @@
 
 ![](images/2025-03/20250326_CrystalManatee_1920x1080.jpg)
 
+#### 20250326 Cherry blossoms in Queen Elizabeth Park, Vancouver, Canada (© Kim Rogerson/Getty Images)
+
+![](images/2025-03/20250326_Cherry_1920x1080.jpg)
+
 #### 20250325 Marmottes des Alpes, Marmota Marmota, Hautes Pyrénées (© Yann Guichaoua-Photos/Getty Images)
 
 ![](images/2025-03/20250325_ProcrastinationD_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250319 A black heron canopy feeding, Chobe National Park, Botswana (© Paul Souders/Minden Pictures)
 
 ![](images/2025-03/20250319_BlackHeron_1920x1080.jpg)
-
-#### 20250318 Red rock formations, Sedona, Arizona (© Jim Ekstrand/Alamy)
-
-![](images/2025-03/20250318_SedonaSpring_1920x1080.jpg)
 
 
 
