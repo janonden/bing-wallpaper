@@ -1,4 +1,4 @@
-#### 20250326 水晶河的海牛，佛罗里达州，美国 (© Stephen Frink/Getty Images)
+#### 20250326 Manatee in Three Sisters Springs, Crystal River National Wildlife Refuge, Florida (© Stephen Frink/Getty Images)
 
 ![](20250326_CrystalManatee_1920x1080.jpg)
 
