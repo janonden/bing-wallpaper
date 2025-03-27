@@ -1,4 +1,4 @@
-#### 20250327 希罗德·阿提库斯剧场，雅典卫城，希腊 (© f11photo/Getty Images)
+#### 20250327 Odeon of Herodes Atticus, Acropolis of Athens, Greece (© f11photo/Getty Images)
 
 ![](20250327_OdeonAthens_1920x1080.jpg)
 
