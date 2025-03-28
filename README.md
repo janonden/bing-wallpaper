@@ -1,3 +1,7 @@
+#### 20250329 卡里佐平原国家纪念碑的超级花期，加利福尼亚州，美国 (© Robb Hirsch/TANDEM Stills + Motion)
+
+![](images/2025-03/20250329_CarrizoBloom_1920x1080.jpg)
+
 #### 20250328 Female black-naped monarch nesting (© komkrit tonusin/Alamy)
 
 ![](images/2025-03/20250328_NestingMonarch_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250320 Spring daffodils glowing in morning light (© LedyX/Shutterstock)
 
 ![](images/2025-03/20250320_SpringDaffodils_1920x1080.jpg)
-
-#### 20250320 Schneeglöckchen blühen im Wald (© gehringj/Getty Images)
-
-![](images/2025-03/20250320_SnowdropsSpring_1920x1080.jpg)
 
 
 
