@@ -2,7 +2,7 @@
 
 ![](images/2025-03/20250329_SydneyHarbour_1920x1080.jpg)
 
-#### 20250329 卡里佐平原国家纪念碑的超级花期，加利福尼亚州，美国 (© Robb Hirsch/TANDEM Stills + Motion)
+#### 20250329 Superbloom in Carrizo Plain National Monument, California (© Robb Hirsch/TANDEM Stills + Motion)
 
 ![](images/2025-03/20250329_CarrizoBloom_1920x1080.jpg)
 
