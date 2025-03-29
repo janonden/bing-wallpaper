@@ -1,3 +1,7 @@
+#### 20250329 Vue aérienne du port de Sydney, Nouvelle-Galles du Sud, Australie (© jamenpercy/Getty Images)
+
+![](images/2025-03/20250329_SydneyHarbour_1920x1080.jpg)
+
 #### 20250329 卡里佐平原国家纪念碑的超级花期，加利福尼亚州，美国 (© Robb Hirsch/TANDEM Stills + Motion)
 
 ![](images/2025-03/20250329_CarrizoBloom_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250320 美丽盛开的樱花，杭州的春天，中国 (© zhang shuang/Getty Images)
 
 ![](images/2025-03/20250320_SpringequinoxY_1920x1080.jpg)
-
-#### 20250320 Spring daffodils glowing in morning light (© LedyX/Shutterstock)
-
-![](images/2025-03/20250320_SpringDaffodils_1920x1080.jpg)
 
 
 

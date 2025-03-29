@@ -1,3 +1,7 @@
+#### 20250329 Vue aérienne du port de Sydney, Nouvelle-Galles du Sud, Australie (© jamenpercy/Getty Images)
+
+![](20250329_SydneyHarbour_1920x1080.jpg)
+
 #### 20250329 卡里佐平原国家纪念碑的超级花期，加利福尼亚州，美国 (© Robb Hirsch/TANDEM Stills + Motion)
 
 ![](20250329_CarrizoBloom_1920x1080.jpg)
