@@ -1,3 +1,7 @@
+#### 20250331 黄昏下的奥斯图尼, 普利亚, 意大利 (© Feng Wei Photography/Getty Images)
+
+![](images/2025-03/20250331_ItalyOstuni_1920x1080.jpg)
+
 #### 20250330 Tour de l'horloge de Saint-Marc, Venise, Italie (© scaliger/Getty Images)
 
 ![](images/2025-03/20250330_ItalyClock_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250323 Lightning and storm clouds at sunset near Bowman, Nebraska (© john finney photography/Getty Images)
 
 ![](images/2025-03/20250323_NebraskaStorm_1920x1080.jpg)
-
-#### 20250322 Water lilies at the surface of Cenote Nicte-Ha, Tulum, Mexico (© Franco Banfi/NPL/Minden Pictures)
-
-![](images/2025-03/20250322_CenoteLilies_1920x1080.jpg)
 
 
 
