@@ -1,3 +1,11 @@
+#### 20250330 Tour de l'horloge de Saint-Marc, Venise, Italie (© scaliger/Getty Images)
+
+![](20250330_ItalyClock_1920x1080.jpg)
+
+#### 20250330 Steinkauz-Junges in einem Baumloch (© Bildagentur Zoonar GmbH/Alamy)
+
+![](20250330_AtheneNoctuaGermany_1920x1080.jpg)
+
 #### 20250329 Vue aérienne du port de Sydney, Nouvelle-Galles du Sud, Australie (© jamenpercy/Getty Images)
 
 ![](20250329_SydneyHarbour_1920x1080.jpg)
