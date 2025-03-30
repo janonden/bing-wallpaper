@@ -6,7 +6,7 @@
 
 ![](20250330_AtheneNoctuaGermany_1920x1080.jpg)
 
-#### 20250329 Vue aérienne du port de Sydney, Nouvelle-Galles du Sud, Australie (© jamenpercy/Getty Images)
+#### 20250329 Aerial view of Sydney Harbour, New South Wales, Australia (© jamenpercy/Getty Images)
 
 ![](20250329_SydneyHarbour_1920x1080.jpg)
 
