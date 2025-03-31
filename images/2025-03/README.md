@@ -1,4 +1,4 @@
-#### 20250331 黄昏下的奥斯图尼, 普利亚, 意大利 (© Feng Wei Photography/Getty Images)
+#### 20250331 Ostuni at dusk, Apulia, Italy (© Feng Wei Photography/Getty Images)
 
 ![](20250331_ItalyOstuni_1920x1080.jpg)
 
