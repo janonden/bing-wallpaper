@@ -1,3 +1,11 @@
+#### 20250402 凯恩维尔附近荒地的砂岩地层, 犹他州, 美国 (© Chris Moore/TANDEM Stills + Motion)
+
+![](20250402_UtahBadlands_1920x1080.jpg)
+
+#### 20250402 香取神宮の田植え祭, 千葉県 香取市 (© Junko Kimura/特派員/Getty Images)
+
+![](20250402_Sawara_1920x1080.jpg)
+
 #### 20250401 Tree frog, Costa Rica (© Ondrej Prosicky/Shutterstock)
 
 ![](20250401_TicanFrog_1920x1080.jpg)

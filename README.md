@@ -1,3 +1,11 @@
+#### 20250402 凯恩维尔附近荒地的砂岩地层, 犹他州, 美国 (© Chris Moore/TANDEM Stills + Motion)
+
+![](images/2025-04/20250402_UtahBadlands_1920x1080.jpg)
+
+#### 20250402 香取神宮の田植え祭, 千葉県 香取市 (© Junko Kimura/特派員/Getty Images)
+
+![](images/2025-04/20250402_Sawara_1920x1080.jpg)
+
 #### 20250401 Tree frog, Costa Rica (© Ondrej Prosicky/Shutterstock)
 
 ![](images/2025-04/20250401_TicanFrog_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20250325 Hobbit-hole in Hobbiton Movie Set, Waikato, New Zealand (© Kim Petersen/Alamy)
 
 ![](images/2025-03/20250325_HobbitHole_1920x1080.jpg)
-
-#### 20250325 向日葵田里的红额金翅雀，德国 (© Juniors Bildarchiv GmbH/Alamy)
-
-![](images/2025-03/20250325_GoldfinchSunflower_1920x1080.jpg)
-
-#### 20250325 Kirschblüten am Ufer der Alster bei Sonnenuntergang, Hamburg (© Westend61/Getty Images)
-
-![](images/2025-03/20250325_AlsterLakeCherry_1920x1080.jpg)
 
 
 
