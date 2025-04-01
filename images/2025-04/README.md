@@ -1,4 +1,4 @@
-#### 20250401 树蛙, 哥斯达黎加 (© Ondrej Prosicky/Shutterstock)
+#### 20250401 Tree frog, Costa Rica (© Ondrej Prosicky/Shutterstock)
 
 ![](20250401_TicanFrog_1920x1080.jpg)
 
