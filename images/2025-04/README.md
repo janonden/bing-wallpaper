@@ -1,3 +1,7 @@
+#### 20250402 Loup gris (© AB Photography/Getty Images)
+
+![](20250402_WildWolf_1920x1080.jpg)
+
 #### 20250402 凯恩维尔附近荒地的砂岩地层, 犹他州, 美国 (© Chris Moore/TANDEM Stills + Motion)
 
 ![](20250402_UtahBadlands_1920x1080.jpg)
