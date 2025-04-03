@@ -1,4 +1,4 @@
-#### 20250403 沃森峰上空的彩虹, 巨人柱国家公园, 亚利桑那州, 美国 (© Frank Staub/Getty Images)
+#### 20250403 Rainbow over Wasson Peak, Saguaro National Park, Arizona (© Frank Staub/Getty Images)
 
 ![](images/2025-04/20250403_SaguaroRainbow_1920x1080.jpg)
 
