@@ -2,6 +2,10 @@
 
 ![](20250403_SaguaroRainbow_1920x1080.jpg)
 
+#### 20250403 Rufous hummingbird, Salt Spring Island, British Columbia, Canada (© Dave Hutchison Photography/Getty Images)
+
+![](20250403_RufousHummingbird_1920x1080.jpg)
+
 #### 20250402 Loup gris (© AB Photography/Getty Images)
 
 ![](20250402_WildWolf_1920x1080.jpg)

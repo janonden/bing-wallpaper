@@ -2,6 +2,10 @@
 
 ![](images/2025-04/20250403_SaguaroRainbow_1920x1080.jpg)
 
+#### 20250403 Rufous hummingbird, Salt Spring Island, British Columbia, Canada (© Dave Hutchison Photography/Getty Images)
+
+![](images/2025-04/20250403_RufousHummingbird_1920x1080.jpg)
+
 #### 20250402 Loup gris (© AB Photography/Getty Images)
 
 ![](images/2025-04/20250402_WildWolf_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250326 Manatee in Three Sisters Springs, Crystal River National Wildlife Refuge, Florida (© Stephen Frink/Getty Images)
 
 ![](images/2025-03/20250326_CrystalManatee_1920x1080.jpg)
-
-#### 20250326 Cherry blossoms in Queen Elizabeth Park, Vancouver, Canada (© Kim Rogerson/Getty Images)
-
-![](images/2025-03/20250326_Cherry_1920x1080.jpg)
 
 
 
