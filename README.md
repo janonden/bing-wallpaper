@@ -10,7 +10,7 @@
 
 ![](images/2025-04/20250404_IKMZLibrary_1920x1080.jpg)
 
-#### 20250404 Cerisiers en fleurs, Washington DC, États-Unis (© f11photo/Getty Images)
+#### 20250404 The National Cherry Blossom Festival in Washington, DC (© f11photo/Getty Images)
 
 ![](images/2025-04/20250404_CherryBlossomDC_1920x1080.jpg)
 
