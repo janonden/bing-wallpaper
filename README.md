@@ -1,3 +1,7 @@
+#### 20250405 日落时分的加兹特鲁加特岛 , 巴斯克地区, 西班牙 (© Eloi_Omella/Getty Images)
+
+![](images/2025-04/20250405_GaztelugatxeSunset_1920x1080.jpg)
+
 #### 20250404 首里城の守礼門, 沖縄県 那覇市 (© Richie Chan/Shutterstock)
 
 ![](images/2025-04/20250404_Qingming_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250330 Tour de l'horloge de Saint-Marc, Venise, Italie (© scaliger/Getty Images)
 
 ![](images/2025-03/20250330_ItalyClock_1920x1080.jpg)
-
-#### 20250330 Steinkauz-Junges in einem Baumloch (© Bildagentur Zoonar GmbH/Alamy)
-
-![](images/2025-03/20250330_AtheneNoctuaGermany_1920x1080.jpg)
 
 
 
