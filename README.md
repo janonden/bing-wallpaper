@@ -14,6 +14,10 @@
 
 ![](images/2025-04/20250404_CherryBlossomDC_1920x1080.jpg)
 
+#### 20250404 Taktsang Palphug Monastery, Bhutan (© Baron Reznik/Getty Images)
+
+![](images/2025-04/20250404_BhutanMonastery_1920x1080.jpg)
+
 #### 20250403 Rainbow over Wasson Peak, Saguaro National Park, Arizona (© Frank Staub/Getty Images)
 
 ![](images/2025-04/20250403_SaguaroRainbow_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250330 Steinkauz-Junges in einem Baumloch (© Bildagentur Zoonar GmbH/Alamy)
 
 ![](images/2025-03/20250330_AtheneNoctuaGermany_1920x1080.jpg)
-
-#### 20250329 Aerial view of Sydney Harbour, New South Wales, Australia (© jamenpercy/Getty Images)
-
-![](images/2025-03/20250329_SydneyHarbour_1920x1080.jpg)
 
 
 

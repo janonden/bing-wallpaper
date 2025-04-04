@@ -14,6 +14,10 @@
 
 ![](20250404_CherryBlossomDC_1920x1080.jpg)
 
+#### 20250404 Taktsang Palphug Monastery, Bhutan (© Baron Reznik/Getty Images)
+
+![](20250404_BhutanMonastery_1920x1080.jpg)
+
 #### 20250403 Rainbow over Wasson Peak, Saguaro National Park, Arizona (© Frank Staub/Getty Images)
 
 ![](20250403_SaguaroRainbow_1920x1080.jpg)
