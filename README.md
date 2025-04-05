@@ -1,3 +1,11 @@
+#### 20250406 碎片大厦，伦敦 (© Dennis Fischer Photography/Moment/Getty Images)
+
+![](images/2025-04/20250406_ShardLondon_1920x1080.jpg)
+
+#### 20250406 姫路城, 兵庫県 姫路市 (© Sean Pavone/Alamy Stock Photo)
+
+![](images/2025-04/20250406_CastleDay_1920x1080.jpg)
+
 #### 20250405 Gaztelugatxe at sunset, Basque Country, Spain (© Eloi_Omella/Getty Images)
 
 ![](images/2025-04/20250405_GaztelugatxeSunset_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20250401 奈良公園, 奈良県 奈良市 (© AaronChenPS2/Shutterstock)
 
 ![](images/2025-04/20250401_CherryBlossom_1920x1080.jpg)
-
-#### 20250331 Ostuni at dusk, Apulia, Italy (© Feng Wei Photography/Getty Images)
-
-![](images/2025-03/20250331_ItalyOstuni_1920x1080.jpg)
-
-#### 20250330 Tour de l'horloge de Saint-Marc, Venise, Italie (© scaliger/Getty Images)
-
-![](images/2025-03/20250330_ItalyClock_1920x1080.jpg)
 
 
 

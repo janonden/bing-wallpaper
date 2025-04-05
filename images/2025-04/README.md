@@ -1,3 +1,11 @@
+#### 20250406 碎片大厦，伦敦 (© Dennis Fischer Photography/Moment/Getty Images)
+
+![](20250406_ShardLondon_1920x1080.jpg)
+
+#### 20250406 姫路城, 兵庫県 姫路市 (© Sean Pavone/Alamy Stock Photo)
+
+![](20250406_CastleDay_1920x1080.jpg)
+
 #### 20250405 Gaztelugatxe at sunset, Basque Country, Spain (© Eloi_Omella/Getty Images)
 
 ![](20250405_GaztelugatxeSunset_1920x1080.jpg)
