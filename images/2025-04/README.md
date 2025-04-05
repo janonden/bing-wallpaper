@@ -1,4 +1,4 @@
-#### 20250405 日落时分的加兹特鲁加特岛 , 巴斯克地区, 西班牙 (© Eloi_Omella/Getty Images)
+#### 20250405 Gaztelugatxe at sunset, Basque Country, Spain (© Eloi_Omella/Getty Images)
 
 ![](20250405_GaztelugatxeSunset_1920x1080.jpg)
 
