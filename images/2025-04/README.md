@@ -1,3 +1,7 @@
+#### 20250407 美洲海狸, Moran, 怀俄明州, 美国 (© Enrique Aguirre Aves/Getty Images)
+
+![](20250407_BeaverDay_1920x1080.jpg)
+
 #### 20250406 Yellow warbler in Canada (© mirceax/Getty Images)
 
 ![](20250406_YellowWarbler_1920x1080.jpg)
