@@ -10,7 +10,7 @@
 
 ![](20250406_ShardLondon_1920x1080.jpg)
 
-#### 20250406 George Peabody Library, Baltimore, Maryland, USA (© Wim Wiskerke/Alamy)
+#### 20250406 George Peabody Library, Baltimore, Maryland (© Wim Wiskerke/Alamy)
 
 ![](20250406_PeabodyBaltimore_1920x1080.jpg)
 
