@@ -1,3 +1,7 @@
+#### 20250406 Yellow warbler in Canada (© mirceax/Getty Images)
+
+![](images/2025-04/20250406_YellowWarbler_1920x1080.jpg)
+
 #### 20250406 Champs de tulipes, Pays-Bas (© 1111IESPDJ/Getty Images)
 
 ![](images/2025-04/20250406_TulipsWindmill_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250402 Sandstone formations in the badlands near Caineville, Utah (© Chris Moore/TANDEM Stills + Motion)
 
 ![](images/2025-04/20250402_UtahBadlands_1920x1080.jpg)
-
-#### 20250402 香取神宮の田植え祭, 千葉県 香取市 (© Junko Kimura/特派員/Getty Images)
-
-![](images/2025-04/20250402_Sawara_1920x1080.jpg)
 
 
 

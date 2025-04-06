@@ -1,3 +1,7 @@
+#### 20250406 Yellow warbler in Canada (© mirceax/Getty Images)
+
+![](20250406_YellowWarbler_1920x1080.jpg)
+
 #### 20250406 Champs de tulipes, Pays-Bas (© 1111IESPDJ/Getty Images)
 
 ![](20250406_TulipsWindmill_1920x1080.jpg)

@@ -2,6 +2,10 @@
 
 ![](20250331_ItalyOstuni_1920x1080.jpg)
 
+#### 20250330 Aerial view of Sydney Harbour, New South Wales, Australia (© jamenpercy/Getty Images)
+
+![](20250330_SydneyHarbour_1920x1080.jpg)
+
 #### 20250330 Tour de l'horloge de Saint-Marc, Venise, Italie (© scaliger/Getty Images)
 
 ![](20250330_ItalyClock_1920x1080.jpg)
