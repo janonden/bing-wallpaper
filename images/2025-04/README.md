@@ -1,3 +1,11 @@
+#### 20250408 春天的水仙花在清晨绽放 (© LedyX/Shutterstock)
+
+![](20250408_SpringDaffodils_1920x1080.jpg)
+
+#### 20250408 民族衣装をまとった女性たち, ブータン (© Richard I'Anson/Getty Images)
+
+![](20250408_ParoTsechu_1920x1080.jpg)
+
 #### 20250407 Whistler and Blackcomb mountains, British Columbia (© Pierre Leclerc/Shutterstock)
 
 ![](20250407_WhistlerSnowboard_1920x1080.jpg)

@@ -1,3 +1,11 @@
+#### 20250408 春天的水仙花在清晨绽放 (© LedyX/Shutterstock)
+
+![](images/2025-04/20250408_SpringDaffodils_1920x1080.jpg)
+
+#### 20250408 民族衣装をまとった女性たち, ブータン (© Richard I'Anson/Getty Images)
+
+![](images/2025-04/20250408_ParoTsechu_1920x1080.jpg)
+
 #### 20250407 Whistler and Blackcomb mountains, British Columbia (© Pierre Leclerc/Shutterstock)
 
 ![](images/2025-04/20250407_WhistlerSnowboard_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20250404 Taktsang Palphug Monastery, Bhutan (© Baron Reznik/Getty Images)
 
 ![](images/2025-04/20250404_BhutanMonastery_1920x1080.jpg)
-
-#### 20250403 Rainbow over Wasson Peak, Saguaro National Park, Arizona (© Frank Staub/Getty Images)
-
-![](images/2025-04/20250403_SaguaroRainbow_1920x1080.jpg)
-
-#### 20250403 Rufous hummingbird, Salt Spring Island, British Columbia, Canada (© Dave Hutchison Photography/Getty Images)
-
-![](images/2025-04/20250403_RufousHummingbird_1920x1080.jpg)
 
 
 
