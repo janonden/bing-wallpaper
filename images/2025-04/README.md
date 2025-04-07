@@ -1,3 +1,7 @@
+#### 20250407 Whistler and Blackcomb mountains, British Columbia (© Pierre Leclerc/Shutterstock)
+
+![](20250407_WhistlerSnowboard_1920x1080.jpg)
+
 #### 20250407 美洲海狸, Moran, 怀俄明州, 美国 (© Enrique Aguirre Aves/Getty Images)
 
 ![](20250407_BeaverDay_1920x1080.jpg)
