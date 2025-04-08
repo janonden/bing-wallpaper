@@ -1,8 +1,12 @@
+#### 20250409 Piazza Maggiore, Bologna, Italy (© RudyBalasko/Getty Images)
+
+![](20250409_PiazzaBologna_1920x1080.jpg)
+
 #### 20250408 春天的水仙花在清晨绽放 (© LedyX/Shutterstock)
 
 ![](20250408_SpringDaffodils_1920x1080.jpg)
 
-#### 20250408 民族衣装をまとった女性たち, ブータン (© Richard I'Anson/Getty Images)
+#### 20250408 Women in traditional dress at the Paro Tshechu Festival in Bhutan (© Richard I'Anson/Getty Images)
 
 ![](20250408_ParoTsechu_1920x1080.jpg)
 
