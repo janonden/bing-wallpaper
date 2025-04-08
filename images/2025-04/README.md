@@ -2,6 +2,10 @@
 
 ![](20250409_PiazzaBologna_1920x1080.jpg)
 
+#### 20250409 纳克索斯岛的蓝色时刻，基克拉泽斯群岛，希腊 (© Sizun Eye/Getty Images)
+
+![](20250409_BlueNaxos_1920x1080.jpg)
+
 #### 20250408 春天的水仙花在清晨绽放 (© LedyX/Shutterstock)
 
 ![](20250408_SpringDaffodils_1920x1080.jpg)

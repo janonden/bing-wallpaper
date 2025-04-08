@@ -2,6 +2,10 @@
 
 ![](images/2025-04/20250409_PiazzaBologna_1920x1080.jpg)
 
+#### 20250409 纳克索斯岛的蓝色时刻，基克拉泽斯群岛，希腊 (© Sizun Eye/Getty Images)
+
+![](images/2025-04/20250409_BlueNaxos_1920x1080.jpg)
+
 #### 20250408 春天的水仙花在清晨绽放 (© LedyX/Shutterstock)
 
 ![](images/2025-04/20250408_SpringDaffodils_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250404 Informations-, Kommunikations- und Medienzentrum Cottbus, Brandenburg (© H & D ZIELSKE/Gallery Stock)
 
 ![](images/2025-04/20250404_IKMZLibrary_1920x1080.jpg)
-
-#### 20250404 The National Cherry Blossom Festival in Washington, DC (© f11photo/Getty Images)
-
-![](images/2025-04/20250404_CherryBlossomDC_1920x1080.jpg)
 
 
 
