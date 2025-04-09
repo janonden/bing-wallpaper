@@ -1,3 +1,7 @@
+#### 20250410 靠近巢穴的红狐幼崽 (© WildMedia/Shutterstock)
+
+![](images/2025-04/20250410_LittleFoxes_1920x1080.jpg)
+
 #### 20250409 Piazza Maggiore, Bologna, Italy (© RudyBalasko/Getty Images)
 
 ![](images/2025-04/20250409_PiazzaBologna_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250404 苏州古镇风景，江苏省，中国 (© gyn9038/Getty Images)
 
 ![](images/2025-04/20250404_QingMingY_1920x1080.jpg)
-
-#### 20250404 Informations-, Kommunikations- und Medienzentrum Cottbus, Brandenburg (© H & D ZIELSKE/Gallery Stock)
-
-![](images/2025-04/20250404_IKMZLibrary_1920x1080.jpg)
 
 
 
