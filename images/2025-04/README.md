@@ -2,7 +2,7 @@
 
 ![](20250409_PiazzaBologna_1920x1080.jpg)
 
-#### 20250409 纳克索斯岛的蓝色时刻，基克拉泽斯群岛，希腊 (© Sizun Eye/Getty Images)
+#### 20250409 Blue hour in Naxos, Cyclades, Greece (© Sizun Eye/Getty Images)
 
 ![](20250409_BlueNaxos_1920x1080.jpg)
 
@@ -65,6 +65,10 @@
 #### 20250404 Taktsang Palphug Monastery, Bhutan (© Baron Reznik/Getty Images)
 
 ![](20250404_BhutanMonastery_1920x1080.jpg)
+
+#### 20250403 バッドランド, 米国 ユタ州 (© Chris Moore/TANDEM Stills + Motion)
+
+![](20250403_UtahBadlands_1920x1080.jpg)
 
 #### 20250403 Rainbow over Wasson Peak, Saguaro National Park, Arizona (© Frank Staub/Getty Images)
 
