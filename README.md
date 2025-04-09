@@ -18,6 +18,10 @@
 
 ![](images/2025-04/20250408_ParoTsechu_1920x1080.jpg)
 
+#### 20250408 Benagil Cave, Algarve, Portugal (© Westend61/Getty Images)
+
+![](images/2025-04/20250408_LagoaPortugal_1920x1080.jpg)
+
 #### 20250407 Whistler and Blackcomb mountains, British Columbia (© Pierre Leclerc/Shutterstock)
 
 ![](images/2025-04/20250407_WhistlerSnowboard_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250404 首里城の守礼門, 沖縄県 那覇市 (© Richie Chan/Shutterstock)
 
 ![](images/2025-04/20250404_Qingming_1920x1080.jpg)
-
-#### 20250404 苏州古镇风景，江苏省，中国 (© gyn9038/Getty Images)
-
-![](images/2025-04/20250404_QingMingY_1920x1080.jpg)
 
 
 

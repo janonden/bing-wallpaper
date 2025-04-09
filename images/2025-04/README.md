@@ -18,6 +18,10 @@
 
 ![](20250408_ParoTsechu_1920x1080.jpg)
 
+#### 20250408 Benagil Cave, Algarve, Portugal (© Westend61/Getty Images)
+
+![](20250408_LagoaPortugal_1920x1080.jpg)
+
 #### 20250407 Whistler and Blackcomb mountains, British Columbia (© Pierre Leclerc/Shutterstock)
 
 ![](20250407_WhistlerSnowboard_1920x1080.jpg)
