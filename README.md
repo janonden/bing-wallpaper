@@ -1,3 +1,7 @@
+#### 20250412 从国际空间站穹顶俯瞰南太平洋 (© NASA)
+
+![](images/2025-04/20250412_SpaceFlight_1920x1080.jpg)
+
 #### 20250411 Vue aérienne du pont Wilson sur la Loire au crépuscule, Tours (© Cristian Mircea Balate/Getty Images)
 
 ![](images/2025-04/20250411_BookFestival_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250406 姫路城, 兵庫県 姫路市 (© Sean Pavone/Alamy Stock Photo)
 
 ![](images/2025-04/20250406_CastleDay_1920x1080.jpg)
-
-#### 20250405 Gaztelugatxe at sunset, Basque Country, Spain (© Eloi_Omella/Getty Images)
-
-![](images/2025-04/20250405_GaztelugatxeSunset_1920x1080.jpg)
 
 
 
