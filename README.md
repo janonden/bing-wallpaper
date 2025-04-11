@@ -1,3 +1,7 @@
+#### 20250411 Vue aérienne du pont Wilson sur la Loire au crépuscule, Tours (© Cristian Mircea Balate/Getty Images)
+
+![](images/2025-04/20250411_BookFestival_1920x1080.jpg)
+
 #### 20250410 Red fox cubs near their den (© WildMedia/Shutterstock)
 
 ![](images/2025-04/20250410_LittleFoxes_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250405 Gaztelugatxe at sunset, Basque Country, Spain (© Eloi_Omella/Getty Images)
 
 ![](images/2025-04/20250405_GaztelugatxeSunset_1920x1080.jpg)
-
-#### 20250404 首里城の守礼門, 沖縄県 那覇市 (© Richie Chan/Shutterstock)
-
-![](images/2025-04/20250404_Qingming_1920x1080.jpg)
 
 
 
