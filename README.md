@@ -1,4 +1,4 @@
-#### 20250412 从国际空间站穹顶俯瞰南太平洋 (© NASA)
+#### 20250412 View from the cupola of the International Space Station above the South Pacific Ocean (© NASA)
 
 ![](images/2025-04/20250412_SpaceFlight_1920x1080.jpg)
 
