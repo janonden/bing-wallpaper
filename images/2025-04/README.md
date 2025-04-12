@@ -1,3 +1,7 @@
+#### 20250413 班克鲁特的唐赛寺，泰国 (© Ratnakorn Piyasirisorost/Getty Images)
+
+![](20250413_ThailandPagodas_1920x1080.jpg)
+
 #### 20250412 View from the cupola of the International Space Station above the South Pacific Ocean (© NASA)
 
 ![](20250412_SpaceFlight_1920x1080.jpg)

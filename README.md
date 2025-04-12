@@ -1,3 +1,7 @@
+#### 20250413 班克鲁特的唐赛寺，泰国 (© Ratnakorn Piyasirisorost/Getty Images)
+
+![](images/2025-04/20250413_ThailandPagodas_1920x1080.jpg)
+
 #### 20250412 View from the cupola of the International Space Station above the South Pacific Ocean (© NASA)
 
 ![](images/2025-04/20250412_SpaceFlight_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250406 George Peabody Library, Baltimore, Maryland (© Wim Wiskerke/Alamy)
 
 ![](images/2025-04/20250406_PeabodyBaltimore_1920x1080.jpg)
-
-#### 20250406 姫路城, 兵庫県 姫路市 (© Sean Pavone/Alamy Stock Photo)
-
-![](images/2025-04/20250406_CastleDay_1920x1080.jpg)
 
 
 
