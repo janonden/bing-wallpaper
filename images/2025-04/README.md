@@ -1,4 +1,4 @@
-#### 20250413 班克鲁特的唐赛寺，泰国 (© Ratnakorn Piyasirisorost/Getty Images)
+#### 20250413 Wat Tang Sai Temple in Ban Krut, Thailand (© Ratnakorn Piyasirisorost/Getty Images)
 
 ![](20250413_ThailandPagodas_1920x1080.jpg)
 
