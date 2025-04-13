@@ -1,3 +1,11 @@
+#### 20250414 精巧なからくり人形, 岐阜県 高山市 (© N. F. Photography/Shutterstock)
+
+![](20250414_TakayamaFestival_1920x1080.jpg)
+
+#### 20250414 圣玛丽亚岛附近的大西洋细吻海豚，亚速尔群岛，葡萄牙 (© Jordi Chias/Minden Pictures)
+
+![](20250414_SpottedDolphins_1920x1080.jpg)
+
 #### 20250413 Wat Tang Sai Temple in Ban Krut, Thailand (© Ratnakorn Piyasirisorost/Getty Images)
 
 ![](20250413_ThailandPagodas_1920x1080.jpg)

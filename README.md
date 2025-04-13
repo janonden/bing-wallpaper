@@ -1,3 +1,11 @@
+#### 20250414 精巧なからくり人形, 岐阜県 高山市 (© N. F. Photography/Shutterstock)
+
+![](images/2025-04/20250414_TakayamaFestival_1920x1080.jpg)
+
+#### 20250414 圣玛丽亚岛附近的大西洋细吻海豚，亚速尔群岛，葡萄牙 (© Jordi Chias/Minden Pictures)
+
+![](images/2025-04/20250414_SpottedDolphins_1920x1080.jpg)
+
 #### 20250413 Wat Tang Sai Temple in Ban Krut, Thailand (© Ratnakorn Piyasirisorost/Getty Images)
 
 ![](images/2025-04/20250413_ThailandPagodas_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20250406 Tulip fields in Netherlands (© 1111IESPDJ/Getty Images)
 
 ![](images/2025-04/20250406_TulipsWindmill_1920x1080.jpg)
-
-#### 20250406 碎片大厦，伦敦 (© Dennis Fischer Photography/Moment/Getty Images)
-
-![](images/2025-04/20250406_ShardLondon_1920x1080.jpg)
-
-#### 20250406 George Peabody Library, Baltimore, Maryland (© Wim Wiskerke/Alamy)
-
-![](images/2025-04/20250406_PeabodyBaltimore_1920x1080.jpg)
 
 
 
