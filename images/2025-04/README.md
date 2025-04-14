@@ -2,7 +2,7 @@
 
 ![](20250414_TakayamaFestival_1920x1080.jpg)
 
-#### 20250414 圣玛丽亚岛附近的大西洋细吻海豚，亚速尔群岛，葡萄牙 (© Jordi Chias/Minden Pictures)
+#### 20250414 Atlantic spotted dolphins near Santa Maria Island, Azores, Portugal (© Jordi Chias/Minden Pictures)
 
 ![](20250414_SpottedDolphins_1920x1080.jpg)
 
