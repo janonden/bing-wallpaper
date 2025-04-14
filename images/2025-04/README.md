@@ -1,3 +1,11 @@
+#### 20250415 卡拉奥拉城堡，格拉纳达，西班牙 (© Ugo Mellone/eStock Photo)
+
+![](20250415_CerezoEnFlor_1920x1080.jpg)
+
+#### 20250415 ビーチに描かれた巨大な絵, フランス (© Hemis/Alamy)
+
+![](20250415_BeachArt_1920x1080.jpg)
+
 #### 20250414 精巧なからくり人形, 岐阜県 高山市 (© N. F. Photography/Shutterstock)
 
 ![](20250414_TakayamaFestival_1920x1080.jpg)

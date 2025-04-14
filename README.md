@@ -1,3 +1,11 @@
+#### 20250415 卡拉奥拉城堡，格拉纳达，西班牙 (© Ugo Mellone/eStock Photo)
+
+![](images/2025-04/20250415_CerezoEnFlor_1920x1080.jpg)
+
+#### 20250415 ビーチに描かれた巨大な絵, フランス (© Hemis/Alamy)
+
+![](images/2025-04/20250415_BeachArt_1920x1080.jpg)
+
 #### 20250414 精巧なからくり人形, 岐阜県 高山市 (© N. F. Photography/Shutterstock)
 
 ![](images/2025-04/20250414_TakayamaFestival_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20250407 North American beaver, Moran, Wyoming (© Enrique Aguirre Aves/Getty Images)
 
 ![](images/2025-04/20250407_BeaverDay_1920x1080.jpg)
-
-#### 20250406 Yellow warbler in Canada (© mirceax/Getty Images)
-
-![](images/2025-04/20250406_YellowWarbler_1920x1080.jpg)
-
-#### 20250406 Tulip fields in Netherlands (© 1111IESPDJ/Getty Images)
-
-![](images/2025-04/20250406_TulipsWindmill_1920x1080.jpg)
 
 
 
