@@ -2,7 +2,7 @@
 
 ![](images/2025-04/20250415_CerezoEnFlor_1920x1080.jpg)
 
-#### 20250415 ビーチに描かれた巨大な絵, フランス (© Hemis/Alamy)
+#### 20250415 Beach art by Zarpõ at plage de Sauveterre, Les Sables-d'Olonne, France (© Hemis/Alamy)
 
 ![](images/2025-04/20250415_BeachArt_1920x1080.jpg)
 
