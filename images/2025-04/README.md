@@ -1,3 +1,7 @@
+#### 20250416 卡奇纳桥，天然桥国家区，犹他州，美国 (© Alan Majchrowicz/Getty Images)
+
+![](20250416_KachinaBridge_1920x1080.jpg)
+
 #### 20250415 卡拉奥拉城堡，格拉纳达，西班牙 (© Ugo Mellone/eStock Photo)
 
 ![](20250415_CerezoEnFlor_1920x1080.jpg)
