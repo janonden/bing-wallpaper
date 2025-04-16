@@ -1,6 +1,14 @@
+#### 20250416 Pont sur la Garonne avec le Dôme de la Grave, Toulouse (© LOOK-foto/Image Professionals GmbH/Alamy Stock Photo)
+
+![](20250416_ToulouseBridge_1920x1080.jpg)
+
 #### 20250416 卡奇纳桥，天然桥国家区，犹他州，美国 (© Alan Majchrowicz/Getty Images)
 
 ![](20250416_KachinaBridge_1920x1080.jpg)
+
+#### 20250416 Strandkörbe vor der Seebrücke auf Steinwarder in Heiligenhafen, Schleswig-Holstein, Deutschland (© Frank Lukasseck/Huber/eStock Photo)
+
+![](20250416_BeachChairsSteinwarder_1920x1080.jpg)
 
 #### 20250415 卡拉奥拉城堡，格拉纳达，西班牙 (© Ugo Mellone/eStock Photo)
 
