@@ -2,7 +2,7 @@
 
 ![](images/2025-04/20250416_ToulouseBridge_1920x1080.jpg)
 
-#### 20250416 卡奇纳桥，天然桥国家区，犹他州，美国 (© Alan Majchrowicz/Getty Images)
+#### 20250416 Kachina Bridge, Natural Bridges National Monument, Utah (© Alan Majchrowicz/Getty Images)
 
 ![](images/2025-04/20250416_KachinaBridge_1920x1080.jpg)
 
