@@ -1,3 +1,7 @@
+#### 20250417 安第斯动冠伞鸟，厄瓜多尔 (© Kit Day/Alamy Stock Photo)
+
+![](20250417_EcuadorBird_1920x1080.jpg)
+
 #### 20250416 Pont sur la Garonne avec le Dôme de la Grave, Toulouse (© LOOK-foto/Image Professionals GmbH/Alamy Stock Photo)
 
 ![](20250416_ToulouseBridge_1920x1080.jpg)
