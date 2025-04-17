@@ -1,3 +1,7 @@
+#### 20250418 卡帕多西亚格雷梅国家公园上空的热气球，土耳其 (© Anton Petrus/Getty Images)
+
+![](images/2025-04/20250418_GoremeTurkey_1920x1080.jpg)
+
 #### 20250417 Andean cocks-of-the-rock, Ecuador (© Kit Day/Alamy)
 
 ![](images/2025-04/20250417_EcuadorBird_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250409 Piazza Maggiore, Bologna, Italy (© RudyBalasko/Getty Images)
 
 ![](images/2025-04/20250409_PiazzaBologna_1920x1080.jpg)
-
-#### 20250409 Blue hour in Naxos, Cyclades, Greece (© Sizun Eye/Getty Images)
-
-![](images/2025-04/20250409_BlueNaxos_1920x1080.jpg)
 
 
 

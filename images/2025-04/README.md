@@ -1,3 +1,7 @@
+#### 20250418 卡帕多西亚格雷梅国家公园上空的热气球，土耳其 (© Anton Petrus/Getty Images)
+
+![](20250418_GoremeTurkey_1920x1080.jpg)
+
 #### 20250417 Andean cocks-of-the-rock, Ecuador (© Kit Day/Alamy)
 
 ![](20250417_EcuadorBird_1920x1080.jpg)
