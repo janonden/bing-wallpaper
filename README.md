@@ -1,4 +1,4 @@
-#### 20250417 安第斯动冠伞鸟，厄瓜多尔 (© Kit Day/Alamy Stock Photo)
+#### 20250417 Andean cocks-of-the-rock, Ecuador (© Kit Day/Alamy)
 
 ![](images/2025-04/20250417_EcuadorBird_1920x1080.jpg)
 
