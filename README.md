@@ -1,4 +1,4 @@
-#### 20250418 卡帕多西亚格雷梅国家公园上空的热气球，土耳其 (© Anton Petrus/Getty Images)
+#### 20250418 Hot air balloons over Göreme Historical National Park in Cappadocia, Türkiye (© Anton Petrus/Getty Images)
 
 ![](images/2025-04/20250418_GoremeTurkey_1920x1080.jpg)
 
