@@ -2,6 +2,10 @@
 
 ![](images/2025-04/20250418_GoremeTurkey_1920x1080.jpg)
 
+#### 20250418 Lion de Belfort, Bourgogne-Franche-Comté, France (© milosk50/Shutterstock)
+
+![](images/2025-04/20250418_BelfortLion_1920x1080.jpg)
+
 #### 20250417 Andean cocks-of-the-rock, Ecuador (© Kit Day/Alamy)
 
 ![](images/2025-04/20250417_EcuadorBird_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250410 Red fox cubs near their den (© WildMedia/Shutterstock)
 
 ![](images/2025-04/20250410_LittleFoxes_1920x1080.jpg)
-
-#### 20250409 Piazza Maggiore, Bologna, Italy (© RudyBalasko/Getty Images)
-
-![](images/2025-04/20250409_PiazzaBologna_1920x1080.jpg)
 
 
 

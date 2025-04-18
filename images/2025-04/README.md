@@ -2,6 +2,10 @@
 
 ![](20250418_GoremeTurkey_1920x1080.jpg)
 
+#### 20250418 Lion de Belfort, Bourgogne-Franche-Comté, France (© milosk50/Shutterstock)
+
+![](20250418_BelfortLion_1920x1080.jpg)
+
 #### 20250417 Andean cocks-of-the-rock, Ecuador (© Kit Day/Alamy)
 
 ![](20250417_EcuadorBird_1920x1080.jpg)
