@@ -1,4 +1,4 @@
-#### 20250419 锡安国家公园，犹他州，美国 (© Simon Dannhauer/Getty Images)
+#### 20250419 Zion National Park, Utah (© Simon Dannhauer/Getty Images)
 
 ![](20250419_ZionValley_1920x1080.jpg)
 
