@@ -2,6 +2,10 @@
 
 ![](images/2025-04/20250421_YellowWarbler_1920x1080.jpg)
 
+#### 20250421 银河下的约书亚树，加利福尼亚州，美国 (© Chao Zhang/Getty Images)
+
+![](images/2025-04/20250421_JoshuaStars_1920x1080.jpg)
+
 #### 20250420 Viele bunt bemalte Ostereier an einem Apfelbaum (© Kerrick/Getty Images)
 
 ![](images/2025-04/20250420_EastereggsTree_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250414 Atlantic spotted dolphins near Santa Maria Island, Azores, Portugal (© Jordi Chias/Minden Pictures)
 
 ![](images/2025-04/20250414_SpottedDolphins_1920x1080.jpg)
-
-#### 20250413 Wat Tang Sai Temple in Ban Krut, Thailand (© Ratnakorn Piyasirisorost/Getty Images)
-
-![](images/2025-04/20250413_ThailandPagodas_1920x1080.jpg)
 
 
 

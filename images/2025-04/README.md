@@ -2,6 +2,10 @@
 
 ![](20250421_YellowWarbler_1920x1080.jpg)
 
+#### 20250421 银河下的约书亚树，加利福尼亚州，美国 (© Chao Zhang/Getty Images)
+
+![](20250421_JoshuaStars_1920x1080.jpg)
+
 #### 20250420 Viele bunt bemalte Ostereier an einem Apfelbaum (© Kerrick/Getty Images)
 
 ![](20250420_EastereggsTree_1920x1080.jpg)
