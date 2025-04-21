@@ -1,3 +1,7 @@
+#### 20250422 大棱镜彩泉，黄石国家公园，怀俄明州，美国 (© Ajith Kumar/Getty Images)
+
+![](20250422_YellowstoneSpring_1920x1080.jpg)
+
 #### 20250421 Yellow warbler in Canada (© mirceax/Getty Images)
 
 ![](20250421_YellowWarbler_1920x1080.jpg)

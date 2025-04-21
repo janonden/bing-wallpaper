@@ -1,3 +1,7 @@
+#### 20250422 大棱镜彩泉，黄石国家公园，怀俄明州，美国 (© Ajith Kumar/Getty Images)
+
+![](images/2025-04/20250422_YellowstoneSpring_1920x1080.jpg)
+
 #### 20250421 Yellow warbler in Canada (© mirceax/Getty Images)
 
 ![](images/2025-04/20250421_YellowWarbler_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250414 精巧なからくり人形, 岐阜県 高山市 (© N. F. Photography/Shutterstock)
 
 ![](images/2025-04/20250414_TakayamaFestival_1920x1080.jpg)
-
-#### 20250414 Atlantic spotted dolphins near Santa Maria Island, Azores, Portugal (© Jordi Chias/Minden Pictures)
-
-![](images/2025-04/20250414_SpottedDolphins_1920x1080.jpg)
 
 
 
