@@ -2,7 +2,7 @@
 
 ![](images/2025-04/20250421_YellowWarbler_1920x1080.jpg)
 
-#### 20250421 银河下的约书亚树，加利福尼亚州，美国 (© Chao Zhang/Getty Images)
+#### 20250421 Joshua trees under the Milky Way, California (© Chao Zhang/Getty Images)
 
 ![](images/2025-04/20250421_JoshuaStars_1920x1080.jpg)
 
