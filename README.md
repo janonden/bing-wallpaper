@@ -1,3 +1,7 @@
+#### 20250423 シェイクスピアズ・グローブ, イギリス ロンドン (© Peter Dazeley/Getty Images)
+
+![](images/2025-04/20250423_GlobeTheatre_1920x1080.jpg)
+
 #### 20250422 Grand Prismatic Spring, Yellowstone National Park, Wyoming (© Ajith Kumar/Getty Images)
 
 ![](images/2025-04/20250422_YellowstoneSpring_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250415 Beach art by Zarpõ at plage de Sauveterre, Les Sables-d'Olonne, France (© Hemis/Alamy)
 
 ![](images/2025-04/20250415_BeachArt_1920x1080.jpg)
-
-#### 20250414 精巧なからくり人形, 岐阜県 高山市 (© N. F. Photography/Shutterstock)
-
-![](images/2025-04/20250414_TakayamaFestival_1920x1080.jpg)
 
 
 

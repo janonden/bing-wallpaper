@@ -1,3 +1,7 @@
+#### 20250423 シェイクスピアズ・グローブ, イギリス ロンドン (© Peter Dazeley/Getty Images)
+
+![](20250423_GlobeTheatre_1920x1080.jpg)
+
 #### 20250422 Grand Prismatic Spring, Yellowstone National Park, Wyoming (© Ajith Kumar/Getty Images)
 
 ![](20250422_YellowstoneSpring_1920x1080.jpg)
