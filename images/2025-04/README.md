@@ -1,4 +1,4 @@
-#### 20250422 大棱镜彩泉，黄石国家公园，怀俄明州，美国 (© Ajith Kumar/Getty Images)
+#### 20250422 Grand Prismatic Spring, Yellowstone National Park, Wyoming (© Ajith Kumar/Getty Images)
 
 ![](20250422_YellowstoneSpring_1920x1080.jpg)
 
