@@ -1,3 +1,7 @@
+#### 20250424 阿拉斯加基奈峡湾国家公园尖顶湾, 阿拉斯加州苏厄德, 美国 (© Wander Photography/Getty Images)
+
+![](images/2025-04/20250424_KenaiSpires_1920x1080.jpg)
+
 #### 20250423 Shakespeare's Globe, London, England (© Peter Dazeley/Getty Images)
 
 ![](images/2025-04/20250423_GlobeTheatre_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250415 卡拉奥拉城堡，格拉纳达，西班牙 (© Ugo Mellone/eStock Photo)
 
 ![](images/2025-04/20250415_CerezoEnFlor_1920x1080.jpg)
-
-#### 20250415 Beach art by Zarpõ at plage de Sauveterre, Les Sables-d'Olonne, France (© Hemis/Alamy)
-
-![](images/2025-04/20250415_BeachArt_1920x1080.jpg)
 
 
 

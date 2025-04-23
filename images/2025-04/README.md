@@ -1,3 +1,7 @@
+#### 20250424 阿拉斯加基奈峡湾国家公园尖顶湾, 阿拉斯加州苏厄德, 美国 (© Wander Photography/Getty Images)
+
+![](20250424_KenaiSpires_1920x1080.jpg)
+
 #### 20250423 Shakespeare's Globe, London, England (© Peter Dazeley/Getty Images)
 
 ![](20250423_GlobeTheatre_1920x1080.jpg)
