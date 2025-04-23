@@ -1,4 +1,4 @@
-#### 20250423 シェイクスピアズ・グローブ, イギリス ロンドン (© Peter Dazeley/Getty Images)
+#### 20250423 Shakespeare's Globe, London, England (© Peter Dazeley/Getty Images)
 
 ![](20250423_GlobeTheatre_1920x1080.jpg)
 
