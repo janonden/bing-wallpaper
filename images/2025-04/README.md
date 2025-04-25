@@ -1,3 +1,11 @@
+#### 20250426 ジャスパー国立公園, カナダ アルバータ州 (© Mumemories/Getty Images)
+
+![](20250426_MaligneLakeJasper_1920x1080.jpg)
+
+#### 20250426 印第安头湾, 布鲁斯半岛国家公园, 安大略, 加拿大 (© Maurice Prokaziuk/Getty Images)
+
+![](20250426_BrucePeninsula_1920x1080.jpg)
+
 #### 20250425 Magellanic penguins, Volunteer Point, Falkland Islands (© imageBROKER/Matthias Graben/Getty Images)
 
 ![](20250425_MagellanicPenguin_1920x1080.jpg)

@@ -1,3 +1,11 @@
+#### 20250426 ジャスパー国立公園, カナダ アルバータ州 (© Mumemories/Getty Images)
+
+![](images/2025-04/20250426_MaligneLakeJasper_1920x1080.jpg)
+
+#### 20250426 印第安头湾, 布鲁斯半岛国家公园, 安大略, 加拿大 (© Maurice Prokaziuk/Getty Images)
+
+![](images/2025-04/20250426_BrucePeninsula_1920x1080.jpg)
+
 #### 20250425 Magellanic penguins, Volunteer Point, Falkland Islands (© imageBROKER/Matthias Graben/Getty Images)
 
 ![](images/2025-04/20250425_MagellanicPenguin_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20250416 Pont sur la Garonne avec le Dôme de la Grave, Toulouse (© LOOK-foto/Image Professionals GmbH/Alamy Stock Photo)
 
 ![](images/2025-04/20250416_ToulouseBridge_1920x1080.jpg)
-
-#### 20250416 Kachina Bridge, Natural Bridges National Monument, Utah (© Alan Majchrowicz/Getty Images)
-
-![](images/2025-04/20250416_KachinaBridge_1920x1080.jpg)
-
-#### 20250416 Strandkörbe vor der Seebrücke auf Steinwarder in Heiligenhafen, Schleswig-Holstein, Deutschland (© Frank Lukasseck/Huber/eStock Photo)
-
-![](images/2025-04/20250416_BeachChairsSteinwarder_1920x1080.jpg)
 
 
 
