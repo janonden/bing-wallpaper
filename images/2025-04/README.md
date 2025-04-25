@@ -1,4 +1,4 @@
-#### 20250425 麦哲伦企鹅, 志愿者角, 福克兰群岛 (© imageBROKER/Matthias Graben/Getty Images)
+#### 20250425 Magellanic penguins, Volunteer Point, Falkland Islands (© imageBROKER/Matthias Graben/Getty Images)
 
 ![](20250425_MagellanicPenguin_1920x1080.jpg)
 
