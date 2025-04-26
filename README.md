@@ -1,3 +1,7 @@
+#### 20250426 Grove of redwoods in Redwood National and State Parks, California (© Bob Pool/Getty Images)
+
+![](images/2025-04/20250426_RedwoodGrove_1920x1080.jpg)
+
 #### 20250426 ジャスパー国立公園, カナダ アルバータ州 (© Mumemories/Getty Images)
 
 ![](images/2025-04/20250426_MaligneLakeJasper_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250417 Andean cocks-of-the-rock, Ecuador (© Kit Day/Alamy)
 
 ![](images/2025-04/20250417_EcuadorBird_1920x1080.jpg)
-
-#### 20250416 Pont sur la Garonne avec le Dôme de la Grave, Toulouse (© LOOK-foto/Image Professionals GmbH/Alamy Stock Photo)
-
-![](images/2025-04/20250416_ToulouseBridge_1920x1080.jpg)
 
 
 

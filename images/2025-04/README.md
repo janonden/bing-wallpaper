@@ -1,3 +1,7 @@
+#### 20250426 Grove of redwoods in Redwood National and State Parks, California (© Bob Pool/Getty Images)
+
+![](20250426_RedwoodGrove_1920x1080.jpg)
+
 #### 20250426 ジャスパー国立公園, カナダ アルバータ州 (© Mumemories/Getty Images)
 
 ![](20250426_MaligneLakeJasper_1920x1080.jpg)
