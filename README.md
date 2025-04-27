@@ -30,6 +30,10 @@
 
 ![](images/2025-04/20250424_KenaiSpires_1920x1080.jpg)
 
+#### 20250424 Beach chairs on Steinwarder in Heiligenhafen, Schleswig-Holstein, Germany (© Frank Lukasseck/eStock Photo)
+
+![](images/2025-04/20250424_BeachChairsSteinwarder_1920x1080.jpg)
+
 #### 20250423 Shakespeare's Globe, London, England (© Peter Dazeley/Getty Images)
 
 ![](images/2025-04/20250423_GlobeTheatre_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250420 Wild baby rabbits in spring (© Fiona McAllister Photography/Getty Images)
 
 ![](images/2025-04/20250420_BunnyLove_1920x1080.jpg)
-
-#### 20250419 Zion National Park, Utah (© Simon Dannhauer/Getty Images)
-
-![](images/2025-04/20250419_ZionValley_1920x1080.jpg)
 
 
 

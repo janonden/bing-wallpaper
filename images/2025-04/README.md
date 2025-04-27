@@ -30,6 +30,10 @@
 
 ![](20250424_KenaiSpires_1920x1080.jpg)
 
+#### 20250424 Beach chairs on Steinwarder in Heiligenhafen, Schleswig-Holstein, Germany (© Frank Lukasseck/eStock Photo)
+
+![](20250424_BeachChairsSteinwarder_1920x1080.jpg)
+
 #### 20250423 Shakespeare's Globe, London, England (© Peter Dazeley/Getty Images)
 
 ![](20250423_GlobeTheatre_1920x1080.jpg)
