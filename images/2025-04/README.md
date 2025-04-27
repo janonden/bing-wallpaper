@@ -2,6 +2,10 @@
 
 ![](20250427_LuebeckHouses_1920x1080.jpg)
 
+#### 20250427 Halema'uma'u Crater's lava lake, Kīlauea Caldera, Hawai'i Volcanoes National Park, Hawaii (© Stephen Matera/Tandem Stills + Motion)
+
+![](20250427_KilaueaCaldera_1920x1080.jpg)
+
 #### 20250426 Grove of redwoods in Redwood National and State Parks, California (© Bob Pool/Getty Images)
 
 ![](20250426_RedwoodGrove_1920x1080.jpg)

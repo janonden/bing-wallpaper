@@ -2,6 +2,10 @@
 
 ![](images/2025-04/20250427_LuebeckHouses_1920x1080.jpg)
 
+#### 20250427 Halema'uma'u Crater's lava lake, Kīlauea Caldera, Hawai'i Volcanoes National Park, Hawaii (© Stephen Matera/Tandem Stills + Motion)
+
+![](images/2025-04/20250427_KilaueaCaldera_1920x1080.jpg)
+
 #### 20250426 Grove of redwoods in Redwood National and State Parks, California (© Bob Pool/Getty Images)
 
 ![](images/2025-04/20250426_RedwoodGrove_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250418 Hot air balloons over Göreme Historical National Park in Cappadocia, Türkiye (© Anton Petrus/Getty Images)
 
 ![](images/2025-04/20250418_GoremeTurkey_1920x1080.jpg)
-
-#### 20250418 Lion de Belfort, Bourgogne-Franche-Comté, France (© milosk50/Shutterstock)
-
-![](images/2025-04/20250418_BelfortLion_1920x1080.jpg)
 
 
 
