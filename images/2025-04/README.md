@@ -1,3 +1,7 @@
+#### 20250428 莫雷米野生动物保护区的高角羚，博茨瓦纳 (© Paul Souders/Getty Images)
+
+![](20250428_OrangeImpala_1920x1080.jpg)
+
 #### 20250427 Vogelperspektive auf Giebelhäuser, Große Petersgrube, Lübeck, Schleswig-Holstein (© H & D ZIELSKE/Image Professionals GmbH/Alamy Stock Foto)
 
 ![](20250427_LuebeckHouses_1920x1080.jpg)

@@ -1,3 +1,7 @@
+#### 20250428 莫雷米野生动物保护区的高角羚，博茨瓦纳 (© Paul Souders/Getty Images)
+
+![](images/2025-04/20250428_OrangeImpala_1920x1080.jpg)
+
 #### 20250427 Vogelperspektive auf Giebelhäuser, Große Petersgrube, Lübeck, Schleswig-Holstein (© H & D ZIELSKE/Image Professionals GmbH/Alamy Stock Foto)
 
 ![](images/2025-04/20250427_LuebeckHouses_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250419 Zion National Park, Utah (© Simon Dannhauer/Getty Images)
 
 ![](images/2025-04/20250419_ZionValley_1920x1080.jpg)
-
-#### 20250418 Hot air balloons over Göreme Historical National Park in Cappadocia, Türkiye (© Anton Petrus/Getty Images)
-
-![](images/2025-04/20250418_GoremeTurkey_1920x1080.jpg)
 
 
 
