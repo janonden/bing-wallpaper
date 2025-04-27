@@ -1,3 +1,7 @@
+#### 20250427 Vogelperspektive auf Giebelhäuser, Große Petersgrube, Lübeck, Schleswig-Holstein (© H & D ZIELSKE/Image Professionals GmbH/Alamy Stock Foto)
+
+![](20250427_LuebeckHouses_1920x1080.jpg)
+
 #### 20250426 Grove of redwoods in Redwood National and State Parks, California (© Bob Pool/Getty Images)
 
 ![](20250426_RedwoodGrove_1920x1080.jpg)

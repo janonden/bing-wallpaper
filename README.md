@@ -1,3 +1,7 @@
+#### 20250427 Vogelperspektive auf Giebelhäuser, Große Petersgrube, Lübeck, Schleswig-Holstein (© H & D ZIELSKE/Image Professionals GmbH/Alamy Stock Foto)
+
+![](images/2025-04/20250427_LuebeckHouses_1920x1080.jpg)
+
 #### 20250426 Grove of redwoods in Redwood National and State Parks, California (© Bob Pool/Getty Images)
 
 ![](images/2025-04/20250426_RedwoodGrove_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250418 Lion de Belfort, Bourgogne-Franche-Comté, France (© milosk50/Shutterstock)
 
 ![](images/2025-04/20250418_BelfortLion_1920x1080.jpg)
-
-#### 20250417 Andean cocks-of-the-rock, Ecuador (© Kit Day/Alamy)
-
-![](images/2025-04/20250417_EcuadorBird_1920x1080.jpg)
 
 
 
