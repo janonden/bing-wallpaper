@@ -1,3 +1,7 @@
+#### 20250429 维朗德里城堡，卢瓦尔河谷，法国 (© Mint Images/Getty Images)
+
+![](images/2025-04/20250429_GardensVillandry_1920x1080.jpg)
+
 #### 20250428 Impala with red-billed oxpecker in Moremi Game Reserve, Botswana (© Paul Souders/Getty Images)
 
 ![](images/2025-04/20250428_OrangeImpala_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250420 Viele bunt bemalte Ostereier an einem Apfelbaum (© Kerrick/Getty Images)
 
 ![](images/2025-04/20250420_EastereggsTree_1920x1080.jpg)
-
-#### 20250420 Wild baby rabbits in spring (© Fiona McAllister Photography/Getty Images)
-
-![](images/2025-04/20250420_BunnyLove_1920x1080.jpg)
 
 
 
