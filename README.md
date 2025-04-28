@@ -1,4 +1,4 @@
-#### 20250428 莫雷米野生动物保护区的高角羚，博茨瓦纳 (© Paul Souders/Getty Images)
+#### 20250428 Impala with red-billed oxpecker in Moremi Game Reserve, Botswana (© Paul Souders/Getty Images)
 
 ![](images/2025-04/20250428_OrangeImpala_1920x1080.jpg)
 
