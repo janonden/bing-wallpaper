@@ -1,3 +1,11 @@
+#### 20250430 从巴拉那州看到的伊瓜苏瀑布, 巴西 (© agustavop/Getty Images)
+
+![](20250430_FozdoIguacu_1920x1080.jpg)
+
+#### 20250430 サックス奏者ジョン・コルトレーンと彼のバンド, イギリス ロンドン (© Popperfoto/Getty Images)
+
+![](20250430_ColtraneBand_1920x1080.jpg)
+
 #### 20250429 Formal garden at Château de Villandry, Loire Valley, France (© Mint Images/Getty Images)
 
 ![](20250429_GardensVillandry_1920x1080.jpg)
