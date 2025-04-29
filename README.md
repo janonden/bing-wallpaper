@@ -1,4 +1,4 @@
-#### 20250429 维朗德里城堡，卢瓦尔河谷，法国 (© Mint Images/Getty Images)
+#### 20250429 Formal garden at Château de Villandry, Loire Valley, France (© Mint Images/Getty Images)
 
 ![](images/2025-04/20250429_GardensVillandry_1920x1080.jpg)
 
