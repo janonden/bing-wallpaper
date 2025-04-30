@@ -1,3 +1,7 @@
+#### 20250430 Faisan de Colchide mâle au milieu de fleurs jaunes, Normandie (© slowmotiongli/Getty Images)
+
+![](20250430_Pheasant_1920x1080.jpg)
+
 #### 20250430 从巴拉那州看到的伊瓜苏瀑布, 巴西 (© agustavop/Getty Images)
 
 ![](20250430_FozdoIguacu_1920x1080.jpg)

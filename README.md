@@ -1,3 +1,7 @@
+#### 20250430 Faisan de Colchide mâle au milieu de fleurs jaunes, Normandie (© slowmotiongli/Getty Images)
+
+![](images/2025-04/20250430_Pheasant_1920x1080.jpg)
+
 #### 20250430 从巴拉那州看到的伊瓜苏瀑布, 巴西 (© agustavop/Getty Images)
 
 ![](images/2025-04/20250430_FozdoIguacu_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250422 Grand Prismatic Spring, Yellowstone National Park, Wyoming (© Ajith Kumar/Getty Images)
 
 ![](images/2025-04/20250422_YellowstoneSpring_1920x1080.jpg)
-
-#### 20250421 Yellow warbler in Canada (© mirceax/Getty Images)
-
-![](images/2025-04/20250421_YellowWarbler_1920x1080.jpg)
 
 
 
