@@ -1,3 +1,11 @@
+#### 20250501 鸡蛋花，夏威夷，美国 (© Miranda Jans/Getty Images)
+
+![](images/2025-05/20250501_PinkPlumeria_1920x1080.jpg)
+
+#### 20250501 大淵笹場の茶畑, 静岡県 富士市 (© 7maru/Getty Images)
+
+![](images/2025-05/20250501_Hachijyuhachi_1920x1080.jpg)
+
 #### 20250430 Faisan de Colchide mâle au milieu de fleurs jaunes, Normandie (© slowmotiongli/Getty Images)
 
 ![](images/2025-04/20250430_Pheasant_1920x1080.jpg)
@@ -50,14 +58,6 @@
 
 ![](images/2025-04/20250424_BeachChairsSteinwarder_1920x1080.jpg)
 
-#### 20250423 Shakespeare's Globe, London, England (© Peter Dazeley/Getty Images)
-
-![](images/2025-04/20250423_GlobeTheatre_1920x1080.jpg)
-
-#### 20250422 Grand Prismatic Spring, Yellowstone National Park, Wyoming (© Ajith Kumar/Getty Images)
-
-![](images/2025-04/20250422_YellowstoneSpring_1920x1080.jpg)
-
 
 
 
@@ -66,7 +66,7 @@
 
 
 
-- 2025&emsp;&emsp;[04](images/2025-04/README.md) &emsp;&emsp;[03](images/2025-03/README.md) &emsp;&emsp;[02](images/2025-02/README.md) &emsp;&emsp;[01](images/2025-01/README.md) 
+- 2025&emsp;&emsp;[05](images/2025-05/README.md) &emsp;&emsp;[04](images/2025-04/README.md) &emsp;&emsp;[03](images/2025-03/README.md) &emsp;&emsp;[02](images/2025-02/README.md) &emsp;&emsp;[01](images/2025-01/README.md) 
 
 - 2024&emsp;&emsp;[12](https://github.com/janonden/bing-wallpaper/blob/2024/images/2024-12/README.md) &emsp;&emsp;[11](https://github.com/janonden/bing-wallpaper/blob/2024/images/2024-11/README.md) &emsp;&emsp;[10](https://github.com/janonden/bing-wallpaper/blob/2024/images/2024-10/README.md) &emsp;&emsp;[09](https://github.com/janonden/bing-wallpaper/blob/2024/images/2024-09/README.md) &emsp;&emsp;[08](https://github.com/janonden/bing-wallpaper/blob/2024/images/2024-08/README.md) &emsp;&emsp;[07](https://github.com/janonden/bing-wallpaper/blob/2024/images/2024-07/README.md) &emsp;&emsp;[06](https://github.com/janonden/bing-wallpaper/blob/2024/images/2024-06/README.md) &emsp;&emsp;[05](https://github.com/janonden/bing-wallpaper/blob/2024/images/2024-05/README.md) &emsp;&emsp;[04](https://github.com/janonden/bing-wallpaper/blob/2024/images/2024-04/README.md) &emsp;&emsp;[03](https://github.com/janonden/bing-wallpaper/blob/2024/images/2024-03/README.md) &emsp;&emsp;[02](https://github.com/janonden/bing-wallpaper/blob/2024/images/2024-02/README.md) &emsp;&emsp;[01](https://github.com/janonden/bing-wallpaper/blob/2024/images/2024-01/README.md) 
 
