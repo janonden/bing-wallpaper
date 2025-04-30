@@ -6,7 +6,7 @@
 
 ![](images/2025-04/20250430_FozdoIguacu_1920x1080.jpg)
 
-#### 20250430 サックス奏者ジョン・コルトレーンと彼のバンド, イギリス ロンドン (© Popperfoto/Getty Images)
+#### 20250430 Jazz saxophonist John Coltrane and band performing in 1961 in London, England (© Popperfoto/Getty Images)
 
 ![](images/2025-04/20250430_ColtraneBand_1920x1080.jpg)
 
