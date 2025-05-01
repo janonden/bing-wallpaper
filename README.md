@@ -1,4 +1,4 @@
-#### 20250501 鸡蛋花，夏威夷，美国 (© Miranda Jans/Getty Images)
+#### 20250501 Plumeria flowers, Hawaii (© Miranda Jans/Getty Images)
 
 ![](images/2025-05/20250501_PinkPlumeria_1920x1080.jpg)
 
