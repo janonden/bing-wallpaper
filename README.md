@@ -1,3 +1,7 @@
+#### 20250503 拱门国家公园双拱门映衬下的银河，犹他州，美国 (© Adventure_Photo/Getty Images)
+
+![](images/2025-05/20250503_ArchesGalaxy_1920x1080.jpg)
+
 #### 20250502 Striated heron on a Victoria water lily, Pantanal, Brazil (© Gerald Corsi/Getty Images)
 
 ![](images/2025-05/20250502_BrazilHeron_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250425 Magellanic penguins, Volunteer Point, Falkland Islands (© imageBROKER/Matthias Graben/Getty Images)
 
 ![](images/2025-04/20250425_MagellanicPenguin_1920x1080.jpg)
-
-#### 20250424 Spire Cove in Kenai Fjords National Park, Seward, Alaska (© Wander Photography/Getty Images)
-
-![](images/2025-04/20250424_KenaiSpires_1920x1080.jpg)
 
 
 
