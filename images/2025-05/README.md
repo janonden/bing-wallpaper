@@ -1,4 +1,4 @@
-#### 20250502 维多利亚睡莲上的绿鹭，潘塔纳尔 ，巴西 (© Gerald Corsi/Getty Images)
+#### 20250502 Striated heron on a Victoria water lily, Pantanal, Brazil (© Gerald Corsi/Getty Images)
 
 ![](20250502_BrazilHeron_1920x1080.jpg)
 
