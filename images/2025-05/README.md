@@ -1,3 +1,11 @@
+#### 20250505 東京タワー 333 匹の鯉のぼり, 東京 (© Takashi Aoyama/寄稿者/Getty Images)
+
+![](20250505_Koinobori_1920x1080.jpg)
+
+#### 20250505 日出时分，美丽的喀斯特山脉鸟瞰图，中国桂林 (© zhaojiankang/Getty Images)
+
+![](20250505_BeginningofSummer_1920x1080.jpg)
+
 #### 20250504 Plaza de España, Seville, Spain (© Horia Merla/Getty Images)
 
 ![](20250504_SevilleNaboo_1920x1080.jpg)
