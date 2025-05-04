@@ -1,4 +1,4 @@
-#### 20250504 西班牙广场，塞维利亚，西班牙 (© Horia Merla/Getty Images)
+#### 20250504 Plaza de España, Seville, Spain (© Horia Merla/Getty Images)
 
 ![](images/2025-05/20250504_SevilleNaboo_1920x1080.jpg)
 
