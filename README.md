@@ -14,6 +14,10 @@
 
 ![](images/2025-05/20250505_Koinobori_1920x1080.jpg)
 
+#### 20250505 Paper flags strung over a street in San Miguel de Allende, Mexico (© William Zinn/Getty Images)
+
+![](images/2025-05/20250505_CincoFlags_1920x1080.jpg)
+
 #### 20250505 日出时分，美丽的喀斯特山脉鸟瞰图，中国桂林 (© zhaojiankang/Getty Images)
 
 ![](images/2025-05/20250505_BeginningofSummer_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250430 从巴拉那州看到的伊瓜苏瀑布, 巴西 (© agustavop/Getty Images)
 
 ![](images/2025-04/20250430_FozdoIguacu_1920x1080.jpg)
-
-#### 20250430 Jazz saxophonist John Coltrane and band performing in 1961 in London, England (© Popperfoto/Getty Images)
-
-![](images/2025-04/20250430_ColtraneBand_1920x1080.jpg)
 
 
 
