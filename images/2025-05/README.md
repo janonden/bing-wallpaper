@@ -1,3 +1,11 @@
+#### 20250505 Mount Burgess und Emerald Lake im Yoho-Nationalpark, British Columbia, Kanada (© Feng Wei Photography/Getty Images)
+
+![](20250505_YohoNP_1920x1080.jpg)
+
+#### 20250505 Ânes dans une vallée près de Rhyolite, Nevada, États-Unis (© Moelyn Photos/Getty Images)
+
+![](20250505_RhyoliteDonkeys_1920x1080.jpg)
+
 #### 20250505 東京タワー 333 匹の鯉のぼり, 東京 (© Takashi Aoyama/寄稿者/Getty Images)
 
 ![](20250505_Koinobori_1920x1080.jpg)

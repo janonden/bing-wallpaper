@@ -1,3 +1,11 @@
+#### 20250505 Mount Burgess und Emerald Lake im Yoho-Nationalpark, British Columbia, Kanada (© Feng Wei Photography/Getty Images)
+
+![](images/2025-05/20250505_YohoNP_1920x1080.jpg)
+
+#### 20250505 Ânes dans une vallée près de Rhyolite, Nevada, États-Unis (© Moelyn Photos/Getty Images)
+
+![](images/2025-05/20250505_RhyoliteDonkeys_1920x1080.jpg)
+
 #### 20250505 東京タワー 333 匹の鯉のぼり, 東京 (© Takashi Aoyama/寄稿者/Getty Images)
 
 ![](images/2025-05/20250505_Koinobori_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20250429 Formal garden at Château de Villandry, Loire Valley, France (© Mint Images/Getty Images)
 
 ![](images/2025-04/20250429_GardensVillandry_1920x1080.jpg)
-
-#### 20250428 Impala with red-billed oxpecker in Moremi Game Reserve, Botswana (© Paul Souders/Getty Images)
-
-![](images/2025-04/20250428_OrangeImpala_1920x1080.jpg)
-
-#### 20250427 Vogelperspektive auf Giebelhäuser, Große Petersgrube, Lübeck, Schleswig-Holstein (© H & D ZIELSKE/Image Professionals GmbH/Alamy Stock Foto)
-
-![](images/2025-04/20250427_LuebeckHouses_1920x1080.jpg)
 
 
 
