@@ -1,3 +1,7 @@
+#### 20250506 一架超轻型飞机飞越纳米比亚沙漠 (© Burt Johnson/Alamy Stock Photo)
+
+![](20250506_FlyoverNamibia_1920x1080.jpg)
+
 #### 20250505 Mount Burgess und Emerald Lake im Yoho-Nationalpark, British Columbia, Kanada (© Feng Wei Photography/Getty Images)
 
 ![](20250505_YohoNP_1920x1080.jpg)

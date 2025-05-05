@@ -1,3 +1,7 @@
+#### 20250506 一架超轻型飞机飞越纳米比亚沙漠 (© Burt Johnson/Alamy Stock Photo)
+
+![](images/2025-05/20250506_FlyoverNamibia_1920x1080.jpg)
+
 #### 20250505 Mount Burgess und Emerald Lake im Yoho-Nationalpark, British Columbia, Kanada (© Feng Wei Photography/Getty Images)
 
 ![](images/2025-05/20250505_YohoNP_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250430 Faisan de Colchide mâle au milieu de fleurs jaunes, Normandie (© slowmotiongli/Getty Images)
 
 ![](images/2025-04/20250430_Pheasant_1920x1080.jpg)
-
-#### 20250430 从巴拉那州看到的伊瓜苏瀑布, 巴西 (© agustavop/Getty Images)
-
-![](images/2025-04/20250430_FozdoIguacu_1920x1080.jpg)
 
 
 
