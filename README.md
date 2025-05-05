@@ -2,6 +2,10 @@
 
 ![](images/2025-05/20250505_YohoNP_1920x1080.jpg)
 
+#### 20250505 Torres del Paine National Park, Patagonia, Chile (© Marco Bottigelli/Getty Images)
+
+![](images/2025-05/20250505_TorresChile_1920x1080.jpg)
+
 #### 20250505 Ânes dans une vallée près de Rhyolite, Nevada, États-Unis (© Moelyn Photos/Getty Images)
 
 ![](images/2025-05/20250505_RhyoliteDonkeys_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250430 Jazz saxophonist John Coltrane and band performing in 1961 in London, England (© Popperfoto/Getty Images)
 
 ![](images/2025-04/20250430_ColtraneBand_1920x1080.jpg)
-
-#### 20250429 Formal garden at Château de Villandry, Loire Valley, France (© Mint Images/Getty Images)
-
-![](images/2025-04/20250429_GardensVillandry_1920x1080.jpg)
 
 
 

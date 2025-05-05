@@ -2,6 +2,10 @@
 
 ![](20250505_YohoNP_1920x1080.jpg)
 
+#### 20250505 Torres del Paine National Park, Patagonia, Chile (© Marco Bottigelli/Getty Images)
+
+![](20250505_TorresChile_1920x1080.jpg)
+
 #### 20250505 Ânes dans une vallée près de Rhyolite, Nevada, États-Unis (© Moelyn Photos/Getty Images)
 
 ![](20250505_RhyoliteDonkeys_1920x1080.jpg)
