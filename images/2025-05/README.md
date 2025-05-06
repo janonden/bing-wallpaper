@@ -1,3 +1,7 @@
+#### 20250507 邓路斯城堡，安特里姆郡，北爱尔兰 (© DieterMeyrl/Getty Images)
+
+![](20250507_DunluceIreland_1920x1080.jpg)
+
 #### 20250506 An ultralight aircraft flying over the sands of Namibia (© Burt Johnson/Alamy)
 
 ![](20250506_FlyoverNamibia_1920x1080.jpg)

@@ -1,3 +1,7 @@
+#### 20250507 邓路斯城堡，安特里姆郡，北爱尔兰 (© DieterMeyrl/Getty Images)
+
+![](images/2025-05/20250507_DunluceIreland_1920x1080.jpg)
+
 #### 20250506 An ultralight aircraft flying over the sands of Namibia (© Burt Johnson/Alamy)
 
 ![](images/2025-05/20250506_FlyoverNamibia_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250501 大淵笹場の茶畑, 静岡県 富士市 (© 7maru/Getty Images)
 
 ![](images/2025-05/20250501_Hachijyuhachi_1920x1080.jpg)
-
-#### 20250430 Faisan de Colchide mâle au milieu de fleurs jaunes, Normandie (© slowmotiongli/Getty Images)
-
-![](images/2025-04/20250430_Pheasant_1920x1080.jpg)
 
 
 
