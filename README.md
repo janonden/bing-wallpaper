@@ -1,4 +1,4 @@
-#### 20250506 一架超轻型飞机飞越纳米比亚沙漠 (© Burt Johnson/Alamy Stock Photo)
+#### 20250506 An ultralight aircraft flying over the sands of Namibia (© Burt Johnson/Alamy)
 
 ![](images/2025-05/20250506_FlyoverNamibia_1920x1080.jpg)
 
