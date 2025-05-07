@@ -1,4 +1,4 @@
-#### 20250507 邓路斯城堡，安特里姆郡，北爱尔兰 (© DieterMeyrl/Getty Images)
+#### 20250507 Dunluce Castle, County Antrim, Northern Ireland (© DieterMeyrl/Getty Images)
 
 ![](images/2025-05/20250507_DunluceIreland_1920x1080.jpg)
 
