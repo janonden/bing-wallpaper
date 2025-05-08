@@ -1,3 +1,7 @@
+#### 20250508 Volcan Puy du Pariou, Auvergne (© Frantisek ZVARDON/Onlyfrance.fr/Alamy Stock Photo)
+
+![](images/2025-05/20250508_VictoryDay_1920x1080.jpg)
+
 #### 20250507 Dunluce Castle, County Antrim, Northern Ireland (© DieterMeyrl/Getty Images)
 
 ![](images/2025-05/20250507_DunluceIreland_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250501 Plumeria flowers, Hawaii (© Miranda Jans/Getty Images)
 
 ![](images/2025-05/20250501_PinkPlumeria_1920x1080.jpg)
-
-#### 20250501 大淵笹場の茶畑, 静岡県 富士市 (© 7maru/Getty Images)
-
-![](images/2025-05/20250501_Hachijyuhachi_1920x1080.jpg)
 
 
 
