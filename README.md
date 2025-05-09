@@ -2,7 +2,7 @@
 
 ![](images/2025-05/20250509_Tulip_1920x1080.jpg)
 
-#### 20250509 普通变色龙 (© Photostock-Israel/SPL/Getty Images)
+#### 20250509 Common chameleon (© Photostock-Israel/SPL/Getty Images)
 
 ![](images/2025-05/20250509_CuteChameleon_1920x1080.jpg)
 
