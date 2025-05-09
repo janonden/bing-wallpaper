@@ -1,3 +1,7 @@
+#### 20250509 Canadian Tulip Festival in Ottawa (© Danielle Donders/Getty Images)
+
+![](images/2025-05/20250509_Tulip_1920x1080.jpg)
+
 #### 20250509 普通变色龙 (© Photostock-Israel/SPL/Getty Images)
 
 ![](images/2025-05/20250509_CuteChameleon_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250503 Schloss Moritzburg bei Dresden, Sachsen (© Hans-Peter Szyszka/Huber/eStock Photo)
 
 ![](images/2025-05/20250503_SchlossMoritzburg_1920x1080.jpg)
-
-#### 20250503 The Milky Way framed by Double Arch in Arches National Park, Utah (© Adventure_Photo/Getty Images)
-
-![](images/2025-05/20250503_ArchesGalaxy_1920x1080.jpg)
 
 
 
