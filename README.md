@@ -1,3 +1,11 @@
+#### 20250510 ミネソタ州会議事堂, 米国ミネソタ州 (© lavin photography/Getty Images)
+
+![](images/2025-05/20250510_MinnesotaRotunda_1920x1080.jpg)
+
+#### 20250510 巴尔德纳斯雷亚尔斯自然公园的卡斯蒂尔德蒂拉，纳瓦拉，西班牙 (© Eloi_Omella/Getty Images)
+
+![](images/2025-05/20250510_Castildetierra_1920x1080.jpg)
+
 #### 20250509 Canadian Tulip Festival in Ottawa (© Danielle Donders/Getty Images)
 
 ![](images/2025-05/20250509_Tulip_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20250504 Plaza de España, Seville, Spain (© Horia Merla/Getty Images)
 
 ![](images/2025-05/20250504_SevilleNaboo_1920x1080.jpg)
-
-#### 20250504 屋久島, 鹿児島県 (© oxico/Getty Images)
-
-![](images/2025-05/20250504_GreeneryDay_1920x1080.jpg)
-
-#### 20250503 Schloss Moritzburg bei Dresden, Sachsen (© Hans-Peter Szyszka/Huber/eStock Photo)
-
-![](images/2025-05/20250503_SchlossMoritzburg_1920x1080.jpg)
 
 
 
