@@ -1,3 +1,7 @@
+#### 20250511 豹妈妈正在梳理她的幼崽，Jao保护区，博茨瓦纳 (© Suzi Eszterhas/Minden Pictures)
+
+![](images/2025-05/20250511_LeopardMother_1920x1080.jpg)
+
 #### 20250510 Minnesota State Capitol, St. Paul, Minnesota (© lavin photography/Getty Images)
 
 ![](images/2025-05/20250510_MinnesotaRotunda_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250505 Paper flags strung over a street in San Miguel de Allende, Mexico (© William Zinn/Getty Images)
 
 ![](images/2025-05/20250505_CincoFlags_1920x1080.jpg)
-
-#### 20250505 日出时分，美丽的喀斯特山脉鸟瞰图，中国桂林 (© zhaojiankang/Getty Images)
-
-![](images/2025-05/20250505_BeginningofSummer_1920x1080.jpg)
 
 
 
