@@ -1,4 +1,4 @@
-#### 20250510 ミネソタ州会議事堂, 米国ミネソタ州 (© lavin photography/Getty Images)
+#### 20250510 Minnesota State Capitol, St. Paul, Minnesota (© lavin photography/Getty Images)
 
 ![](images/2025-05/20250510_MinnesotaRotunda_1920x1080.jpg)
 
