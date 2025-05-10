@@ -2,6 +2,10 @@
 
 ![](20250510_MinnesotaRotunda_1920x1080.jpg)
 
+#### 20250510 Blick auf Heidelberg und das Heidelberger Schloss im Frühling, Baden-Württemberg (© anyaivanova/Getty Images)
+
+![](20250510_HeidelbergSpring_1920x1080.jpg)
+
 #### 20250510 巴尔德纳斯雷亚尔斯自然公园的卡斯蒂尔德蒂拉，纳瓦拉，西班牙 (© Eloi_Omella/Getty Images)
 
 ![](20250510_Castildetierra_1920x1080.jpg)
