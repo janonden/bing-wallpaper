@@ -1,4 +1,4 @@
-#### 20250511 豹妈妈正在梳理她的幼崽，Jao保护区，博茨瓦纳 (© Suzi Eszterhas/Minden Pictures)
+#### 20250511 Leopard mother grooming her cub, Jao Reserve, Botswana (© Suzi Eszterhas/Minden Pictures)
 
 ![](20250511_LeopardMother_1920x1080.jpg)
 
