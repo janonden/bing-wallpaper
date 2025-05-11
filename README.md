@@ -1,3 +1,7 @@
+#### 20250512 东京的鸢尾花园, 日本 (© M.Arai/Getty Images)
+
+![](images/2025-05/20250512_IrisGarden_1920x1080.jpg)
+
 #### 20250511 Leopard mother grooming her cub, Jao Reserve, Botswana (© Suzi Eszterhas/Minden Pictures)
 
 ![](images/2025-05/20250511_LeopardMother_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250505 東京タワー 333 匹の鯉のぼり, 東京 (© Takashi Aoyama/寄稿者/Getty Images)
 
 ![](images/2025-05/20250505_Koinobori_1920x1080.jpg)
-
-#### 20250505 Paper flags strung over a street in San Miguel de Allende, Mexico (© William Zinn/Getty Images)
-
-![](images/2025-05/20250505_CincoFlags_1920x1080.jpg)
 
 
 
