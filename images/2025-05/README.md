@@ -1,4 +1,4 @@
-#### 20250512 东京的鸢尾花园, 日本 (© M.Arai/Getty Images)
+#### 20250512 An iris garden in Tokyo, Japan (© M.Arai/Getty Images)
 
 ![](20250512_IrisGarden_1920x1080.jpg)
 
