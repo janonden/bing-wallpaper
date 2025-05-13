@@ -1,3 +1,7 @@
+#### 20250513 Baie de Cannes au crépuscule, Côte d'Azur (© Jean-Pierre Pieuchot/Getty Images)
+
+![](images/2025-05/20250513_CannesFilmFestival_1920x1080.jpg)
+
 #### 20250512 An iris garden in Tokyo, Japan (© M.Arai/Getty Images)
 
 ![](images/2025-05/20250512_IrisGarden_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250505 Donkeys in a valley near Rhyolite, Nevada (© Moelyn Photos/Getty Images)
 
 ![](images/2025-05/20250505_RhyoliteDonkeys_1920x1080.jpg)
-
-#### 20250505 東京タワー 333 匹の鯉のぼり, 東京 (© Takashi Aoyama/寄稿者/Getty Images)
-
-![](images/2025-05/20250505_Koinobori_1920x1080.jpg)
 
 
 

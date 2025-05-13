@@ -1,3 +1,7 @@
+#### 20250513 Baie de Cannes au crépuscule, Côte d'Azur (© Jean-Pierre Pieuchot/Getty Images)
+
+![](20250513_CannesFilmFestival_1920x1080.jpg)
+
 #### 20250512 An iris garden in Tokyo, Japan (© M.Arai/Getty Images)
 
 ![](20250512_IrisGarden_1920x1080.jpg)
