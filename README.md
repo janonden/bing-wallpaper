@@ -1,4 +1,4 @@
-#### 20250514 弗拉维亚港, 苏尔西斯-伊格莱西恩特, 撒丁岛, 意大利 (© Marco Bottigelli/Getty Images)
+#### 20250514 Porto Flavia, Sardinia, Italy (© Francesco Riccardo Iacomino/Getty Images)
 
 ![](images/2025-05/20250514_SardiniaFlavia_1920x1080.jpg)
 
