@@ -1,3 +1,7 @@
+#### 20250515 大本钟和国会大厦, 威斯敏斯特宫, 伦敦, 英国 (© Puthipong Worasaran/Getty Images)
+
+![](20250515_LondonParliament_1920x1080.jpg)
+
 #### 20250514 Porto Flavia, Sardinia, Italy (© Francesco Riccardo Iacomino/Getty Images)
 
 ![](20250514_SardiniaFlavia_1920x1080.jpg)
