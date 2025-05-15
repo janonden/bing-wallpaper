@@ -1,3 +1,11 @@
+#### 20250516 大绿金刚鹦鹉, 墨西哥 (© Ondrej Prosicky/Shutterstock)
+
+![](20250516_GreenMacaw_1920x1080.jpg)
+
+#### 20250516 保津川沿いに走るトロッコ列車, 京都 (© Alvin Huang/Getty Images)
+
+![](20250516_Arashiyama_1920x1080.jpg)
+
 #### 20250515 Big Ben and the Palace of Westminster, London, England (© Puthipong Worasaran/Getty Images)
 
 ![](20250515_LondonParliament_1920x1080.jpg)

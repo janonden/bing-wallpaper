@@ -1,3 +1,11 @@
+#### 20250516 大绿金刚鹦鹉, 墨西哥 (© Ondrej Prosicky/Shutterstock)
+
+![](images/2025-05/20250516_GreenMacaw_1920x1080.jpg)
+
+#### 20250516 保津川沿いに走るトロッコ列車, 京都 (© Alvin Huang/Getty Images)
+
+![](images/2025-05/20250516_Arashiyama_1920x1080.jpg)
+
 #### 20250515 Big Ben and the Palace of Westminster, London, England (© Puthipong Worasaran/Getty Images)
 
 ![](images/2025-05/20250515_LondonParliament_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20250507 Dunluce Castle, County Antrim, Northern Ireland (© DieterMeyrl/Getty Images)
 
 ![](images/2025-05/20250507_DunluceIreland_1920x1080.jpg)
-
-#### 20250506 An ultralight aircraft flying over the sands of Namibia (© Burt Johnson/Alamy)
-
-![](images/2025-05/20250506_FlyoverNamibia_1920x1080.jpg)
-
-#### 20250505 Mount Burgess und Emerald Lake im Yoho-Nationalpark, British Columbia, Kanada (© Feng Wei Photography/Getty Images)
-
-![](images/2025-05/20250505_YohoNP_1920x1080.jpg)
 
 
 
