@@ -1,3 +1,7 @@
+#### 20250517 威尼斯潟湖中的三角洲, 意大利 (© Dimitri Weber/Amazing Aerial Agency)
+
+![](20250517_VeniceLagoon_1920x1080.jpg)
+
 #### 20250516 Great green macaw, Mexico (© Ondrej Prosicky/Shutterstock)
 
 ![](20250516_GreenMacaw_1920x1080.jpg)
