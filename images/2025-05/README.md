@@ -1,4 +1,4 @@
-#### 20250516 大绿金刚鹦鹉, 墨西哥 (© Ondrej Prosicky/Shutterstock)
+#### 20250516 Great green macaw, Mexico (© Ondrej Prosicky/Shutterstock)
 
 ![](20250516_GreenMacaw_1920x1080.jpg)
 
