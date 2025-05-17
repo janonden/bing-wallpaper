@@ -1,3 +1,11 @@
+#### 20250518 加龙河对面的圣皮埃尔桥，图卢兹，法国 (© Image Professionals GmbH/Alamy)
+
+![](20250518_ToulouseBridge_1920x1080.jpg)
+
+#### 20250518 巨大壁画 電気の精, フランス (© BERTRAND GUAY/AFP via Getty Images)
+
+![](20250518_DufyRoom_1920x1080.jpg)
+
 #### 20250517 A delta in the Venetian Lagoon, Italy (© Dimitri Weber/Amazing Aerial Agency)
 
 ![](20250517_VeniceLagoon_1920x1080.jpg)

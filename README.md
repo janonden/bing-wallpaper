@@ -1,3 +1,11 @@
+#### 20250518 加龙河对面的圣皮埃尔桥，图卢兹，法国 (© Image Professionals GmbH/Alamy)
+
+![](images/2025-05/20250518_ToulouseBridge_1920x1080.jpg)
+
+#### 20250518 巨大壁画 電気の精, フランス (© BERTRAND GUAY/AFP via Getty Images)
+
+![](images/2025-05/20250518_DufyRoom_1920x1080.jpg)
+
 #### 20250517 A delta in the Venetian Lagoon, Italy (© Dimitri Weber/Amazing Aerial Agency)
 
 ![](images/2025-05/20250517_VeniceLagoon_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20250509 Common chameleon (© Photostock-Israel/SPL/Getty Images)
 
 ![](images/2025-05/20250509_CuteChameleon_1920x1080.jpg)
-
-#### 20250509 ブルース・ペニンシュラ国立公園, カナダ オンタリオ州 (© Maurice Prokaziuk/Getty Images)
-
-![](images/2025-05/20250509_BrucePeninsula_1920x1080.jpg)
-
-#### 20250508 Volcan Puy du Pariou, Auvergne (© Frantisek ZVARDON/Onlyfrance.fr/Alamy Stock Photo)
-
-![](images/2025-05/20250508_VictoryDay_1920x1080.jpg)
 
 
 
