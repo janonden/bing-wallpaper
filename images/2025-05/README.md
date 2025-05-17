@@ -26,6 +26,10 @@
 
 ![](20250514_SardiniaFlavia_1920x1080.jpg)
 
+#### 20250513 Torres del Paine National Park, Patagonia, Chile (© Marco Bottigelli/Getty Images)
+
+![](20250513_TorresChile_1920x1080.jpg)
+
 #### 20250513 Baie de Cannes au crépuscule, Côte d'Azur (© Jean-Pierre Pieuchot/Getty Images)
 
 ![](20250513_CannesFilmFestival_1920x1080.jpg)

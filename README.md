@@ -26,6 +26,10 @@
 
 ![](images/2025-05/20250514_SardiniaFlavia_1920x1080.jpg)
 
+#### 20250513 Torres del Paine National Park, Patagonia, Chile (© Marco Bottigelli/Getty Images)
+
+![](images/2025-05/20250513_TorresChile_1920x1080.jpg)
+
 #### 20250513 Baie de Cannes au crépuscule, Côte d'Azur (© Jean-Pierre Pieuchot/Getty Images)
 
 ![](images/2025-05/20250513_CannesFilmFestival_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250509 Canadian Tulip Festival in Ottawa (© Danielle Donders/Getty Images)
 
 ![](images/2025-05/20250509_Tulip_1920x1080.jpg)
-
-#### 20250509 Common chameleon (© Photostock-Israel/SPL/Getty Images)
-
-![](images/2025-05/20250509_CuteChameleon_1920x1080.jpg)
 
 
 
