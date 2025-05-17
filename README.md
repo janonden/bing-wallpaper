@@ -1,4 +1,4 @@
-#### 20250517 威尼斯潟湖中的三角洲, 意大利 (© Dimitri Weber/Amazing Aerial Agency)
+#### 20250517 A delta in the Venetian Lagoon, Italy (© Dimitri Weber/Amazing Aerial Agency)
 
 ![](images/2025-05/20250517_VeniceLagoon_1920x1080.jpg)
 
