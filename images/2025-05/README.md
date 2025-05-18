@@ -6,6 +6,10 @@
 
 ![](20250518_DufyRoom_1920x1080.jpg)
 
+#### 20250518 Pei-Bau des Deutschen Historischen Museums in Berlin (© Westend61/Getty Images)
+
+![](20250518_BerlinHistoryMuseum_1920x1080.jpg)
+
 #### 20250517 A delta in the Venetian Lagoon, Italy (© Dimitri Weber/Amazing Aerial Agency)
 
 ![](20250517_VeniceLagoon_1920x1080.jpg)
@@ -25,6 +29,10 @@
 #### 20250514 Porto Flavia, Sardinia, Italy (© Francesco Riccardo Iacomino/Getty Images)
 
 ![](20250514_SardiniaFlavia_1920x1080.jpg)
+
+#### 20250513 Yoho National Park, British Columbia (© Feng Wei Photography/Getty Images)
+
+![](20250513_YohoNP_1920x1080.jpg)
 
 #### 20250513 Torres del Paine National Park, Patagonia, Chile (© Marco Bottigelli/Getty Images)
 

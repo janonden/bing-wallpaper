@@ -6,6 +6,10 @@
 
 ![](images/2025-05/20250518_DufyRoom_1920x1080.jpg)
 
+#### 20250518 Pei-Bau des Deutschen Historischen Museums in Berlin (© Westend61/Getty Images)
+
+![](images/2025-05/20250518_BerlinHistoryMuseum_1920x1080.jpg)
+
 #### 20250517 A delta in the Venetian Lagoon, Italy (© Dimitri Weber/Amazing Aerial Agency)
 
 ![](images/2025-05/20250517_VeniceLagoon_1920x1080.jpg)
@@ -25,6 +29,10 @@
 #### 20250514 Porto Flavia, Sardinia, Italy (© Francesco Riccardo Iacomino/Getty Images)
 
 ![](images/2025-05/20250514_SardiniaFlavia_1920x1080.jpg)
+
+#### 20250513 Yoho National Park, British Columbia (© Feng Wei Photography/Getty Images)
+
+![](images/2025-05/20250513_YohoNP_1920x1080.jpg)
 
 #### 20250513 Torres del Paine National Park, Patagonia, Chile (© Marco Bottigelli/Getty Images)
 
@@ -49,14 +57,6 @@
 #### 20250510 Blick auf Heidelberg und das Heidelberger Schloss im Frühling, Baden-Württemberg (© anyaivanova/Getty Images)
 
 ![](images/2025-05/20250510_HeidelbergSpring_1920x1080.jpg)
-
-#### 20250510 巴尔德纳斯雷亚尔斯自然公园的卡斯蒂尔德蒂拉，纳瓦拉，西班牙 (© Eloi_Omella/Getty Images)
-
-![](images/2025-05/20250510_Castildetierra_1920x1080.jpg)
-
-#### 20250509 Canadian Tulip Festival in Ottawa (© Danielle Donders/Getty Images)
-
-![](images/2025-05/20250509_Tulip_1920x1080.jpg)
 
 
 
