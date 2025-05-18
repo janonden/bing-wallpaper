@@ -1,3 +1,7 @@
+#### 20250519 汉密尔顿山, 旧金山湾区, 加利福尼亚, 美国 (© Jeffrey Lewis/TANDEM Stills + Motion)
+
+![](images/2025-05/20250519_MountHamilton_1920x1080.jpg)
+
 #### 20250518 加龙河对面的圣皮埃尔桥，图卢兹，法国 (© Image Professionals GmbH/Alamy)
 
 ![](images/2025-05/20250518_ToulouseBridge_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250510 Minnesota State Capitol, St. Paul, Minnesota (© lavin photography/Getty Images)
 
 ![](images/2025-05/20250510_MinnesotaRotunda_1920x1080.jpg)
-
-#### 20250510 Blick auf Heidelberg und das Heidelberger Schloss im Frühling, Baden-Württemberg (© anyaivanova/Getty Images)
-
-![](images/2025-05/20250510_HeidelbergSpring_1920x1080.jpg)
 
 
 
