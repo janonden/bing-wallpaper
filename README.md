@@ -2,7 +2,7 @@
 
 ![](images/2025-05/20250518_ToulouseBridge_1920x1080.jpg)
 
-#### 20250518 巨大壁画 電気の精, フランス (© BERTRAND GUAY/AFP via Getty Images)
+#### 20250518 'The Spirit of Electricity' by Raoul Dufy, Museum of Modern Art, Paris, France (© BERTRAND GUAY/AFP via Getty Images)
 
 ![](images/2025-05/20250518_DufyRoom_1920x1080.jpg)
 
