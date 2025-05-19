@@ -6,7 +6,7 @@
 
 ![](20250519_RolandGarros_1920x1080.jpg)
 
-#### 20250519 汉密尔顿山, 旧金山湾区, 加利福尼亚, 美国 (© Jeffrey Lewis/TANDEM Stills + Motion)
+#### 20250519 Mount Hamilton, near San Jose, California (© Jeffrey Lewis/TANDEM Stills + Motion)
 
 ![](20250519_MountHamilton_1920x1080.jpg)
 
