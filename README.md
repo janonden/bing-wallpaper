@@ -1,3 +1,7 @@
+#### 20250520 薰衣草上的蜜蜂 (© Anthony Brown/Alamy Stock Photo)
+
+![](images/2025-05/20250520_HoneyBeeLavender_1920x1080.jpg)
+
 #### 20250519 British Columbia Parliament Buildings (© bluejayphoto/Getty Images)
 
 ![](images/2025-05/20250519_Victoria_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250513 Baie de Cannes au crépuscule, Côte d'Azur (© Jean-Pierre Pieuchot/Getty Images)
 
 ![](images/2025-05/20250513_CannesFilmFestival_1920x1080.jpg)
-
-#### 20250512 An iris garden in Tokyo, Japan (© M.Arai/Getty Images)
-
-![](images/2025-05/20250512_IrisGarden_1920x1080.jpg)
 
 
 

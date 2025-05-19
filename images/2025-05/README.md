@@ -1,3 +1,7 @@
+#### 20250520 薰衣草上的蜜蜂 (© Anthony Brown/Alamy Stock Photo)
+
+![](20250520_HoneyBeeLavender_1920x1080.jpg)
+
 #### 20250519 British Columbia Parliament Buildings (© bluejayphoto/Getty Images)
 
 ![](20250519_Victoria_1920x1080.jpg)
