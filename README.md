@@ -1,3 +1,7 @@
+#### 20250519 Faucon de Harris sur le court Suzanne-Lenglen, stade Roland-Garros, Paris (© Jacques Demarthon/Getty Images)
+
+![](images/2025-05/20250519_RolandGarros_1920x1080.jpg)
+
 #### 20250519 汉密尔顿山, 旧金山湾区, 加利福尼亚, 美国 (© Jeffrey Lewis/TANDEM Stills + Motion)
 
 ![](images/2025-05/20250519_MountHamilton_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250511 Leopard mother grooming her cub, Jao Reserve, Botswana (© Suzi Eszterhas/Minden Pictures)
 
 ![](images/2025-05/20250511_LeopardMother_1920x1080.jpg)
-
-#### 20250510 Minnesota State Capitol, St. Paul, Minnesota (© lavin photography/Getty Images)
-
-![](images/2025-05/20250510_MinnesotaRotunda_1920x1080.jpg)
 
 
 
