@@ -1,3 +1,7 @@
+#### 20250519 British Columbia Parliament Buildings (© bluejayphoto/Getty Images)
+
+![](images/2025-05/20250519_Victoria_1920x1080.jpg)
+
 #### 20250519 Faucon de Harris sur le court Suzanne-Lenglen, stade Roland-Garros, Paris (© Jacques Demarthon/Getty Images)
 
 ![](images/2025-05/20250519_RolandGarros_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250512 An iris garden in Tokyo, Japan (© M.Arai/Getty Images)
 
 ![](images/2025-05/20250512_IrisGarden_1920x1080.jpg)
-
-#### 20250511 Leopard mother grooming her cub, Jao Reserve, Botswana (© Suzi Eszterhas/Minden Pictures)
-
-![](images/2025-05/20250511_LeopardMother_1920x1080.jpg)
 
 
 
