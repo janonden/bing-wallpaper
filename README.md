@@ -1,3 +1,7 @@
+#### 20250521 杨家塘村茶园，松阳县，中国 (© feng xu/Getty Images)
+
+![](images/2025-05/20250521_SongyangTeaGarden_1920x1080.jpg)
+
 #### 20250520 Honey bee on lavender flowers (© Anthony Brown/Alamy)
 
 ![](images/2025-05/20250520_HoneyBeeLavender_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250513 Torres del Paine National Park, Patagonia, Chile (© Marco Bottigelli/Getty Images)
 
 ![](images/2025-05/20250513_TorresChile_1920x1080.jpg)
-
-#### 20250513 Baie de Cannes au crépuscule, Côte d'Azur (© Jean-Pierre Pieuchot/Getty Images)
-
-![](images/2025-05/20250513_CannesFilmFestival_1920x1080.jpg)
 
 
 

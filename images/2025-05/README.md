@@ -1,3 +1,7 @@
+#### 20250521 杨家塘村茶园，松阳县，中国 (© feng xu/Getty Images)
+
+![](20250521_SongyangTeaGarden_1920x1080.jpg)
+
 #### 20250520 Honey bee on lavender flowers (© Anthony Brown/Alamy)
 
 ![](20250520_HoneyBeeLavender_1920x1080.jpg)
