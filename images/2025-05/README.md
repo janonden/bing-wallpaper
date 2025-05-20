@@ -1,4 +1,4 @@
-#### 20250520 薰衣草上的蜜蜂 (© Anthony Brown/Alamy Stock Photo)
+#### 20250520 Honey bee on lavender flowers (© Anthony Brown/Alamy)
 
 ![](20250520_HoneyBeeLavender_1920x1080.jpg)
 
