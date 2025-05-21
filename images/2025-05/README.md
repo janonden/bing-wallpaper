@@ -1,3 +1,7 @@
+#### 20250522 日落时分的猴面包树，猴面包树大道，马达加斯加 (© Framalicious/Shutterstock)
+
+![](20250522_BaobabAvenue_1920x1080.jpg)
+
 #### 20250521 Tea garden at Yangjiatang Village, Songyang County, China (© feng xu/Getty Images)
 
 ![](20250521_SongyangTeaGarden_1920x1080.jpg)

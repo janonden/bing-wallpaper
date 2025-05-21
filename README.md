@@ -1,3 +1,7 @@
+#### 20250522 日落时分的猴面包树，猴面包树大道，马达加斯加 (© Framalicious/Shutterstock)
+
+![](images/2025-05/20250522_BaobabAvenue_1920x1080.jpg)
+
 #### 20250521 Tea garden at Yangjiatang Village, Songyang County, China (© feng xu/Getty Images)
 
 ![](images/2025-05/20250521_SongyangTeaGarden_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250513 Yoho National Park, British Columbia (© Feng Wei Photography/Getty Images)
 
 ![](images/2025-05/20250513_YohoNP_1920x1080.jpg)
-
-#### 20250513 Torres del Paine National Park, Patagonia, Chile (© Marco Bottigelli/Getty Images)
-
-![](images/2025-05/20250513_TorresChile_1920x1080.jpg)
 
 
 
