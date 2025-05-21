@@ -1,4 +1,4 @@
-#### 20250521 杨家塘村茶园，松阳县，中国 (© feng xu/Getty Images)
+#### 20250521 Tea garden at Yangjiatang Village, Songyang County, China (© feng xu/Getty Images)
 
 ![](images/2025-05/20250521_SongyangTeaGarden_1920x1080.jpg)
 
