@@ -1,3 +1,7 @@
+#### 20250523 停在黄头侧颈龟鼻子上的茱莉亚蝶，亚马逊地区，厄瓜多尔 (© Westend61/Getty Images)
+
+![](images/2025-05/20250523_ButterflyTurtle_1920x1080.jpg)
+
 #### 20250522 Baobab trees at sunset, Avenue of the Baobabs, Madagascar (© Framalicious/Shutterstock)
 
 ![](images/2025-05/20250522_BaobabAvenue_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250514 Porto Flavia, Sardinia, Italy (© Francesco Riccardo Iacomino/Getty Images)
 
 ![](images/2025-05/20250514_SardiniaFlavia_1920x1080.jpg)
-
-#### 20250513 Yoho National Park, British Columbia (© Feng Wei Photography/Getty Images)
-
-![](images/2025-05/20250513_YohoNP_1920x1080.jpg)
 
 
 

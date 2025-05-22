@@ -1,3 +1,7 @@
+#### 20250523 停在黄头侧颈龟鼻子上的茱莉亚蝶，亚马逊地区，厄瓜多尔 (© Westend61/Getty Images)
+
+![](20250523_ButterflyTurtle_1920x1080.jpg)
+
 #### 20250522 Baobab trees at sunset, Avenue of the Baobabs, Madagascar (© Framalicious/Shutterstock)
 
 ![](20250522_BaobabAvenue_1920x1080.jpg)
