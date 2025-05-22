@@ -1,4 +1,4 @@
-#### 20250522 日落时分的猴面包树，猴面包树大道，马达加斯加 (© Framalicious/Shutterstock)
+#### 20250522 Baobab trees at sunset, Avenue of the Baobabs, Madagascar (© Framalicious/Shutterstock)
 
 ![](20250522_BaobabAvenue_1920x1080.jpg)
 
