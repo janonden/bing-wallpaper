@@ -1,3 +1,11 @@
+#### 20250524 挪威尤通黑门山国家公园 (© Marisa Estivill/Shutterstock)
+
+![](images/2025-05/20250524_JotunheimenPark_1920x1080.jpg)
+
+#### 20250524 水郷佐原あやめパーク, 千葉県 香取市 (© MIXA/Getty Images)
+
+![](images/2025-05/20250524_IrisSanguinea_1920x1080.jpg)
+
 #### 20250523 A Julia butterfly on the nose of a yellow-spotted river turtle, Amazon Region, Ecuador (© Westend61/Getty Images)
 
 ![](images/2025-05/20250523_ButterflyTurtle_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20250516 保津川沿いに走るトロッコ列車, 京都 (© Alvin Huang/Getty Images)
 
 ![](images/2025-05/20250516_Arashiyama_1920x1080.jpg)
-
-#### 20250515 Big Ben and the Palace of Westminster, London, England (© Puthipong Worasaran/Getty Images)
-
-![](images/2025-05/20250515_LondonParliament_1920x1080.jpg)
-
-#### 20250514 Porto Flavia, Sardinia, Italy (© Francesco Riccardo Iacomino/Getty Images)
-
-![](images/2025-05/20250514_SardiniaFlavia_1920x1080.jpg)
 
 
 

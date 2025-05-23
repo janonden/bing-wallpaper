@@ -1,3 +1,11 @@
+#### 20250524 挪威尤通黑门山国家公园 (© Marisa Estivill/Shutterstock)
+
+![](20250524_JotunheimenPark_1920x1080.jpg)
+
+#### 20250524 水郷佐原あやめパーク, 千葉県 香取市 (© MIXA/Getty Images)
+
+![](20250524_IrisSanguinea_1920x1080.jpg)
+
 #### 20250523 A Julia butterfly on the nose of a yellow-spotted river turtle, Amazon Region, Ecuador (© Westend61/Getty Images)
 
 ![](20250523_ButterflyTurtle_1920x1080.jpg)
