@@ -1,4 +1,4 @@
-#### 20250523 停在黄头侧颈龟鼻子上的茱莉亚蝶，亚马逊地区，厄瓜多尔 (© Westend61/Getty Images)
+#### 20250523 A Julia butterfly on the nose of a yellow-spotted river turtle, Amazon Region, Ecuador (© Westend61/Getty Images)
 
 ![](images/2025-05/20250523_ButterflyTurtle_1920x1080.jpg)
 
