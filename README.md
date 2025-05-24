@@ -1,3 +1,7 @@
+#### 20250525 布伦特伍德湾的布查特花园，不列颠哥伦比亚省，加拿大 (© 2009fotofriends/Shutterstock)
+
+![](images/2025-05/20250525_ButchartFlowers_1920x1080.jpg)
+
 #### 20250524 Jotunheimen National Park in Norway (© Marisa Estivill/Shutterstock)
 
 ![](images/2025-05/20250524_JotunheimenPark_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250516 Great green macaw, Mexico (© Ondrej Prosicky/Shutterstock)
 
 ![](images/2025-05/20250516_GreenMacaw_1920x1080.jpg)
-
-#### 20250516 保津川沿いに走るトロッコ列車, 京都 (© Alvin Huang/Getty Images)
-
-![](images/2025-05/20250516_Arashiyama_1920x1080.jpg)
 
 
 
