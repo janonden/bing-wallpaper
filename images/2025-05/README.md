@@ -1,4 +1,4 @@
-#### 20250524 挪威尤通黑门山国家公园 (© Marisa Estivill/Shutterstock)
+#### 20250524 Jotunheimen National Park in Norway (© Marisa Estivill/Shutterstock)
 
 ![](20250524_JotunheimenPark_1920x1080.jpg)
 
