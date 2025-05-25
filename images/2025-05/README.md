@@ -2,7 +2,7 @@
 
 ![](20250525_LeopardMother_1920x1080.jpg)
 
-#### 20250525 布伦特伍德湾的布查特花园，不列颠哥伦比亚省，加拿大 (© 2009fotofriends/Shutterstock)
+#### 20250525 Butchart Gardens in Brentwood Bay, British Columbia, Canada (© 2009fotofriends/Shutterstock)
 
 ![](20250525_ButchartFlowers_1920x1080.jpg)
 
