@@ -1,3 +1,7 @@
+#### 20250525 Mère léopard qui toilette son petit, Réserve de Jao, Botswana (© Suzi Eszterhas/Minden Pictures)
+
+![](images/2025-05/20250525_LeopardMother_1920x1080.jpg)
+
 #### 20250525 布伦特伍德湾的布查特花园，不列颠哥伦比亚省，加拿大 (© 2009fotofriends/Shutterstock)
 
 ![](images/2025-05/20250525_ButchartFlowers_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250517 A delta in the Venetian Lagoon, Italy (© Dimitri Weber/Amazing Aerial Agency)
 
 ![](images/2025-05/20250517_VeniceLagoon_1920x1080.jpg)
-
-#### 20250516 Great green macaw, Mexico (© Ondrej Prosicky/Shutterstock)
-
-![](images/2025-05/20250516_GreenMacaw_1920x1080.jpg)
 
 
 
