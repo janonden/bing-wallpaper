@@ -2,6 +2,10 @@
 
 ![](images/2025-05/20250526_StorksMeadow_1920x1080.jpg)
 
+#### 20250526 Arlington National Cemetery in Virginia (© Dennis Govoni/Getty Images)
+
+![](images/2025-05/20250526_ArlingtonSunrise_1920x1080.jpg)
+
 #### 20250525 Mère léopard qui toilette son petit, Réserve de Jao, Botswana (© Suzi Eszterhas/Minden Pictures)
 
 ![](images/2025-05/20250525_LeopardMother_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250518 'The Spirit of Electricity' by Raoul Dufy, Museum of Modern Art, Paris, France (© BERTRAND GUAY/AFP via Getty Images)
 
 ![](images/2025-05/20250518_DufyRoom_1920x1080.jpg)
-
-#### 20250518 Pei-Bau des Deutschen Historischen Museums in Berlin (© Westend61/Getty Images)
-
-![](images/2025-05/20250518_BerlinHistoryMuseum_1920x1080.jpg)
 
 
 
