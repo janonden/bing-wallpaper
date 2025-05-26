@@ -1,3 +1,7 @@
+#### 20250526 Cigognes blanches dans un champ de meules de foin (© Buchet Jean-marc/Wirestock/Adobe Stock)
+
+![](20250526_StorksMeadow_1920x1080.jpg)
+
 #### 20250525 Mère léopard qui toilette son petit, Réserve de Jao, Botswana (© Suzi Eszterhas/Minden Pictures)
 
 ![](20250525_LeopardMother_1920x1080.jpg)

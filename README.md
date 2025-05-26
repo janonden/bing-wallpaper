@@ -1,3 +1,7 @@
+#### 20250526 Cigognes blanches dans un champ de meules de foin (© Buchet Jean-marc/Wirestock/Adobe Stock)
+
+![](images/2025-05/20250526_StorksMeadow_1920x1080.jpg)
+
 #### 20250525 Mère léopard qui toilette son petit, Réserve de Jao, Botswana (© Suzi Eszterhas/Minden Pictures)
 
 ![](images/2025-05/20250525_LeopardMother_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250518 Pei-Bau des Deutschen Historischen Museums in Berlin (© Westend61/Getty Images)
 
 ![](images/2025-05/20250518_BerlinHistoryMuseum_1920x1080.jpg)
-
-#### 20250517 A delta in the Venetian Lagoon, Italy (© Dimitri Weber/Amazing Aerial Agency)
-
-![](images/2025-05/20250517_VeniceLagoon_1920x1080.jpg)
 
 
 
