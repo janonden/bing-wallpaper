@@ -1,3 +1,7 @@
+#### 20250527 梦娜维尔岩池，悉尼，澳大利亚 (© jamenpercy/Getty Images)
+
+![](images/2025-05/20250527_MonaValePool_1920x1080.jpg)
+
 #### 20250526 Cigognes blanches dans un champ de meules de foin (© Buchet Jean-marc/Wirestock/Adobe Stock)
 
 ![](images/2025-05/20250526_StorksMeadow_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250518 加龙河对面的圣皮埃尔桥，图卢兹，法国 (© Image Professionals GmbH/Alamy)
 
 ![](images/2025-05/20250518_ToulouseBridge_1920x1080.jpg)
-
-#### 20250518 'The Spirit of Electricity' by Raoul Dufy, Museum of Modern Art, Paris, France (© BERTRAND GUAY/AFP via Getty Images)
-
-![](images/2025-05/20250518_DufyRoom_1920x1080.jpg)
 
 
 

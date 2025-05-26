@@ -1,3 +1,7 @@
+#### 20250527 梦娜维尔岩池，悉尼，澳大利亚 (© jamenpercy/Getty Images)
+
+![](20250527_MonaValePool_1920x1080.jpg)
+
 #### 20250526 Cigognes blanches dans un champ de meules de foin (© Buchet Jean-marc/Wirestock/Adobe Stock)
 
 ![](20250526_StorksMeadow_1920x1080.jpg)
