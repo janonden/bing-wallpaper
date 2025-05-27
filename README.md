@@ -1,3 +1,7 @@
+#### 20250528 一只海獭漂浮在阿拉斯加海洋国家野生动物保护区的海藻床上，美国 (© Gerry Ellis/Minden Pictures)
+
+![](images/2025-05/20250528_KelpOtter_1920x1080.jpg)
+
 #### 20250528 Heidelberg, Baden-Württemberg, Germany (© anyaivanova/Getty Images)
 
 ![](images/2025-05/20250528_HeidelbergSpring_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250519 British Columbia Parliament Buildings (© bluejayphoto/Getty Images)
 
 ![](images/2025-05/20250519_Victoria_1920x1080.jpg)
-
-#### 20250519 Faucon de Harris sur le court Suzanne-Lenglen, stade Roland-Garros, Paris (© Jacques Demarthon/Getty Images)
-
-![](images/2025-05/20250519_RolandGarros_1920x1080.jpg)
 
 
 
