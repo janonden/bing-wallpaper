@@ -6,6 +6,10 @@
 
 ![](20250527_MonaValePool_1920x1080.jpg)
 
+#### 20250527 A train running along Hozugawa River in Arashiyama, Kyoto, Japan (© Alvin Huang/Getty Images)
+
+![](20250527_Arashiyama_1920x1080.jpg)
+
 #### 20250526 Cigognes blanches dans un champ de meules de foin (© Buchet Jean-marc/Wirestock/Adobe Stock)
 
 ![](20250526_StorksMeadow_1920x1080.jpg)

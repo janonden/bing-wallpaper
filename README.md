@@ -6,6 +6,10 @@
 
 ![](images/2025-05/20250527_MonaValePool_1920x1080.jpg)
 
+#### 20250527 A train running along Hozugawa River in Arashiyama, Kyoto, Japan (© Alvin Huang/Getty Images)
+
+![](images/2025-05/20250527_Arashiyama_1920x1080.jpg)
+
 #### 20250526 Cigognes blanches dans un champ de meules de foin (© Buchet Jean-marc/Wirestock/Adobe Stock)
 
 ![](images/2025-05/20250526_StorksMeadow_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250519 Faucon de Harris sur le court Suzanne-Lenglen, stade Roland-Garros, Paris (© Jacques Demarthon/Getty Images)
 
 ![](images/2025-05/20250519_RolandGarros_1920x1080.jpg)
-
-#### 20250519 Mount Hamilton, near San Jose, California (© Jeffrey Lewis/TANDEM Stills + Motion)
-
-![](images/2025-05/20250519_MountHamilton_1920x1080.jpg)
 
 
 
