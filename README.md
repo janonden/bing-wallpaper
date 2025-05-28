@@ -1,3 +1,7 @@
+#### 20250529 米拉韦特，埃布罗河，加泰罗尼亚塔，西班牙 (© Eloi_Omella/Getty Images)
+
+![](images/2025-05/20250529_MiravetSpain_1920x1080.jpg)
+
 #### 20250528 Sea otter floating in a kelp bed in Alaska Maritime National Wildlife Refuge (© Gerry Ellis/Minden Pictures)
 
 ![](images/2025-05/20250528_KelpOtter_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250520 Honey bee on lavender flowers (© Anthony Brown/Alamy)
 
 ![](images/2025-05/20250520_HoneyBeeLavender_1920x1080.jpg)
-
-#### 20250519 British Columbia Parliament Buildings (© bluejayphoto/Getty Images)
-
-![](images/2025-05/20250519_Victoria_1920x1080.jpg)
 
 
 

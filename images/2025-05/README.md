@@ -1,3 +1,7 @@
+#### 20250529 米拉韦特，埃布罗河，加泰罗尼亚塔，西班牙 (© Eloi_Omella/Getty Images)
+
+![](20250529_MiravetSpain_1920x1080.jpg)
+
 #### 20250528 Sea otter floating in a kelp bed in Alaska Maritime National Wildlife Refuge (© Gerry Ellis/Minden Pictures)
 
 ![](20250528_KelpOtter_1920x1080.jpg)
