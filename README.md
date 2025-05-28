@@ -1,4 +1,4 @@
-#### 20250528 一只海獭漂浮在阿拉斯加海洋国家野生动物保护区的海藻床上，美国 (© Gerry Ellis/Minden Pictures)
+#### 20250528 Sea otter floating in a kelp bed in Alaska Maritime National Wildlife Refuge (© Gerry Ellis/Minden Pictures)
 
 ![](images/2025-05/20250528_KelpOtter_1920x1080.jpg)
 
