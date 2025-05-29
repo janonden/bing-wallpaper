@@ -1,3 +1,7 @@
+#### 20250530 小鸽子河，大雾山国家公园，田纳西州, 美国 (© GreenStock/Getty Images)
+
+![](images/2025-05/20250530_LittlePigeonRiver_1920x1080.jpg)
+
 #### 20250529 Miravet on the Ebro River, Tarragona, Catalonia, Spain (© Eloi_Omella/Getty Images)
 
 ![](images/2025-05/20250529_MiravetSpain_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250522 Baobab trees at sunset, Avenue of the Baobabs, Madagascar (© Framalicious/Shutterstock)
 
 ![](images/2025-05/20250522_BaobabAvenue_1920x1080.jpg)
-
-#### 20250521 Tea garden at Yangjiatang Village, Songyang County, China (© feng xu/Getty Images)
-
-![](images/2025-05/20250521_SongyangTeaGarden_1920x1080.jpg)
 
 
 

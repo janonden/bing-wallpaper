@@ -1,3 +1,7 @@
+#### 20250530 小鸽子河，大雾山国家公园，田纳西州, 美国 (© GreenStock/Getty Images)
+
+![](20250530_LittlePigeonRiver_1920x1080.jpg)
+
 #### 20250529 Miravet on the Ebro River, Tarragona, Catalonia, Spain (© Eloi_Omella/Getty Images)
 
 ![](20250529_MiravetSpain_1920x1080.jpg)
