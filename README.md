@@ -1,4 +1,4 @@
-#### 20250529 米拉韦特，埃布罗河，加泰罗尼亚塔，西班牙 (© Eloi_Omella/Getty Images)
+#### 20250529 Miravet on the Ebro River, Tarragona, Catalonia, Spain (© Eloi_Omella/Getty Images)
 
 ![](images/2025-05/20250529_MiravetSpain_1920x1080.jpg)
 
