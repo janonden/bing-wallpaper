@@ -2,6 +2,10 @@
 
 ![](20250529_MiravetSpain_1920x1080.jpg)
 
+#### 20250529 Goethe-Schiller-Denkmal in Weimar, Thüringen (© Robert Ruidl/iStock/Getty Images)
+
+![](20250529_GoetheSchiller_1920x1080.jpg)
+
 #### 20250528 Sea otter floating in a kelp bed in Alaska Maritime National Wildlife Refuge (© Gerry Ellis/Minden Pictures)
 
 ![](20250528_KelpOtter_1920x1080.jpg)

@@ -2,6 +2,10 @@
 
 ![](images/2025-05/20250529_MiravetSpain_1920x1080.jpg)
 
+#### 20250529 Goethe-Schiller-Denkmal in Weimar, Thüringen (© Robert Ruidl/iStock/Getty Images)
+
+![](images/2025-05/20250529_GoetheSchiller_1920x1080.jpg)
+
 #### 20250528 Sea otter floating in a kelp bed in Alaska Maritime National Wildlife Refuge (© Gerry Ellis/Minden Pictures)
 
 ![](images/2025-05/20250528_KelpOtter_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250521 Tea garden at Yangjiatang Village, Songyang County, China (© feng xu/Getty Images)
 
 ![](images/2025-05/20250521_SongyangTeaGarden_1920x1080.jpg)
-
-#### 20250520 Honey bee on lavender flowers (© Anthony Brown/Alamy)
-
-![](images/2025-05/20250520_HoneyBeeLavender_1920x1080.jpg)
 
 
 
