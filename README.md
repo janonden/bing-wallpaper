@@ -1,4 +1,4 @@
-#### 20250530 小鸽子河，大雾山国家公园，田纳西州, 美国 (© GreenStock/Getty Images)
+#### 20250530 Little Pigeon River, Great Smoky Mountains National Park, Tennessee (© GreenStock/Getty Images)
 
 ![](images/2025-05/20250530_LittlePigeonRiver_1920x1080.jpg)
 
