@@ -38,6 +38,10 @@
 
 ![](20250526_StorksMeadow_1920x1080.jpg)
 
+#### 20250526 Mount Hamilton, San Francisco Bay Area, California, United States (© Jeffrey Lewis/TANDEM Stills + Motion)
+
+![](20250526_MountHamilton_1920x1080.jpg)
+
 #### 20250526 Arlington National Cemetery in Virginia (© Dennis Govoni/Getty Images)
 
 ![](20250526_ArlingtonSunrise_1920x1080.jpg)

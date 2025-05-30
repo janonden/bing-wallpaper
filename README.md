@@ -38,6 +38,10 @@
 
 ![](images/2025-05/20250526_StorksMeadow_1920x1080.jpg)
 
+#### 20250526 Mount Hamilton, San Francisco Bay Area, California, United States (© Jeffrey Lewis/TANDEM Stills + Motion)
+
+![](images/2025-05/20250526_MountHamilton_1920x1080.jpg)
+
 #### 20250526 Arlington National Cemetery in Virginia (© Dennis Govoni/Getty Images)
 
 ![](images/2025-05/20250526_ArlingtonSunrise_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250524 Jotunheimen National Park in Norway (© Marisa Estivill/Shutterstock)
 
 ![](images/2025-05/20250524_JotunheimenPark_1920x1080.jpg)
-
-#### 20250524 水郷佐原あやめパーク, 千葉県 香取市 (© MIXA/Getty Images)
-
-![](images/2025-05/20250524_IrisSanguinea_1920x1080.jpg)
 
 
 
