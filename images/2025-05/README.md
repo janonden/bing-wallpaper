@@ -1,4 +1,4 @@
-#### 20250531 クヌートイスモッセン自然保護区, スウェーデン (© Sven Halling/DEEPOL/plainpicture)
+#### 20250531 Knuthöjdsmossen, a nature reserve in Sweden (© Sven Halling/DEEPOL/plainpicture)
 
 ![](20250531_SwedenReserve_1920x1080.jpg)
 
