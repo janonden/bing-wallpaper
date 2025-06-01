@@ -1,3 +1,11 @@
+#### 20250602 みなとみらい 21 地区, 神奈川県 横浜市 (© Shingo Tamura/Getty Images)
+
+![](images/2025-06/20250602_YokohamaPort_1920x1080.jpg)
+
+#### 20250602 一只停在紫锥菊上的灰蝶，洛克菲勒州立公园，纽约 (© Marianne A. Campolongo/Alamy)
+
+![](images/2025-06/20250602_EchinaceaButterfly_1920x1080.jpg)
+
 #### 20250601 Barrier reef off the island of Grande Terre in the French overseas territory of New Caledonia (© Karsten Wrobel/Getty Images)
 
 ![](images/2025-06/20250601_GrandeTerreReef_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20250526 Arlington National Cemetery in Virginia (© Dennis Govoni/Getty Images)
 
 ![](images/2025-05/20250526_ArlingtonSunrise_1920x1080.jpg)
-
-#### 20250525 Mère léopard qui toilette son petit, Réserve de Jao, Botswana (© Suzi Eszterhas/Minden Pictures)
-
-![](images/2025-05/20250525_LeopardMother_1920x1080.jpg)
-
-#### 20250525 Butchart Gardens in Brentwood Bay, British Columbia, Canada (© 2009fotofriends/Shutterstock)
-
-![](images/2025-05/20250525_ButchartFlowers_1920x1080.jpg)
 
 
 
