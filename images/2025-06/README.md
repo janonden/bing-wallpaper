@@ -2,6 +2,10 @@
 
 ![](20250602_YokohamaPort_1920x1080.jpg)
 
+#### 20250602 Fogo Island, Newfoundland and Labrador (© Greg Johnston/Photodisc/Getty Images)
+
+![](20250602_Fogoisland_1920x1080.jpg)
+
 #### 20250602 一只停在紫锥菊上的灰蝶，洛克菲勒州立公园，纽约 (© Marianne A. Campolongo/Alamy)
 
 ![](20250602_EchinaceaButterfly_1920x1080.jpg)

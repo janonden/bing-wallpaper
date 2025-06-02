@@ -2,6 +2,10 @@
 
 ![](images/2025-06/20250602_YokohamaPort_1920x1080.jpg)
 
+#### 20250602 Fogo Island, Newfoundland and Labrador (© Greg Johnston/Photodisc/Getty Images)
+
+![](images/2025-06/20250602_Fogoisland_1920x1080.jpg)
+
 #### 20250602 一只停在紫锥菊上的灰蝶，洛克菲勒州立公园，纽约 (© Marianne A. Campolongo/Alamy)
 
 ![](images/2025-06/20250602_EchinaceaButterfly_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250527 A train running along Hozugawa River in Arashiyama, Kyoto, Japan (© Alvin Huang/Getty Images)
 
 ![](images/2025-05/20250527_Arashiyama_1920x1080.jpg)
-
-#### 20250526 Cigognes blanches dans un champ de meules de foin (© Buchet Jean-marc/Wirestock/Adobe Stock)
-
-![](images/2025-05/20250526_StorksMeadow_1920x1080.jpg)
 
 
 
