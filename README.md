@@ -1,3 +1,7 @@
+#### 20250603 乌得勒支桥上的自行车，荷兰 (© George Pachantouris/Getty Images)
+
+![](images/2025-06/20250603_BicyclesUtrecht_1920x1080.jpg)
+
 #### 20250602 みなとみらい 21 地区, 神奈川県 横浜市 (© Shingo Tamura/Getty Images)
 
 ![](images/2025-06/20250602_YokohamaPort_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250527 Mona Vale Rockpool, Sydney, Australia (© jamenpercy/Getty Images)
 
 ![](images/2025-05/20250527_MonaValePool_1920x1080.jpg)
-
-#### 20250527 A train running along Hozugawa River in Arashiyama, Kyoto, Japan (© Alvin Huang/Getty Images)
-
-![](images/2025-05/20250527_Arashiyama_1920x1080.jpg)
 
 
 
