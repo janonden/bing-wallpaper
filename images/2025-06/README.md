@@ -1,4 +1,4 @@
-#### 20250603 乌得勒支桥上的自行车，荷兰 (© George Pachantouris/Getty Images)
+#### 20250603 Bicycles on a bridge in Utrecht, Netherlands (© George Pachantouris/Getty Images)
 
 ![](20250603_BicyclesUtrecht_1920x1080.jpg)
 
