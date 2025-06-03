@@ -1,3 +1,7 @@
+#### 20250604 卡拉卢纳海滩, 撒丁岛, 意大利 (© guenterguni/Getty Images)
+
+![](20250604_CalaLuna_1920x1080.jpg)
+
 #### 20250603 Bicycles on a bridge in Utrecht, Netherlands (© George Pachantouris/Getty Images)
 
 ![](20250603_BicyclesUtrecht_1920x1080.jpg)

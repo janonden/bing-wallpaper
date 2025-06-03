@@ -1,3 +1,7 @@
+#### 20250604 卡拉卢纳海滩, 撒丁岛, 意大利 (© guenterguni/Getty Images)
+
+![](images/2025-06/20250604_CalaLuna_1920x1080.jpg)
+
 #### 20250603 Bicycles on a bridge in Utrecht, Netherlands (© George Pachantouris/Getty Images)
 
 ![](images/2025-06/20250603_BicyclesUtrecht_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250528 Heidelberg, Baden-Württemberg, Germany (© anyaivanova/Getty Images)
 
 ![](images/2025-05/20250528_HeidelbergSpring_1920x1080.jpg)
-
-#### 20250527 Mona Vale Rockpool, Sydney, Australia (© jamenpercy/Getty Images)
-
-![](images/2025-05/20250527_MonaValePool_1920x1080.jpg)
 
 
 
