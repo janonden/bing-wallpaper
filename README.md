@@ -2,6 +2,14 @@
 
 ![](images/2025-06/20250605_SchlossMoritzburg_1920x1080.jpg)
 
+#### 20250605 ペットボトルキャップのモザイク画, ベネズエラ (© FEDERICO PARRA/AFP via Getty Images)
+
+![](images/2025-06/20250605_OlivaresMural_1920x1080.jpg)
+
+#### 20250605 福玛萨瀑布，迪亚曼蒂纳，巴西 (© Pulsar Images/Alamy)
+
+![](images/2025-06/20250605_FumacinhaBahia_1920x1080.jpg)
+
 #### 20250604 The beach at Cala Luna, Sardinia, Italy (© guenterguni/Getty Images)
 
 ![](images/2025-06/20250604_CalaLuna_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20250529 Miravet on the Ebro River, Tarragona, Catalonia, Spain (© Eloi_Omella/Getty Images)
 
 ![](images/2025-05/20250529_MiravetSpain_1920x1080.jpg)
-
-#### 20250529 Goethe-Schiller-Denkmal in Weimar, Thüringen (© Robert Ruidl/iStock/Getty Images)
-
-![](images/2025-05/20250529_GoetheSchiller_1920x1080.jpg)
-
-#### 20250528 Sea otter floating in a kelp bed in Alaska Maritime National Wildlife Refuge (© Gerry Ellis/Minden Pictures)
-
-![](images/2025-05/20250528_KelpOtter_1920x1080.jpg)
 
 
 

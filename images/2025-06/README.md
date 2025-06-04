@@ -2,6 +2,14 @@
 
 ![](20250605_SchlossMoritzburg_1920x1080.jpg)
 
+#### 20250605 ペットボトルキャップのモザイク画, ベネズエラ (© FEDERICO PARRA/AFP via Getty Images)
+
+![](20250605_OlivaresMural_1920x1080.jpg)
+
+#### 20250605 福玛萨瀑布，迪亚曼蒂纳，巴西 (© Pulsar Images/Alamy)
+
+![](20250605_FumacinhaBahia_1920x1080.jpg)
+
 #### 20250604 The beach at Cala Luna, Sardinia, Italy (© guenterguni/Getty Images)
 
 ![](20250604_CalaLuna_1920x1080.jpg)
