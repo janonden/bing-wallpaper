@@ -1,4 +1,8 @@
-#### 20250604 卡拉卢纳海滩, 撒丁岛, 意大利 (© guenterguni/Getty Images)
+#### 20250605 Moritzburg Castle, Saxony, Germany (© Hans-Peter Szyszka/eStock Photo)
+
+![](20250605_SchlossMoritzburg_1920x1080.jpg)
+
+#### 20250604 The beach at Cala Luna, Sardinia, Italy (© guenterguni/Getty Images)
 
 ![](20250604_CalaLuna_1920x1080.jpg)
 

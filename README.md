@@ -1,4 +1,8 @@
-#### 20250604 卡拉卢纳海滩, 撒丁岛, 意大利 (© guenterguni/Getty Images)
+#### 20250605 Moritzburg Castle, Saxony, Germany (© Hans-Peter Szyszka/eStock Photo)
+
+![](images/2025-06/20250605_SchlossMoritzburg_1920x1080.jpg)
+
+#### 20250604 The beach at Cala Luna, Sardinia, Italy (© guenterguni/Getty Images)
 
 ![](images/2025-06/20250604_CalaLuna_1920x1080.jpg)
 
@@ -53,10 +57,6 @@
 #### 20250528 Sea otter floating in a kelp bed in Alaska Maritime National Wildlife Refuge (© Gerry Ellis/Minden Pictures)
 
 ![](images/2025-05/20250528_KelpOtter_1920x1080.jpg)
-
-#### 20250528 Heidelberg, Baden-Württemberg, Germany (© anyaivanova/Getty Images)
-
-![](images/2025-05/20250528_HeidelbergSpring_1920x1080.jpg)
 
 
 
