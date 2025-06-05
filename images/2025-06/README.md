@@ -1,3 +1,11 @@
+#### 20250606 诺曼底的阿罗芒什莱班 , 法国 (© Horia Merla/Getty Images)
+
+![](20250606_NormandyBeach_1920x1080.jpg)
+
+#### 20250606 オオフラミンゴ, ナミビア (© Karine Aigner/TANDEM Stills + Motion)
+
+![](20250606_FlamingosNamibia_1920x1080.jpg)
+
 #### 20250605 Moritzburg Castle, Saxony, Germany (© Hans-Peter Szyszka/eStock Photo)
 
 ![](20250605_SchlossMoritzburg_1920x1080.jpg)
