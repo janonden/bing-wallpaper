@@ -2,7 +2,7 @@
 
 ![](20250605_SchlossMoritzburg_1920x1080.jpg)
 
-#### 20250605 ペットボトルキャップのモザイク画, ベネズエラ (© FEDERICO PARRA/AFP via Getty Images)
+#### 20250605 Bottle-cap mural made by Oscar Olivares in Guatire, Venezuela (© FEDERICO PARRA/AFP via Getty Images)
 
 ![](20250605_OlivaresMural_1920x1080.jpg)
 
