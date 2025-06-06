@@ -6,6 +6,10 @@
 
 ![](20250606_FlamingosNamibia_1920x1080.jpg)
 
+#### 20250606 Altstadt von Dubrovnik in Dalmatien, Kroatien (© bluejayphoto/Getty Images)
+
+![](20250606_DubrovnikTwilight_1920x1080.jpg)
+
 #### 20250605 Moritzburg Castle, Saxony, Germany (© Hans-Peter Szyszka/eStock Photo)
 
 ![](20250605_SchlossMoritzburg_1920x1080.jpg)
