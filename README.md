@@ -2,6 +2,10 @@
 
 ![](images/2025-06/20250607_Pheasant_1920x1080.jpg)
 
+#### 20250607 松山顶峰, 洛杉矶国家森林公园, 加利福尼亚州, 美国 (© Matthew Kuhns/TANDEM Stills + Motion)
+
+![](images/2025-06/20250607_PacificCrestTrail_1920x1080.jpg)
+
 #### 20250606 Arromanches-les-Bains in Normandy, France (© Horia Merla/Getty Images)
 
 ![](images/2025-06/20250606_NormandyBeach_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250602 Vue et reflets de Blois, Val de Loire (© boerescul/Getty Images)
 
 ![](images/2025-06/20250602_BloisBridge_1920x1080.jpg)
-
-#### 20250601 Barrier reef off the island of Grande Terre in the French overseas territory of New Caledonia (© Karsten Wrobel/Getty Images)
-
-![](images/2025-06/20250601_GrandeTerreReef_1920x1080.jpg)
 
 
 

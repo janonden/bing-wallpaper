@@ -2,6 +2,10 @@
 
 ![](20250607_Pheasant_1920x1080.jpg)
 
+#### 20250607 松山顶峰, 洛杉矶国家森林公园, 加利福尼亚州, 美国 (© Matthew Kuhns/TANDEM Stills + Motion)
+
+![](20250607_PacificCrestTrail_1920x1080.jpg)
+
 #### 20250606 Arromanches-les-Bains in Normandy, France (© Horia Merla/Getty Images)
 
 ![](20250606_NormandyBeach_1920x1080.jpg)
