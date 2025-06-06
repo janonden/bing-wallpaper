@@ -1,4 +1,8 @@
-#### 20250606 诺曼底的阿罗芒什莱班 , 法国 (© Horia Merla/Getty Images)
+#### 20250607 Common pheasant, Normandy, France (© slowmotiongli/Getty Images)
+
+![](images/2025-06/20250607_Pheasant_1920x1080.jpg)
+
+#### 20250606 Arromanches-les-Bains in Normandy, France (© Horia Merla/Getty Images)
 
 ![](images/2025-06/20250606_NormandyBeach_1920x1080.jpg)
 
@@ -53,10 +57,6 @@
 #### 20250601 Barrier reef off the island of Grande Terre in the French overseas territory of New Caledonia (© Karsten Wrobel/Getty Images)
 
 ![](images/2025-06/20250601_GrandeTerreReef_1920x1080.jpg)
-
-#### 20250531 Knuthöjdsmossen, a nature reserve in Sweden (© Sven Halling/DEEPOL/plainpicture)
-
-![](images/2025-05/20250531_SwedenReserve_1920x1080.jpg)
 
 
 
