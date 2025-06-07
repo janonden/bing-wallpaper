@@ -1,3 +1,7 @@
+#### 20250608 北海狮, 温哥华岛, 不列颠哥伦比亚省, 加拿大 (© Steve Woods Photography/Getty Images)
+
+![](images/2025-06/20250608_StellarSeaLions_1920x1080.jpg)
+
 #### 20250607 Common pheasant, Normandy, France (© slowmotiongli/Getty Images)
 
 ![](images/2025-06/20250607_Pheasant_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250602 Skipper butterfly on a coneflower, Rockefeller State Park Preserve, New York (© Marianne A. Campolongo/Alamy)
 
 ![](images/2025-06/20250602_EchinaceaButterfly_1920x1080.jpg)
-
-#### 20250602 Gänseküken auf einer Wiese im Ahnepark, Vellmar, Hessen (© Gerhard Hagen/Getty Images)
-
-![](images/2025-06/20250602_ChickAhnepark_1920x1080.jpg)
 
 
 

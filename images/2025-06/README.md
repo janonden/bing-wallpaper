@@ -1,3 +1,7 @@
+#### 20250608 北海狮, 温哥华岛, 不列颠哥伦比亚省, 加拿大 (© Steve Woods Photography/Getty Images)
+
+![](20250608_StellarSeaLions_1920x1080.jpg)
+
 #### 20250607 Common pheasant, Normandy, France (© slowmotiongli/Getty Images)
 
 ![](20250607_Pheasant_1920x1080.jpg)
