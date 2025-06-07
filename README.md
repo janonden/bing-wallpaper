@@ -6,6 +6,10 @@
 
 ![](images/2025-06/20250607_PacificCrestTrail_1920x1080.jpg)
 
+#### 20250607 Vue aérienne de Paris au crépuscule avec le Jardin des Tuileries, le Louvre et le Sacré-Cœur de Montmartre (© Francois Roux/Alamy Stock Photo)
+
+![](images/2025-06/20250607_NuitBlancheParis_1920x1080.jpg)
+
 #### 20250606 Arromanches-les-Bains in Normandy, France (© Horia Merla/Getty Images)
 
 ![](images/2025-06/20250606_NormandyBeach_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250602 Gänseküken auf einer Wiese im Ahnepark, Vellmar, Hessen (© Gerhard Hagen/Getty Images)
 
 ![](images/2025-06/20250602_ChickAhnepark_1920x1080.jpg)
-
-#### 20250602 Vue et reflets de Blois, Val de Loire (© boerescul/Getty Images)
-
-![](images/2025-06/20250602_BloisBridge_1920x1080.jpg)
 
 
 

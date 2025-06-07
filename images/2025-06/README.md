@@ -6,6 +6,10 @@
 
 ![](20250607_PacificCrestTrail_1920x1080.jpg)
 
+#### 20250607 Vue aérienne de Paris au crépuscule avec le Jardin des Tuileries, le Louvre et le Sacré-Cœur de Montmartre (© Francois Roux/Alamy Stock Photo)
+
+![](20250607_NuitBlancheParis_1920x1080.jpg)
+
 #### 20250606 Arromanches-les-Bains in Normandy, France (© Horia Merla/Getty Images)
 
 ![](20250606_NormandyBeach_1920x1080.jpg)
