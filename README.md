@@ -2,7 +2,7 @@
 
 ![](images/2025-06/20250607_Pheasant_1920x1080.jpg)
 
-#### 20250607 松山顶峰, 洛杉矶国家森林公园, 加利福尼亚州, 美国 (© Matthew Kuhns/TANDEM Stills + Motion)
+#### 20250607 Summit of Pine Mountain, Angeles National Forest, California (© Matthew Kuhns/TANDEM Stills + Motion)
 
 ![](images/2025-06/20250607_PacificCrestTrail_1920x1080.jpg)
 
