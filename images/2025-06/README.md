@@ -1,4 +1,4 @@
-#### 20250608 北海狮, 温哥华岛, 不列颠哥伦比亚省, 加拿大 (© Steve Woods Photography/Getty Images)
+#### 20250608 Steller sea lions, Vancouver Island, British Columbia, Canada (© Steve Woods Photography/Getty Images)
 
 ![](20250608_StellarSeaLions_1920x1080.jpg)
 
