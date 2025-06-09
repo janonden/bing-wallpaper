@@ -26,7 +26,7 @@
 
 ![](images/2025-06/20250606_FlamingosNamibia_1920x1080.jpg)
 
-#### 20250606 Altstadt von Dubrovnik in Dalmatien, Kroatien (© bluejayphoto/Getty Images)
+#### 20250606 Old City of Dubrovnik in Dalmatia, Croatia (© bluejayphoto/Getty Images)
 
 ![](images/2025-06/20250606_DubrovnikTwilight_1920x1080.jpg)
 
