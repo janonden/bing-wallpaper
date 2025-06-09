@@ -1,3 +1,7 @@
+#### 20250609 Mühle im LWL-Freilichtmuseum Detmold, NRW (© ullstein bild/Getty Images)
+
+![](images/2025-06/20250609_MillDetmold_1920x1080.jpg)
+
 #### 20250608 Steller sea lions, Vancouver Island, British Columbia, Canada (© Steve Woods Photography/Getty Images)
 
 ![](images/2025-06/20250608_StellarSeaLions_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250602 Fogo Island, Newfoundland and Labrador (© Greg Johnston/Photodisc/Getty Images)
 
 ![](images/2025-06/20250602_Fogoisland_1920x1080.jpg)
-
-#### 20250602 Skipper butterfly on a coneflower, Rockefeller State Park Preserve, New York (© Marianne A. Campolongo/Alamy)
-
-![](images/2025-06/20250602_EchinaceaButterfly_1920x1080.jpg)
 
 
 

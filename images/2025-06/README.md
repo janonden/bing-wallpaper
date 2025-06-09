@@ -1,3 +1,7 @@
+#### 20250609 Mühle im LWL-Freilichtmuseum Detmold, NRW (© ullstein bild/Getty Images)
+
+![](20250609_MillDetmold_1920x1080.jpg)
+
 #### 20250608 Steller sea lions, Vancouver Island, British Columbia, Canada (© Steve Woods Photography/Getty Images)
 
 ![](20250608_StellarSeaLions_1920x1080.jpg)
