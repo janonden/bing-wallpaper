@@ -1,3 +1,7 @@
+#### 20250610 大沼泽地国家公园的鸟瞰图，佛罗里达州，美国 (© Robert DelVecchio - OcuDrone/Getty Images)
+
+![](images/2025-06/20250610_AerialEverglades_1920x1080.jpg)
+
 #### 20250609 Mühle im LWL-Freilichtmuseum Detmold, NRW (© ullstein bild/Getty Images)
 
 ![](images/2025-06/20250609_MillDetmold_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250602 みなとみらい 21 地区, 神奈川県 横浜市 (© Shingo Tamura/Getty Images)
 
 ![](images/2025-06/20250602_YokohamaPort_1920x1080.jpg)
-
-#### 20250602 Fogo Island, Newfoundland and Labrador (© Greg Johnston/Photodisc/Getty Images)
-
-![](images/2025-06/20250602_Fogoisland_1920x1080.jpg)
 
 
 

@@ -1,3 +1,7 @@
+#### 20250610 大沼泽地国家公园的鸟瞰图，佛罗里达州，美国 (© Robert DelVecchio - OcuDrone/Getty Images)
+
+![](20250610_AerialEverglades_1920x1080.jpg)
+
 #### 20250609 Mühle im LWL-Freilichtmuseum Detmold, NRW (© ullstein bild/Getty Images)
 
 ![](20250609_MillDetmold_1920x1080.jpg)
