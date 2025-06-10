@@ -1,3 +1,7 @@
+#### 20250611 あじさいの丘, 静岡県 賀茂郡 (© Tommy Tsutsui/Getty Images)
+
+![](20250611_Hydrangea_1920x1080.jpg)
+
 #### 20250610 Aerial view of Everglades National Park, Florida (© Robert DelVecchio - OcuDrone/Getty Images)
 
 ![](20250610_AerialEverglades_1920x1080.jpg)

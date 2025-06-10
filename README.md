@@ -1,3 +1,7 @@
+#### 20250611 あじさいの丘, 静岡県 賀茂郡 (© Tommy Tsutsui/Getty Images)
+
+![](images/2025-06/20250611_Hydrangea_1920x1080.jpg)
+
 #### 20250610 Aerial view of Everglades National Park, Florida (© Robert DelVecchio - OcuDrone/Getty Images)
 
 ![](images/2025-06/20250610_AerialEverglades_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250603 Bicycles on a bridge in Utrecht, Netherlands (© George Pachantouris/Getty Images)
 
 ![](images/2025-06/20250603_BicyclesUtrecht_1920x1080.jpg)
-
-#### 20250602 みなとみらい 21 地区, 神奈川県 横浜市 (© Shingo Tamura/Getty Images)
-
-![](images/2025-06/20250602_YokohamaPort_1920x1080.jpg)
 
 
 
