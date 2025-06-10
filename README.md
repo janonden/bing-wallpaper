@@ -1,4 +1,4 @@
-#### 20250610 大沼泽地国家公园的鸟瞰图，佛罗里达州，美国 (© Robert DelVecchio - OcuDrone/Getty Images)
+#### 20250610 Aerial view of Everglades National Park, Florida (© Robert DelVecchio - OcuDrone/Getty Images)
 
 ![](images/2025-06/20250610_AerialEverglades_1920x1080.jpg)
 
