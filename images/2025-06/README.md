@@ -1,3 +1,7 @@
+#### 20250612 奇索斯山脉，大弯国家公园，德克萨斯州，美国 (© Dean Fikar/Getty Images)
+
+![](20250612_BigBendChisos_1920x1080.jpg)
+
 #### 20250611 あじさいの丘, 静岡県 賀茂郡 (© Tommy Tsutsui/Getty Images)
 
 ![](20250611_Hydrangea_1920x1080.jpg)

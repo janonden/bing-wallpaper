@@ -1,3 +1,7 @@
+#### 20250612 奇索斯山脉，大弯国家公园，德克萨斯州，美国 (© Dean Fikar/Getty Images)
+
+![](images/2025-06/20250612_BigBendChisos_1920x1080.jpg)
+
 #### 20250611 あじさいの丘, 静岡県 賀茂郡 (© Tommy Tsutsui/Getty Images)
 
 ![](images/2025-06/20250611_Hydrangea_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250604 The beach at Cala Luna, Sardinia, Italy (© guenterguni/Getty Images)
 
 ![](images/2025-06/20250604_CalaLuna_1920x1080.jpg)
-
-#### 20250603 Bicycles on a bridge in Utrecht, Netherlands (© George Pachantouris/Getty Images)
-
-![](images/2025-06/20250603_BicyclesUtrecht_1920x1080.jpg)
 
 
 
