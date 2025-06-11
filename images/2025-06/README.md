@@ -30,7 +30,7 @@
 
 ![](20250606_NormandyBeach_1920x1080.jpg)
 
-#### 20250606 オオフラミンゴ, ナミビア (© Karine Aigner/TANDEM Stills + Motion)
+#### 20250606 Greater flamingos, Lüderitz, Namibia (© Karine Aigner/TANDEM Stills + Motion)
 
 ![](20250606_FlamingosNamibia_1920x1080.jpg)
 
