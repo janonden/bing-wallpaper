@@ -1,3 +1,7 @@
+#### 20250613 维拉弗兰卡岛，圣米格尔岛，亚速尔群岛，葡萄牙 (© ARoxo/Getty Images)
+
+![](20250613_SanMiguelAzores_1920x1080.jpg)
+
 #### 20250612 Chisos Mountains, Big Bend National Park, Texas (© Dean Fikar/Getty Images)
 
 ![](20250612_BigBendChisos_1920x1080.jpg)

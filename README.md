@@ -1,3 +1,7 @@
+#### 20250613 维拉弗兰卡岛，圣米格尔岛，亚速尔群岛，葡萄牙 (© ARoxo/Getty Images)
+
+![](images/2025-06/20250613_SanMiguelAzores_1920x1080.jpg)
+
 #### 20250612 Chisos Mountains, Big Bend National Park, Texas (© Dean Fikar/Getty Images)
 
 ![](images/2025-06/20250612_BigBendChisos_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250605 福玛萨瀑布，迪亚曼蒂纳，巴西 (© Pulsar Images/Alamy)
 
 ![](images/2025-06/20250605_FumacinhaBahia_1920x1080.jpg)
-
-#### 20250604 The beach at Cala Luna, Sardinia, Italy (© guenterguni/Getty Images)
-
-![](images/2025-06/20250604_CalaLuna_1920x1080.jpg)
 
 
 
