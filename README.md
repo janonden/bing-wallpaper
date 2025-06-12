@@ -1,4 +1,4 @@
-#### 20250612 奇索斯山脉，大弯国家公园，德克萨斯州，美国 (© Dean Fikar/Getty Images)
+#### 20250612 Chisos Mountains, Big Bend National Park, Texas (© Dean Fikar/Getty Images)
 
 ![](images/2025-06/20250612_BigBendChisos_1920x1080.jpg)
 
