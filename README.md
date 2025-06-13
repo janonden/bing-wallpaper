@@ -1,3 +1,11 @@
+#### 20250614 日光東照宮, 栃木県 日光市 (© Pavel Nesvadba/shutterstock)
+
+![](images/2025-06/20250614_NikkoToshoguShrine_1920x1080.jpg)
+
+#### 20250614 五塔峰，多洛米蒂山脉，科尔蒂纳丹佩佐，贝卢诺省，意大利威尼托大区 (© usabin/Getty Images)
+
+![](images/2025-06/20250614_DolomitiEstate_1920x1080.jpg)
+
 #### 20250613 Vila Franca Islet, São Miguel Island, Azores, Portugal (© ARoxo/Getty Images)
 
 ![](images/2025-06/20250613_SanMiguelAzores_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20250606 Old City of Dubrovnik in Dalmatia, Croatia (© bluejayphoto/Getty Images)
 
 ![](images/2025-06/20250606_DubrovnikTwilight_1920x1080.jpg)
-
-#### 20250605 Moritzburg Castle, Saxony, Germany (© Hans-Peter Szyszka/eStock Photo)
-
-![](images/2025-06/20250605_SchlossMoritzburg_1920x1080.jpg)
-
-#### 20250605 Bottle-cap mural made by Oscar Olivares in Guatire, Venezuela (© FEDERICO PARRA/AFP via Getty Images)
-
-![](images/2025-06/20250605_OlivaresMural_1920x1080.jpg)
 
 
 
