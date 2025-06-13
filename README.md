@@ -1,4 +1,4 @@
-#### 20250613 维拉弗兰卡岛，圣米格尔岛，亚速尔群岛，葡萄牙 (© ARoxo/Getty Images)
+#### 20250613 Vila Franca Islet, São Miguel Island, Azores, Portugal (© ARoxo/Getty Images)
 
 ![](images/2025-06/20250613_SanMiguelAzores_1920x1080.jpg)
 
