@@ -2,6 +2,10 @@
 
 ![](20250613_SanMiguelAzores_1920x1080.jpg)
 
+#### 20250613 Montreal skyline reflecting in St. Lawrence River, Quebec (© Walter Bibikow/Stone/Getty Images)
+
+![](20250613_CanadianGPQuebec_1920x1080.jpg)
+
 #### 20250612 Chisos Mountains, Big Bend National Park, Texas (© Dean Fikar/Getty Images)
 
 ![](20250612_BigBendChisos_1920x1080.jpg)
