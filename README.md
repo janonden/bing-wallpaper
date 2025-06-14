@@ -1,3 +1,7 @@
+#### 20250615 雄性小美洲鸵与幼鸟，托雷斯德尔潘恩国家公园，巴塔哥尼亚，智利 (© Ignacio Yufera/Minden Pictures)
+
+![](images/2025-06/20250615_RheaDad_1920x1080.jpg)
+
 #### 20250614 日光東照宮, 栃木県 日光市 (© Pavel Nesvadba/shutterstock)
 
 ![](images/2025-06/20250614_NikkoToshoguShrine_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250606 Arromanches-les-Bains in Normandy, France (© Horia Merla/Getty Images)
 
 ![](images/2025-06/20250606_NormandyBeach_1920x1080.jpg)
-
-#### 20250606 Greater flamingos, Lüderitz, Namibia (© Karine Aigner/TANDEM Stills + Motion)
-
-![](images/2025-06/20250606_FlamingosNamibia_1920x1080.jpg)
 
 
 
