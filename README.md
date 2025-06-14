@@ -2,6 +2,10 @@
 
 ![](images/2025-06/20250614_NikkoToshoguShrine_1920x1080.jpg)
 
+#### 20250614 Flag display at the US Capitol, Washington, DC (© kmiragaya/Adobe Stock)
+
+![](images/2025-06/20250614_FlagCapitolDC_1920x1080.jpg)
+
 #### 20250614 五塔峰，多洛米蒂山脉，科尔蒂纳丹佩佐，贝卢诺省，意大利威尼托大区 (© usabin/Getty Images)
 
 ![](images/2025-06/20250614_DolomitiEstate_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250606 Greater flamingos, Lüderitz, Namibia (© Karine Aigner/TANDEM Stills + Motion)
 
 ![](images/2025-06/20250606_FlamingosNamibia_1920x1080.jpg)
-
-#### 20250606 Old City of Dubrovnik in Dalmatia, Croatia (© bluejayphoto/Getty Images)
-
-![](images/2025-06/20250606_DubrovnikTwilight_1920x1080.jpg)
 
 
 

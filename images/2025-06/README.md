@@ -2,6 +2,10 @@
 
 ![](20250614_NikkoToshoguShrine_1920x1080.jpg)
 
+#### 20250614 Flag display at the US Capitol, Washington, DC (© kmiragaya/Adobe Stock)
+
+![](20250614_FlagCapitolDC_1920x1080.jpg)
+
 #### 20250614 五塔峰，多洛米蒂山脉，科尔蒂纳丹佩佐，贝卢诺省，意大利威尼托大区 (© usabin/Getty Images)
 
 ![](20250614_DolomitiEstate_1920x1080.jpg)
