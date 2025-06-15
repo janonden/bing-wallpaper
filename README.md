@@ -2,7 +2,7 @@
 
 ![](images/2025-06/20250615_WatertowerMannheim_1920x1080.jpg)
 
-#### 20250615 雄性小美洲鸵与幼鸟，托雷斯德尔潘恩国家公园，巴塔哥尼亚，智利 (© Ignacio Yufera/Minden Pictures)
+#### 20250615 Lesser rhea adult male with chicks, Torres del Paine National Park, Patagonia, Chile (© Ignacio Yufera/Minden Pictures)
 
 ![](images/2025-06/20250615_RheaDad_1920x1080.jpg)
 
