@@ -1,3 +1,7 @@
+#### 20250616 海龟，费尔南多·迪诺罗尼亚群岛，巴西 (© João Vianna/Getty Images)
+
+![](20250616_SeaTurtleBrazil_1920x1080.jpg)
+
 #### 20250615 Wasserturm, Mannheim, Baden-Württemberg (© no_limit_pictures/Getty Images)
 
 ![](20250615_WatertowerMannheim_1920x1080.jpg)

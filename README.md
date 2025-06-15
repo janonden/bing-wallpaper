@@ -1,3 +1,7 @@
+#### 20250616 海龟，费尔南多·迪诺罗尼亚群岛，巴西 (© João Vianna/Getty Images)
+
+![](images/2025-06/20250616_SeaTurtleBrazil_1920x1080.jpg)
+
 #### 20250615 Wasserturm, Mannheim, Baden-Württemberg (© no_limit_pictures/Getty Images)
 
 ![](images/2025-06/20250615_WatertowerMannheim_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250607 Summit of Pine Mountain, Angeles National Forest, California (© Matthew Kuhns/TANDEM Stills + Motion)
 
 ![](images/2025-06/20250607_PacificCrestTrail_1920x1080.jpg)
-
-#### 20250607 Vue aérienne de Paris au crépuscule avec le Jardin des Tuileries, le Louvre et le Sacré-Cœur de Montmartre (© Francois Roux/Alamy Stock Photo)
-
-![](images/2025-06/20250607_NuitBlancheParis_1920x1080.jpg)
 
 
 
