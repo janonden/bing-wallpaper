@@ -1,3 +1,7 @@
+#### 20250615 Wasserturm, Mannheim, Baden-Württemberg (© no_limit_pictures/Getty Images)
+
+![](images/2025-06/20250615_WatertowerMannheim_1920x1080.jpg)
+
 #### 20250615 雄性小美洲鸵与幼鸟，托雷斯德尔潘恩国家公园，巴塔哥尼亚，智利 (© Ignacio Yufera/Minden Pictures)
 
 ![](images/2025-06/20250615_RheaDad_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250607 Vue aérienne de Paris au crépuscule avec le Jardin des Tuileries, le Louvre et le Sacré-Cœur de Montmartre (© Francois Roux/Alamy Stock Photo)
 
 ![](images/2025-06/20250607_NuitBlancheParis_1920x1080.jpg)
-
-#### 20250606 Arromanches-les-Bains in Normandy, France (© Horia Merla/Getty Images)
-
-![](images/2025-06/20250606_NormandyBeach_1920x1080.jpg)
 
 
 
