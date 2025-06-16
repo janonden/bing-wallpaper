@@ -1,3 +1,7 @@
+#### 20250617 坎伯兰岛国家海岸的海滨森林，乔治亚州，美国 (© Chris Moore/TANDEM Stills + Motion)
+
+![](images/2025-06/20250617_CumberlandOaks_1920x1080.jpg)
+
 #### 20250616 Sea turtle, Fernando de Noronha, Brazil (© João Vianna/Getty Images)
 
 ![](images/2025-06/20250616_SeaTurtleBrazil_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250607 Common pheasant, Normandy, France (© slowmotiongli/Getty Images)
 
 ![](images/2025-06/20250607_Pheasant_1920x1080.jpg)
-
-#### 20250607 Summit of Pine Mountain, Angeles National Forest, California (© Matthew Kuhns/TANDEM Stills + Motion)
-
-![](images/2025-06/20250607_PacificCrestTrail_1920x1080.jpg)
 
 
 

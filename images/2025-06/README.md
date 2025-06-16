@@ -1,3 +1,7 @@
+#### 20250617 坎伯兰岛国家海岸的海滨森林，乔治亚州，美国 (© Chris Moore/TANDEM Stills + Motion)
+
+![](20250617_CumberlandOaks_1920x1080.jpg)
+
 #### 20250616 Sea turtle, Fernando de Noronha, Brazil (© João Vianna/Getty Images)
 
 ![](20250616_SeaTurtleBrazil_1920x1080.jpg)
