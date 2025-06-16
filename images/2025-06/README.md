@@ -1,4 +1,4 @@
-#### 20250616 海龟，费尔南多·迪诺罗尼亚群岛，巴西 (© João Vianna/Getty Images)
+#### 20250616 Sea turtle, Fernando de Noronha, Brazil (© João Vianna/Getty Images)
 
 ![](20250616_SeaTurtleBrazil_1920x1080.jpg)
 
