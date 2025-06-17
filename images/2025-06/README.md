@@ -1,4 +1,4 @@
-#### 20250617 坎伯兰岛国家海岸的海滨森林，乔治亚州，美国 (© Chris Moore/TANDEM Stills + Motion)
+#### 20250617 Maritime forest in Cumberland Island National Seashore, Georgia (© Chris Moore/TANDEM Stills + Motion)
 
 ![](20250617_CumberlandOaks_1920x1080.jpg)
 
