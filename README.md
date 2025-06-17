@@ -1,3 +1,7 @@
+#### 20250618 红花石蒜上的柑橘凤蝶 (© lzh/Getty Images)
+
+![](images/2025-06/20250618_AsianSwallowtail_1920x1080.jpg)
+
 #### 20250617 Maritime forest in Cumberland Island National Seashore, Georgia (© Chris Moore/TANDEM Stills + Motion)
 
 ![](images/2025-06/20250617_CumberlandOaks_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250608 Steller sea lions, Vancouver Island, British Columbia, Canada (© Steve Woods Photography/Getty Images)
 
 ![](images/2025-06/20250608_StellarSeaLions_1920x1080.jpg)
-
-#### 20250607 Common pheasant, Normandy, France (© slowmotiongli/Getty Images)
-
-![](images/2025-06/20250607_Pheasant_1920x1080.jpg)
 
 
 
