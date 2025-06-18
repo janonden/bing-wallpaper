@@ -1,4 +1,4 @@
-#### 20250618 红花石蒜上的柑橘凤蝶 (© lzh/Getty Images)
+#### 20250618 Asian swallowtail butterfly on a red spider lily (© lzh/Getty Images)
 
 ![](images/2025-06/20250618_AsianSwallowtail_1920x1080.jpg)
 
