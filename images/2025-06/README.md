@@ -1,3 +1,11 @@
+#### 20250619 圣卡塔琳娜州的海滩, 巴西 (© CaioCarvalhoPhotography/Getty Images)
+
+![](20250619_WinterBegins_1920x1080.jpg)
+
+#### 20250619 ホタルが光る森, 岡山県 (© JGalione/Getty Images)
+
+![](20250619_FireflySeason_1920x1080.jpg)
+
 #### 20250618 Asian swallowtail butterfly on a red spider lily (© lzh/Getty Images)
 
 ![](20250618_AsianSwallowtail_1920x1080.jpg)

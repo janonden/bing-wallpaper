@@ -1,3 +1,11 @@
+#### 20250619 圣卡塔琳娜州的海滩, 巴西 (© CaioCarvalhoPhotography/Getty Images)
+
+![](images/2025-06/20250619_WinterBegins_1920x1080.jpg)
+
+#### 20250619 ホタルが光る森, 岡山県 (© JGalione/Getty Images)
+
+![](images/2025-06/20250619_FireflySeason_1920x1080.jpg)
+
 #### 20250618 Asian swallowtail butterfly on a red spider lily (© lzh/Getty Images)
 
 ![](images/2025-06/20250618_AsianSwallowtail_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20250610 Aerial view of Everglades National Park, Florida (© Robert DelVecchio - OcuDrone/Getty Images)
 
 ![](images/2025-06/20250610_AerialEverglades_1920x1080.jpg)
-
-#### 20250609 Mühle im LWL-Freilichtmuseum Detmold, NRW (© ullstein bild/Getty Images)
-
-![](images/2025-06/20250609_MillDetmold_1920x1080.jpg)
-
-#### 20250608 Steller sea lions, Vancouver Island, British Columbia, Canada (© Steve Woods Photography/Getty Images)
-
-![](images/2025-06/20250608_StellarSeaLions_1920x1080.jpg)
 
 
 
