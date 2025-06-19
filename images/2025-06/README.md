@@ -2,6 +2,10 @@
 
 ![](20250619_WinterBegins_1920x1080.jpg)
 
+#### 20250619 Texas State Capitol in Austin (© joe daniel price/Getty Images)
+
+![](20250619_TexasCapitol_1920x1080.jpg)
+
 #### 20250619 ホタルが光る森, 岡山県 (© JGalione/Getty Images)
 
 ![](20250619_FireflySeason_1920x1080.jpg)

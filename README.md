@@ -2,6 +2,10 @@
 
 ![](images/2025-06/20250619_WinterBegins_1920x1080.jpg)
 
+#### 20250619 Texas State Capitol in Austin (© joe daniel price/Getty Images)
+
+![](images/2025-06/20250619_TexasCapitol_1920x1080.jpg)
+
 #### 20250619 ホタルが光る森, 岡山県 (© JGalione/Getty Images)
 
 ![](images/2025-06/20250619_FireflySeason_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250611 あじさいの丘, 静岡県 賀茂郡 (© Tommy Tsutsui/Getty Images)
 
 ![](images/2025-06/20250611_Hydrangea_1920x1080.jpg)
-
-#### 20250610 Aerial view of Everglades National Park, Florida (© Robert DelVecchio - OcuDrone/Getty Images)
-
-![](images/2025-06/20250610_AerialEverglades_1920x1080.jpg)
 
 
 
