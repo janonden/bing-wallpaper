@@ -1,3 +1,11 @@
+#### 20250620 一只马赛长颈鹿妈妈正在给小长颈鹿梳理毛发, 塞伦盖蒂,坦桑尼亚 (© Alberto Cassani/Getty Images)
+
+![](images/2025-06/20250620_SerengetiGiraffe_1920x1080.jpg)
+
+#### 20250620 セリャラントスフォス, アイスランド  (© Tom Mackie/AWL/plainpicture)
+
+![](images/2025-06/20250620_IcelandSolstice_1920x1080.jpg)
+
 #### 20250619 圣卡塔琳娜州的海滩, 巴西 (© CaioCarvalhoPhotography/Getty Images)
 
 ![](images/2025-06/20250619_WinterBegins_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20250613 Montreal skyline reflecting in St. Lawrence River, Quebec (© Walter Bibikow/Stone/Getty Images)
 
 ![](images/2025-06/20250613_CanadianGPQuebec_1920x1080.jpg)
-
-#### 20250612 Chisos Mountains, Big Bend National Park, Texas (© Dean Fikar/Getty Images)
-
-![](images/2025-06/20250612_BigBendChisos_1920x1080.jpg)
-
-#### 20250611 あじさいの丘, 静岡県 賀茂郡 (© Tommy Tsutsui/Getty Images)
-
-![](images/2025-06/20250611_Hydrangea_1920x1080.jpg)
 
 
 
