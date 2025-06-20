@@ -1,3 +1,7 @@
+#### 20250621 雾中莲花，中国佛山 (© huoguangliang/Getty Images)
+
+![](images/2025-06/20250621_SummerSolsticeY_1920x1080.jpg)
+
 #### 20250620 一只马赛长颈鹿妈妈正在给小长颈鹿梳理毛发, 塞伦盖蒂,坦桑尼亚 (© Alberto Cassani/Getty Images)
 
 ![](images/2025-06/20250620_SerengetiGiraffe_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250613 Vila Franca Islet, São Miguel Island, Azores, Portugal (© ARoxo/Getty Images)
 
 ![](images/2025-06/20250613_SanMiguelAzores_1920x1080.jpg)
-
-#### 20250613 Montreal skyline reflecting in St. Lawrence River, Quebec (© Walter Bibikow/Stone/Getty Images)
-
-![](images/2025-06/20250613_CanadianGPQuebec_1920x1080.jpg)
 
 
 
