@@ -2,7 +2,7 @@
 
 ![](images/2025-06/20250620_SerengetiGiraffe_1920x1080.jpg)
 
-#### 20250620 セリャラントスフォス, アイスランド  (© Tom Mackie/AWL/plainpicture)
+#### 20250620 Seljalandsfoss waterfall at sunset, Iceland (© Tom Mackie/AWL/plainpicture)
 
 ![](images/2025-06/20250620_IcelandSolstice_1920x1080.jpg)
 
