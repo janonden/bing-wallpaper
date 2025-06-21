@@ -2,6 +2,10 @@
 
 ![](images/2025-06/20250621_SummerSolsticeY_1920x1080.jpg)
 
+#### 20250621 Littoral de la Côte d’Azur à Antibes (© StockByM/Getty Images)
+
+![](images/2025-06/20250621_AntibesMusic_1920x1080.jpg)
+
 #### 20250620 一只马赛长颈鹿妈妈正在给小长颈鹿梳理毛发, 塞伦盖蒂,坦桑尼亚 (© Alberto Cassani/Getty Images)
 
 ![](images/2025-06/20250620_SerengetiGiraffe_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250614 五塔峰，多洛米蒂山脉，科尔蒂纳丹佩佐，贝卢诺省，意大利威尼托大区 (© usabin/Getty Images)
 
 ![](images/2025-06/20250614_DolomitiEstate_1920x1080.jpg)
-
-#### 20250613 Vila Franca Islet, São Miguel Island, Azores, Portugal (© ARoxo/Getty Images)
-
-![](images/2025-06/20250613_SanMiguelAzores_1920x1080.jpg)
 
 
 

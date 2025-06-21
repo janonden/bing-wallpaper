@@ -2,6 +2,10 @@
 
 ![](20250621_SummerSolsticeY_1920x1080.jpg)
 
+#### 20250621 Littoral de la Côte d’Azur à Antibes (© StockByM/Getty Images)
+
+![](20250621_AntibesMusic_1920x1080.jpg)
+
 #### 20250620 一只马赛长颈鹿妈妈正在给小长颈鹿梳理毛发, 塞伦盖蒂,坦桑尼亚 (© Alberto Cassani/Getty Images)
 
 ![](20250620_SerengetiGiraffe_1920x1080.jpg)
