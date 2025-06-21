@@ -1,3 +1,7 @@
+#### 20250622 亚马逊雨林，厄瓜多尔 (© Mark Fox/Getty Images)
+
+![](images/2025-06/20250622_AmazonEcuador_1920x1080.jpg)
+
 #### 20250621 雾中莲花，中国佛山 (© huoguangliang/Getty Images)
 
 ![](images/2025-06/20250621_SummerSolsticeY_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250614 Flag display at the US Capitol, Washington, DC (© kmiragaya/Adobe Stock)
 
 ![](images/2025-06/20250614_FlagCapitolDC_1920x1080.jpg)
-
-#### 20250614 五塔峰，多洛米蒂山脉，科尔蒂纳丹佩佐，贝卢诺省，意大利威尼托大区 (© usabin/Getty Images)
-
-![](images/2025-06/20250614_DolomitiEstate_1920x1080.jpg)
 
 
 

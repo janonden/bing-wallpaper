@@ -1,3 +1,7 @@
+#### 20250622 亚马逊雨林，厄瓜多尔 (© Mark Fox/Getty Images)
+
+![](20250622_AmazonEcuador_1920x1080.jpg)
+
 #### 20250621 雾中莲花，中国佛山 (© huoguangliang/Getty Images)
 
 ![](20250621_SummerSolsticeY_1920x1080.jpg)
