@@ -1,4 +1,4 @@
-#### 20250622 亚马逊雨林，厄瓜多尔 (© Mark Fox/Getty Images)
+#### 20250622 Amazon rainforest, Ecuador (© Mark Fox/Getty Images)
 
 ![](20250622_AmazonEcuador_1920x1080.jpg)
 
