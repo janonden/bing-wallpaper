@@ -1,3 +1,7 @@
+#### 20250623 德累斯顿易北河谷, 德国 (© Sean Pavone/Getty Images)
+
+![](images/2025-06/20250623_DresdenElbe_1920x1080.jpg)
+
 #### 20250622 Amazon rainforest, Ecuador (© Mark Fox/Getty Images)
 
 ![](images/2025-06/20250622_AmazonEcuador_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250614 日光東照宮, 栃木県 日光市 (© Pavel Nesvadba/shutterstock)
 
 ![](images/2025-06/20250614_NikkoToshoguShrine_1920x1080.jpg)
-
-#### 20250614 Flag display at the US Capitol, Washington, DC (© kmiragaya/Adobe Stock)
-
-![](images/2025-06/20250614_FlagCapitolDC_1920x1080.jpg)
 
 
 

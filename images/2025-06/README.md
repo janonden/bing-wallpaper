@@ -1,3 +1,7 @@
+#### 20250623 德累斯顿易北河谷, 德国 (© Sean Pavone/Getty Images)
+
+![](20250623_DresdenElbe_1920x1080.jpg)
+
 #### 20250622 Amazon rainforest, Ecuador (© Mark Fox/Getty Images)
 
 ![](20250622_AmazonEcuador_1920x1080.jpg)
