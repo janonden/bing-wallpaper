@@ -1,4 +1,4 @@
-#### 20250623 德累斯顿易北河谷, 德国 (© Sean Pavone/Getty Images)
+#### 20250623 The Elbe in Dresden, Germany (© Sean Pavone/Getty Images)
 
 ![](20250623_DresdenElbe_1920x1080.jpg)
 
