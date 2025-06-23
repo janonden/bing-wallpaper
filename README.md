@@ -1,3 +1,7 @@
+#### 20250624 精致拱门, 拱门国家公园, 犹他州, 美国 (© mmac72/Getty Images)
+
+![](images/2025-06/20250624_DelicateArch_1920x1080.jpg)
+
 #### 20250623 The Elbe in Dresden, Germany (© Sean Pavone/Getty Images)
 
 ![](images/2025-06/20250623_DresdenElbe_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250615 Lesser rhea adult male with chicks, Torres del Paine National Park, Patagonia, Chile (© Ignacio Yufera/Minden Pictures)
 
 ![](images/2025-06/20250615_RheaDad_1920x1080.jpg)
-
-#### 20250614 日光東照宮, 栃木県 日光市 (© Pavel Nesvadba/shutterstock)
-
-![](images/2025-06/20250614_NikkoToshoguShrine_1920x1080.jpg)
 
 
 

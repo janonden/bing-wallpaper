@@ -1,3 +1,7 @@
+#### 20250624 精致拱门, 拱门国家公园, 犹他州, 美国 (© mmac72/Getty Images)
+
+![](20250624_DelicateArch_1920x1080.jpg)
+
 #### 20250623 The Elbe in Dresden, Germany (© Sean Pavone/Getty Images)
 
 ![](20250623_DresdenElbe_1920x1080.jpg)
