@@ -1,6 +1,14 @@
+#### 20250624 Eibsee, Bayern (© NejauPhoto/Getty Images)
+
+![](20250624_ScenicEibsee_1920x1080.jpg)
+
 #### 20250624 精致拱门, 拱门国家公园, 犹他州, 美国 (© mmac72/Getty Images)
 
 ![](20250624_DelicateArch_1920x1080.jpg)
+
+#### 20250624 Viaduc de Cize-Bolozon enjambant la rivière d’Ain, Auvergne-Rhône-Alpes (© Leonid Andronov/Getty Images)
+
+![](20250624_BolozonViaduct_1920x1080.jpg)
 
 #### 20250623 The Elbe in Dresden, Germany (© Sean Pavone/Getty Images)
 

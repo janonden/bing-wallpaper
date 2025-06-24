@@ -1,6 +1,14 @@
+#### 20250624 Eibsee, Bayern (© NejauPhoto/Getty Images)
+
+![](images/2025-06/20250624_ScenicEibsee_1920x1080.jpg)
+
 #### 20250624 精致拱门, 拱门国家公园, 犹他州, 美国 (© mmac72/Getty Images)
 
 ![](images/2025-06/20250624_DelicateArch_1920x1080.jpg)
+
+#### 20250624 Viaduc de Cize-Bolozon enjambant la rivière d’Ain, Auvergne-Rhône-Alpes (© Leonid Andronov/Getty Images)
+
+![](images/2025-06/20250624_BolozonViaduct_1920x1080.jpg)
 
 #### 20250623 The Elbe in Dresden, Germany (© Sean Pavone/Getty Images)
 
@@ -49,14 +57,6 @@
 #### 20250616 Sea turtle, Fernando de Noronha, Brazil (© João Vianna/Getty Images)
 
 ![](images/2025-06/20250616_SeaTurtleBrazil_1920x1080.jpg)
-
-#### 20250615 Wasserturm, Mannheim, Baden-Württemberg (© no_limit_pictures/Getty Images)
-
-![](images/2025-06/20250615_WatertowerMannheim_1920x1080.jpg)
-
-#### 20250615 Lesser rhea adult male with chicks, Torres del Paine National Park, Patagonia, Chile (© Ignacio Yufera/Minden Pictures)
-
-![](images/2025-06/20250615_RheaDad_1920x1080.jpg)
 
 
 
