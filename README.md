@@ -42,6 +42,10 @@
 
 ![](images/2025-06/20250619_TexasCapitol_1920x1080.jpg)
 
+#### 20250619 Vila Franca Islet, São Miguel Island, Azores, Portugal (© ARoxo/Getty Images)
+
+![](images/2025-06/20250619_SanMiguelAzores_1920x1080.jpg)
+
 #### 20250619 ホタルが光る森, 岡山県 (© JGalione/Getty Images)
 
 ![](images/2025-06/20250619_FireflySeason_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250617 Maritime forest in Cumberland Island National Seashore, Georgia (© Chris Moore/TANDEM Stills + Motion)
 
 ![](images/2025-06/20250617_CumberlandOaks_1920x1080.jpg)
-
-#### 20250616 Sea turtle, Fernando de Noronha, Brazil (© João Vianna/Getty Images)
-
-![](images/2025-06/20250616_SeaTurtleBrazil_1920x1080.jpg)
 
 
 

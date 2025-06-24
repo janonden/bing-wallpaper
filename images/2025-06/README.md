@@ -42,6 +42,10 @@
 
 ![](20250619_TexasCapitol_1920x1080.jpg)
 
+#### 20250619 Vila Franca Islet, São Miguel Island, Azores, Portugal (© ARoxo/Getty Images)
+
+![](20250619_SanMiguelAzores_1920x1080.jpg)
+
 #### 20250619 ホタルが光る森, 岡山県 (© JGalione/Getty Images)
 
 ![](20250619_FireflySeason_1920x1080.jpg)
