@@ -2,7 +2,7 @@
 
 ![](20250624_ScenicEibsee_1920x1080.jpg)
 
-#### 20250624 精致拱门, 拱门国家公园, 犹他州, 美国 (© mmac72/Getty Images)
+#### 20250624 Delicate Arch, Arches National Park, Utah (© mmac72/Getty Images)
 
 ![](20250624_DelicateArch_1920x1080.jpg)
 
