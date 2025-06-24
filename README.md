@@ -1,3 +1,7 @@
+#### 20250625 格拉斯顿伯里托尔上的圣迈克尔塔, 格拉斯顿伯里, 萨默塞特郡, 英格兰 (© Gavin Hellier/Getty Images)
+
+![](images/2025-06/20250625_GlastonburyScenic_1920x1080.jpg)
+
 #### 20250624 Eibsee, Bayern (© NejauPhoto/Getty Images)
 
 ![](images/2025-06/20250624_ScenicEibsee_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250618 Asian swallowtail butterfly on a red spider lily (© lzh/Getty Images)
 
 ![](images/2025-06/20250618_AsianSwallowtail_1920x1080.jpg)
-
-#### 20250617 Maritime forest in Cumberland Island National Seashore, Georgia (© Chris Moore/TANDEM Stills + Motion)
-
-![](images/2025-06/20250617_CumberlandOaks_1920x1080.jpg)
 
 
 

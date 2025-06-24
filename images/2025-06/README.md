@@ -1,3 +1,7 @@
+#### 20250625 格拉斯顿伯里托尔上的圣迈克尔塔, 格拉斯顿伯里, 萨默塞特郡, 英格兰 (© Gavin Hellier/Getty Images)
+
+![](20250625_GlastonburyScenic_1920x1080.jpg)
+
 #### 20250624 Eibsee, Bayern (© NejauPhoto/Getty Images)
 
 ![](20250624_ScenicEibsee_1920x1080.jpg)
