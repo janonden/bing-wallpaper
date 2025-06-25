@@ -1,4 +1,4 @@
-#### 20250625 格拉斯顿伯里托尔上的圣迈克尔塔, 格拉斯顿伯里, 萨默塞特郡, 英格兰 (© Gavin Hellier/Getty Images)
+#### 20250625 St. Michael's Church Tower on Glastonbury Tor, Glastonbury, Somerset, England (© Gavin Hellier/Getty Images)
 
 ![](images/2025-06/20250625_GlastonburyScenic_1920x1080.jpg)
 
