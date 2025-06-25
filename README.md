@@ -1,3 +1,7 @@
+#### 20250626 马头岩上空的银河, 新南威尔士州, 澳大利亚 (© Philip Thurston/Getty Images)
+
+![](images/2025-06/20250626_HorseheadRock_1920x1080.jpg)
+
 #### 20250625 St. Michael's Church Tower on Glastonbury Tor, Glastonbury, Somerset, England (© Gavin Hellier/Getty Images)
 
 ![](images/2025-06/20250625_GlastonburyScenic_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250619 ホタルが光る森, 岡山県 (© JGalione/Getty Images)
 
 ![](images/2025-06/20250619_FireflySeason_1920x1080.jpg)
-
-#### 20250618 Asian swallowtail butterfly on a red spider lily (© lzh/Getty Images)
-
-![](images/2025-06/20250618_AsianSwallowtail_1920x1080.jpg)
 
 
 

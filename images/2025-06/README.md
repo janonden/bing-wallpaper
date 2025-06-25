@@ -1,3 +1,7 @@
+#### 20250626 马头岩上空的银河, 新南威尔士州, 澳大利亚 (© Philip Thurston/Getty Images)
+
+![](20250626_HorseheadRock_1920x1080.jpg)
+
 #### 20250625 St. Michael's Church Tower on Glastonbury Tor, Glastonbury, Somerset, England (© Gavin Hellier/Getty Images)
 
 ![](20250625_GlastonburyScenic_1920x1080.jpg)
