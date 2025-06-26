@@ -1,3 +1,11 @@
+#### 20250627 Knuthöjdsmossen自然保护区, 海勒福什市, 瑞典 (© Sven Halling/DEEPOL/plainpicture)
+
+![](20250627_SwedenReserve_1920x1080.jpg)
+
+#### 20250627 魚を狙うシロカツオドリ, スコットランド (© Richard Shucksmith/Minden Pictures)
+
+![](20250627_ShetlandGannets_1920x1080.jpg)
+
 #### 20250626 The Milky Way over Horse Head Rock, New South Wales, Australia (© Philip Thurston/Getty Images)
 
 ![](20250626_HorseheadRock_1920x1080.jpg)

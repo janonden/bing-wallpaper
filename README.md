@@ -1,3 +1,11 @@
+#### 20250627 Knuthöjdsmossen自然保护区, 海勒福什市, 瑞典 (© Sven Halling/DEEPOL/plainpicture)
+
+![](images/2025-06/20250627_SwedenReserve_1920x1080.jpg)
+
+#### 20250627 魚を狙うシロカツオドリ, スコットランド (© Richard Shucksmith/Minden Pictures)
+
+![](images/2025-06/20250627_ShetlandGannets_1920x1080.jpg)
+
 #### 20250626 The Milky Way over Horse Head Rock, New South Wales, Australia (© Philip Thurston/Getty Images)
 
 ![](images/2025-06/20250626_HorseheadRock_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20250619 Texas State Capitol in Austin (© joe daniel price/Getty Images)
 
 ![](images/2025-06/20250619_TexasCapitol_1920x1080.jpg)
-
-#### 20250619 Vila Franca Islet, São Miguel Island, Azores, Portugal (© ARoxo/Getty Images)
-
-![](images/2025-06/20250619_SanMiguelAzores_1920x1080.jpg)
-
-#### 20250619 ホタルが光る森, 岡山県 (© JGalione/Getty Images)
-
-![](images/2025-06/20250619_FireflySeason_1920x1080.jpg)
 
 
 
