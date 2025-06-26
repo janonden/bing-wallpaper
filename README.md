@@ -1,4 +1,4 @@
-#### 20250626 马头岩上空的银河, 新南威尔士州, 澳大利亚 (© Philip Thurston/Getty Images)
+#### 20250626 The Milky Way over Horse Head Rock, New South Wales, Australia (© Philip Thurston/Getty Images)
 
 ![](images/2025-06/20250626_HorseheadRock_1920x1080.jpg)
 
