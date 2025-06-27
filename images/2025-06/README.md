@@ -1,3 +1,11 @@
+#### 20250628 曼海姆水塔, 德国 (© no limit pictures/Getty Images)
+
+![](20250628_WatertowerMannheim_1920x1080.jpg)
+
+#### 20250628 風になびくプライドフラッグ, 米国 ニューヨーク州 (© Alan Schein/Getty Images)
+
+![](20250628_PrideParade_1920x1080.jpg)
+
 #### 20250627 Knuthöjdsmossen自然保护区, 海勒福什市, 瑞典 (© Sven Halling/DEEPOL/plainpicture)
 
 ![](20250627_SwedenReserve_1920x1080.jpg)

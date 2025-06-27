@@ -1,3 +1,11 @@
+#### 20250628 曼海姆水塔, 德国 (© no limit pictures/Getty Images)
+
+![](images/2025-06/20250628_WatertowerMannheim_1920x1080.jpg)
+
+#### 20250628 風になびくプライドフラッグ, 米国 ニューヨーク州 (© Alan Schein/Getty Images)
+
+![](images/2025-06/20250628_PrideParade_1920x1080.jpg)
+
 #### 20250627 Knuthöjdsmossen自然保护区, 海勒福什市, 瑞典 (© Sven Halling/DEEPOL/plainpicture)
 
 ![](images/2025-06/20250627_SwedenReserve_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20250620 Masai giraffe mother grooming her calf in the Serengeti, Tanzania (© Alberto Cassani/Getty Images)
 
 ![](images/2025-06/20250620_SerengetiGiraffe_1920x1080.jpg)
-
-#### 20250620 Seljalandsfoss waterfall at sunset, Iceland (© Tom Mackie/AWL/plainpicture)
-
-![](images/2025-06/20250620_IcelandSolstice_1920x1080.jpg)
-
-#### 20250619 圣卡塔琳娜州的海滩, 巴西 (© CaioCarvalhoPhotography/Getty Images)
-
-![](images/2025-06/20250619_WinterBegins_1920x1080.jpg)
 
 
 
