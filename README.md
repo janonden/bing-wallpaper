@@ -2,6 +2,10 @@
 
 ![](images/2025-06/20250627_SwedenReserve_1920x1080.jpg)
 
+#### 20250627 Prachtgreiffrosch (© Jan Stria/Shutterstock)
+
+![](images/2025-06/20250627_SplendidFrog_1920x1080.jpg)
+
 #### 20250627 魚を狙うシロカツオドリ, スコットランド (© Richard Shucksmith/Minden Pictures)
 
 ![](images/2025-06/20250627_ShetlandGannets_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250619 圣卡塔琳娜州的海滩, 巴西 (© CaioCarvalhoPhotography/Getty Images)
 
 ![](images/2025-06/20250619_WinterBegins_1920x1080.jpg)
-
-#### 20250619 Texas State Capitol in Austin (© joe daniel price/Getty Images)
-
-![](images/2025-06/20250619_TexasCapitol_1920x1080.jpg)
 
 
 

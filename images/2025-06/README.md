@@ -2,6 +2,10 @@
 
 ![](20250627_SwedenReserve_1920x1080.jpg)
 
+#### 20250627 Prachtgreiffrosch (© Jan Stria/Shutterstock)
+
+![](20250627_SplendidFrog_1920x1080.jpg)
+
 #### 20250627 魚を狙うシロカツオドリ, スコットランド (© Richard Shucksmith/Minden Pictures)
 
 ![](20250627_ShetlandGannets_1920x1080.jpg)
