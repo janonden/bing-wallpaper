@@ -2,7 +2,7 @@
 
 ![](20250627_SwedenReserve_1920x1080.jpg)
 
-#### 20250627 Prachtgreiffrosch (© Jan Stria/Shutterstock)
+#### 20250627 Splendid leaf frog (© Jan Stria/Shutterstock)
 
 ![](20250627_SplendidFrog_1920x1080.jpg)
 
