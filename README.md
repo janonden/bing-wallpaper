@@ -1,3 +1,7 @@
+#### 20250629 Pulau Ay蓝色泻湖, 班达群岛, 印度尼西亚 (© fabio lamanna/Alamy Stock Photo)
+
+![](images/2025-06/20250629_BandaIsland_1920x1080.jpg)
+
 #### 20250628 曼海姆水塔, 德国 (© no limit pictures/Getty Images)
 
 ![](images/2025-06/20250628_WatertowerMannheim_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250621 雾中莲花，中国佛山 (© huoguangliang/Getty Images)
 
 ![](images/2025-06/20250621_SummerSolsticeY_1920x1080.jpg)
-
-#### 20250621 Littoral de la Côte d’Azur à Antibes (© StockByM/Getty Images)
-
-![](images/2025-06/20250621_AntibesMusic_1920x1080.jpg)
 
 
 

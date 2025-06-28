@@ -1,3 +1,7 @@
+#### 20250629 Pulau Ay蓝色泻湖, 班达群岛, 印度尼西亚 (© fabio lamanna/Alamy Stock Photo)
+
+![](20250629_BandaIsland_1920x1080.jpg)
+
 #### 20250628 曼海姆水塔, 德国 (© no limit pictures/Getty Images)
 
 ![](20250628_WatertowerMannheim_1920x1080.jpg)
