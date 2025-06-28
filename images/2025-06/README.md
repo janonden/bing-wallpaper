@@ -2,7 +2,7 @@
 
 ![](20250628_WatertowerMannheim_1920x1080.jpg)
 
-#### 20250628 風になびくプライドフラッグ, 米国 ニューヨーク州 (© Alan Schein/Getty Images)
+#### 20250628 Rainbow flags at New York Pride (© Alan Schein/Getty Images)
 
 ![](20250628_PrideParade_1920x1080.jpg)
 
