@@ -6,6 +6,10 @@
 
 ![](20250628_PrideParade_1920x1080.jpg)
 
+#### 20250628 Neues Rathaus am Marienplatz, München (© Sven Hoppe/picture alliance/Getty Images)
+
+![](20250628_MarienplatzCSD_1920x1080.jpg)
+
 #### 20250627 Knuthöjdsmossen自然保护区, 海勒福什市, 瑞典 (© Sven Halling/DEEPOL/plainpicture)
 
 ![](20250627_SwedenReserve_1920x1080.jpg)

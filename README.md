@@ -6,6 +6,10 @@
 
 ![](images/2025-06/20250628_PrideParade_1920x1080.jpg)
 
+#### 20250628 Neues Rathaus am Marienplatz, München (© Sven Hoppe/picture alliance/Getty Images)
+
+![](images/2025-06/20250628_MarienplatzCSD_1920x1080.jpg)
+
 #### 20250627 Knuthöjdsmossen自然保护区, 海勒福什市, 瑞典 (© Sven Halling/DEEPOL/plainpicture)
 
 ![](images/2025-06/20250627_SwedenReserve_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250621 Littoral de la Côte d’Azur à Antibes (© StockByM/Getty Images)
 
 ![](images/2025-06/20250621_AntibesMusic_1920x1080.jpg)
-
-#### 20250620 Masai giraffe mother grooming her calf in the Serengeti, Tanzania (© Alberto Cassani/Getty Images)
-
-![](images/2025-06/20250620_SerengetiGiraffe_1920x1080.jpg)
 
 
 
