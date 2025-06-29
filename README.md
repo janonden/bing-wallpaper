@@ -1,3 +1,7 @@
+#### 20250630 沃尔夫溪陨石坑, 澳大利亚 (© Abstract Aerial Art/Getty Images)
+
+![](images/2025-06/20250630_WolfeCrater_1920x1080.jpg)
+
 #### 20250629 Blue lagoon at Pulau Ay, Banda Islands, Indonesia (© fabio lamanna/Alamy)
 
 ![](images/2025-06/20250629_BandaIsland_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250622 Amazon rainforest, Ecuador (© Mark Fox/Getty Images)
 
 ![](images/2025-06/20250622_AmazonEcuador_1920x1080.jpg)
-
-#### 20250621 雾中莲花，中国佛山 (© huoguangliang/Getty Images)
-
-![](images/2025-06/20250621_SummerSolsticeY_1920x1080.jpg)
 
 
 

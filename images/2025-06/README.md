@@ -1,3 +1,7 @@
+#### 20250630 沃尔夫溪陨石坑, 澳大利亚 (© Abstract Aerial Art/Getty Images)
+
+![](20250630_WolfeCrater_1920x1080.jpg)
+
 #### 20250629 Blue lagoon at Pulau Ay, Banda Islands, Indonesia (© fabio lamanna/Alamy)
 
 ![](20250629_BandaIsland_1920x1080.jpg)
