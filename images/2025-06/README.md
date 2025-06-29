@@ -1,4 +1,4 @@
-#### 20250629 Pulau Ay蓝色泻湖, 班达群岛, 印度尼西亚 (© fabio lamanna/Alamy Stock Photo)
+#### 20250629 Blue lagoon at Pulau Ay, Banda Islands, Indonesia (© fabio lamanna/Alamy)
 
 ![](20250629_BandaIsland_1920x1080.jpg)
 
