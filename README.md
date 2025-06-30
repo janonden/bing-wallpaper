@@ -1,4 +1,4 @@
-#### 20250630 沃尔夫溪陨石坑, 澳大利亚 (© Abstract Aerial Art/Getty Images)
+#### 20250630 Wolfe Creek Crater, Australia (© Abstract Aerial Art/Getty Images)
 
 ![](images/2025-06/20250630_WolfeCrater_1920x1080.jpg)
 
