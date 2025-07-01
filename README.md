@@ -1,3 +1,7 @@
+#### 20250701 Parliament Hill in Ottawa, Ontario (© f11photo/Shutterstock)
+
+![](images/2025-07/20250701_Canada_1920x1080.jpg)
+
 #### 20250701 Tilting渔村, 福戈岛 , 纽芬兰和拉布拉多省, 加拿大 (© FedevPhoto/Getty Images)
 
 ![](images/2025-07/20250701_CanadaDayFogo_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250624 Delicate Arch, Arches National Park, Utah (© mmac72/Getty Images)
 
 ![](images/2025-06/20250624_DelicateArch_1920x1080.jpg)
-
-#### 20250624 Viaduc de Cize-Bolozon enjambant la rivière d’Ain, Auvergne-Rhône-Alpes (© Leonid Andronov/Getty Images)
-
-![](images/2025-06/20250624_BolozonViaduct_1920x1080.jpg)
 
 
 
