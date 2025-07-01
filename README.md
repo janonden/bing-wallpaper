@@ -1,3 +1,7 @@
+#### 20250702 被泡尖海葵包围的刺颊海葵鱼，米尔恩湾，巴布亚新几内亚 (© Fred Bavendam/Nature Picture Library)
+
+![](images/2025-07/20250702_MaroonClownfish_1920x1080.jpg)
+
 #### 20250701 Parliament Hill in Ottawa, Ontario (© f11photo/Shutterstock)
 
 ![](images/2025-07/20250701_Canada_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250624 Eibsee, Bayern (© NejauPhoto/Getty Images)
 
 ![](images/2025-06/20250624_ScenicEibsee_1920x1080.jpg)
-
-#### 20250624 Delicate Arch, Arches National Park, Utah (© mmac72/Getty Images)
-
-![](images/2025-06/20250624_DelicateArch_1920x1080.jpg)
 
 
 
