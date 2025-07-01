@@ -2,6 +2,10 @@
 
 ![](images/2025-07/20250701_CanadaDayFogo_1920x1080.jpg)
 
+#### 20250701 Papillon et abeille butinant délicatement une fleur aster (© Viviane Caballero/500px Viviane Caballero/500px/Getty Images)
+
+![](images/2025-07/20250701_ButterflyPurpleFlower_1920x1080.jpg)
+
 #### 20250630 Wolfe Creek Crater, Australia (© Abstract Aerial Art/Getty Images)
 
 ![](images/2025-06/20250630_WolfeCrater_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250624 Viaduc de Cize-Bolozon enjambant la rivière d’Ain, Auvergne-Rhône-Alpes (© Leonid Andronov/Getty Images)
 
 ![](images/2025-06/20250624_BolozonViaduct_1920x1080.jpg)
-
-#### 20250623 The Elbe in Dresden, Germany (© Sean Pavone/Getty Images)
-
-![](images/2025-06/20250623_DresdenElbe_1920x1080.jpg)
 
 
 
