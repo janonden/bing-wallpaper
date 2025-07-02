@@ -1,4 +1,4 @@
-#### 20250702 被泡尖海葵包围的刺颊海葵鱼，米尔恩湾，巴布亚新几内亚 (© Fred Bavendam/Nature Picture Library)
+#### 20250702 Spine-cheeked anemonefish surrounded by bubble-tip anemone, Milne Bay, Papua New Guinea (© Fred Bavendam/Nature Picture Library)
 
 ![](20250702_MaroonClownfish_1920x1080.jpg)
 
