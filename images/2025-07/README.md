@@ -2,6 +2,10 @@
 
 ![](20250702_MaroonClownfish_1920x1080.jpg)
 
+#### 20250702 Historische Fachwerkhäuser am Marktplatz, Calw, Baden-Württemberg (© imageBROKER/Getty Images)
+
+![](20250702_CalwMarketsquare_1920x1080.jpg)
+
 #### 20250701 Parliament Hill in Ottawa, Ontario (© f11photo/Shutterstock)
 
 ![](20250701_Canada_1920x1080.jpg)
