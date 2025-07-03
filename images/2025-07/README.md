@@ -1,4 +1,4 @@
-#### 20250703 彩虹泉州立公园的彩虹河，佛罗里达州，美国 (© Michel Roggo/Minden Pictures)
+#### 20250703 Rainbow River in Rainbow Springs State Park, Florida (© Michel Roggo/Minden Pictures)
 
 ![](20250703_RainbowRiver_1920x1080.jpg)
 
