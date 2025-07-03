@@ -1,3 +1,11 @@
+#### 20250704 ドロミーティ, イタリア (© Kalyakan/Adobe Stock)
+
+![](images/2025-07/20250704_SecedaPeak_1920x1080.jpg)
+
+#### 20250704 奥罗塞，撒丁岛，意大利 (© EyeEm Mobile GmbH/Getty Images)
+
+![](images/2025-07/20250704_OroseiSardegna_1920x1080.jpg)
+
 #### 20250703 Rainbow River in Rainbow Springs State Park, Florida (© Michel Roggo/Minden Pictures)
 
 ![](images/2025-07/20250703_RainbowRiver_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20250627 Splendid leaf frog (© Jan Stria/Shutterstock)
 
 ![](images/2025-06/20250627_SplendidFrog_1920x1080.jpg)
-
-#### 20250627 魚を狙うシロカツオドリ, スコットランド (© Richard Shucksmith/Minden Pictures)
-
-![](images/2025-06/20250627_ShetlandGannets_1920x1080.jpg)
-
-#### 20250626 The Milky Way over Horse Head Rock, New South Wales, Australia (© Philip Thurston/Getty Images)
-
-![](images/2025-06/20250626_HorseheadRock_1920x1080.jpg)
 
 
 
