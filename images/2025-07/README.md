@@ -1,3 +1,11 @@
+#### 20250705 ツールマレー峠を越えるサイクリストたち, フランス (© THOMAS SAMSON/AFP via Getty Images)
+
+![](20250705_TourCyclists_1920x1080.jpg)
+
+#### 20250705 Cize-Bolozon viaduct crossing the Ain gorge, France (© Leonid Andronov/Getty Images)
+
+![](20250705_BolozonViaduct_1920x1080.jpg)
+
 #### 20250704 ドロミーティ, イタリア (© Kalyakan/Adobe Stock)
 
 ![](20250704_SecedaPeak_1920x1080.jpg)

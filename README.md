@@ -1,3 +1,11 @@
+#### 20250705 ツールマレー峠を越えるサイクリストたち, フランス (© THOMAS SAMSON/AFP via Getty Images)
+
+![](images/2025-07/20250705_TourCyclists_1920x1080.jpg)
+
+#### 20250705 Cize-Bolozon viaduct crossing the Ain gorge, France (© Leonid Andronov/Getty Images)
+
+![](images/2025-07/20250705_BolozonViaduct_1920x1080.jpg)
+
 #### 20250704 ドロミーティ, イタリア (© Kalyakan/Adobe Stock)
 
 ![](images/2025-07/20250704_SecedaPeak_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20250628 曼海姆水塔, 德国 (© no limit pictures/Getty Images)
 
 ![](images/2025-06/20250628_WatertowerMannheim_1920x1080.jpg)
-
-#### 20250628 Rainbow flags at New York Pride (© Alan Schein/Getty Images)
-
-![](images/2025-06/20250628_PrideParade_1920x1080.jpg)
-
-#### 20250628 Neues Rathaus am Marienplatz, München (© Sven Hoppe/picture alliance/Getty Images)
-
-![](images/2025-06/20250628_MarienplatzCSD_1920x1080.jpg)
 
 
 
