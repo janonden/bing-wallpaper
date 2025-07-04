@@ -2,6 +2,10 @@
 
 ![](20250704_SecedaPeak_1920x1080.jpg)
 
+#### 20250704 Fourth of July fireworks over Lake Union in Seattle (© Dixin Yan)
+
+![](20250704_SeattleFireworks_1920x1080.jpg)
+
 #### 20250704 奥罗塞，撒丁岛，意大利 (© EyeEm Mobile GmbH/Getty Images)
 
 ![](20250704_OroseiSardegna_1920x1080.jpg)

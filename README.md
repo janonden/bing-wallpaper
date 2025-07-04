@@ -2,6 +2,10 @@
 
 ![](images/2025-07/20250704_SecedaPeak_1920x1080.jpg)
 
+#### 20250704 Fourth of July fireworks over Lake Union in Seattle (© Dixin Yan)
+
+![](images/2025-07/20250704_SeattleFireworks_1920x1080.jpg)
+
 #### 20250704 奥罗塞，撒丁岛，意大利 (© EyeEm Mobile GmbH/Getty Images)
 
 ![](images/2025-07/20250704_OroseiSardegna_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250628 Neues Rathaus am Marienplatz, München (© Sven Hoppe/picture alliance/Getty Images)
 
 ![](images/2025-06/20250628_MarienplatzCSD_1920x1080.jpg)
-
-#### 20250627 Knuthöjdsmossen自然保护区, 海勒福什市, 瑞典 (© Sven Halling/DEEPOL/plainpicture)
-
-![](images/2025-06/20250627_SwedenReserve_1920x1080.jpg)
 
 
 
