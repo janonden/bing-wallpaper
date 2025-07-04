@@ -6,6 +6,10 @@
 
 ![](images/2025-07/20250704_OroseiSardegna_1920x1080.jpg)
 
+#### 20250704 Skipper butterfly on an Echinacea flower, Rockefeller State Park, New York (© Marianne A. Campolongo/Alamy)
+
+![](images/2025-07/20250704_EchinaceaButterfly_1920x1080.jpg)
+
 #### 20250703 Rainbow River in Rainbow Springs State Park, Florida (© Michel Roggo/Minden Pictures)
 
 ![](images/2025-07/20250703_RainbowRiver_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250627 Knuthöjdsmossen自然保护区, 海勒福什市, 瑞典 (© Sven Halling/DEEPOL/plainpicture)
 
 ![](images/2025-06/20250627_SwedenReserve_1920x1080.jpg)
-
-#### 20250627 Splendid leaf frog (© Jan Stria/Shutterstock)
-
-![](images/2025-06/20250627_SplendidFrog_1920x1080.jpg)
 
 
 

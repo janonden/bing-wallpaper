@@ -6,6 +6,10 @@
 
 ![](20250704_OroseiSardegna_1920x1080.jpg)
 
+#### 20250704 Skipper butterfly on an Echinacea flower, Rockefeller State Park, New York (© Marianne A. Campolongo/Alamy)
+
+![](20250704_EchinaceaButterfly_1920x1080.jpg)
+
 #### 20250703 Rainbow River in Rainbow Springs State Park, Florida (© Michel Roggo/Minden Pictures)
 
 ![](20250703_RainbowRiver_1920x1080.jpg)
