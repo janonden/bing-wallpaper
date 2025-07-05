@@ -1,3 +1,7 @@
+#### 20250706 死亡谷国家公园的梅斯基特平原沙丘，加利福尼亚州，美国 (© Bryan Jolley/TANDEM Stills + Motion)
+
+![](20250706_MesquiteFlats_1920x1080.jpg)
+
 #### 20250705 Descending the Col du Tourmalet in the French Pyrenees during the 2021 Tour de France (© THOMAS SAMSON/AFP via Getty Images)
 
 ![](20250705_TourCyclists_1920x1080.jpg)

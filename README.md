@@ -1,3 +1,7 @@
+#### 20250706 死亡谷国家公园的梅斯基特平原沙丘，加利福尼亚州，美国 (© Bryan Jolley/TANDEM Stills + Motion)
+
+![](images/2025-07/20250706_MesquiteFlats_1920x1080.jpg)
+
 #### 20250705 Descending the Col du Tourmalet in the French Pyrenees during the 2021 Tour de France (© THOMAS SAMSON/AFP via Getty Images)
 
 ![](images/2025-07/20250705_TourCyclists_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250629 Blue lagoon at Pulau Ay, Banda Islands, Indonesia (© fabio lamanna/Alamy)
 
 ![](images/2025-06/20250629_BandaIsland_1920x1080.jpg)
-
-#### 20250628 曼海姆水塔, 德国 (© no limit pictures/Getty Images)
-
-![](images/2025-06/20250628_WatertowerMannheim_1920x1080.jpg)
 
 
 
