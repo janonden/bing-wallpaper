@@ -1,4 +1,4 @@
-#### 20250705 ツールマレー峠を越えるサイクリストたち, フランス (© THOMAS SAMSON/AFP via Getty Images)
+#### 20250705 Descending the Col du Tourmalet in the French Pyrenees during the 2021 Tour de France (© THOMAS SAMSON/AFP via Getty Images)
 
 ![](images/2025-07/20250705_TourCyclists_1920x1080.jpg)
 
