@@ -1,4 +1,4 @@
-#### 20250706 死亡谷国家公园的梅斯基特平原沙丘，加利福尼亚州，美国 (© Bryan Jolley/TANDEM Stills + Motion)
+#### 20250706 Mesquite Flat Sand Dunes in Death Valley National Park, California (© Bryan Jolley/TANDEM Stills + Motion)
 
 ![](images/2025-07/20250706_MesquiteFlats_1920x1080.jpg)
 
