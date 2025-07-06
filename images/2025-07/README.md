@@ -1,3 +1,11 @@
+#### 20250707 鴨川河川敷に灯る風鈴灯, 京都市 (© Kaoru Hayashi/Getty Images)
+
+![](20250707_Tanabata_1920x1080.jpg)
+
+#### 20250707 潜水捕鱼的北方鲣鸟，设得兰群岛，苏格兰 (© Richard Shucksmith/Minden Pictures)
+
+![](20250707_ShetlandGannets_1920x1080.jpg)
+
 #### 20250706 Mesquite Flat Sand Dunes in Death Valley National Park, California (© Bryan Jolley/TANDEM Stills + Motion)
 
 ![](20250706_MesquiteFlats_1920x1080.jpg)

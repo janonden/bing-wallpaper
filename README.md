@@ -1,3 +1,11 @@
+#### 20250707 鴨川河川敷に灯る風鈴灯, 京都市 (© Kaoru Hayashi/Getty Images)
+
+![](images/2025-07/20250707_Tanabata_1920x1080.jpg)
+
+#### 20250707 潜水捕鱼的北方鲣鸟，设得兰群岛，苏格兰 (© Richard Shucksmith/Minden Pictures)
+
+![](images/2025-07/20250707_ShetlandGannets_1920x1080.jpg)
+
 #### 20250706 Mesquite Flat Sand Dunes in Death Valley National Park, California (© Bryan Jolley/TANDEM Stills + Motion)
 
 ![](images/2025-07/20250706_MesquiteFlats_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20250701 Papillon et abeille butinant délicatement une fleur aster (© Viviane Caballero/500px Viviane Caballero/500px/Getty Images)
 
 ![](images/2025-07/20250701_ButterflyPurpleFlower_1920x1080.jpg)
-
-#### 20250630 Wolfe Creek Crater, Australia (© Abstract Aerial Art/Getty Images)
-
-![](images/2025-06/20250630_WolfeCrater_1920x1080.jpg)
-
-#### 20250629 Blue lagoon at Pulau Ay, Banda Islands, Indonesia (© fabio lamanna/Alamy)
-
-![](images/2025-06/20250629_BandaIsland_1920x1080.jpg)
 
 
 
