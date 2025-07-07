@@ -2,7 +2,7 @@
 
 ![](images/2025-07/20250707_Tanabata_1920x1080.jpg)
 
-#### 20250707 潜水捕鱼的北方鲣鸟，设得兰群岛，苏格兰 (© Richard Shucksmith/Minden Pictures)
+#### 20250707 Northern gannets diving for fish, Shetland Islands, Scotland (© Richard Shucksmith/Minden Pictures)
 
 ![](images/2025-07/20250707_ShetlandGannets_1920x1080.jpg)
 
