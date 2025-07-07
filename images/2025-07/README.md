@@ -1,3 +1,7 @@
+#### 20250708 パッチワークの路, 北海道 美瑛町 (© DoctorEgg/Getty Images)
+
+![](20250708_WheatFields_1920x1080.jpg)
+
 #### 20250707 鴨川河川敷に灯る風鈴灯, 京都市 (© Kaoru Hayashi/Getty Images)
 
 ![](20250707_Tanabata_1920x1080.jpg)
