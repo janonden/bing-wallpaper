@@ -26,7 +26,7 @@
 
 ![](20250705_BolozonViaduct_1920x1080.jpg)
 
-#### 20250704 ドロミーティ, イタリア (© Kalyakan/Adobe Stock)
+#### 20250704 Seceda, a peak in the Dolomites, South Tyrol, Italy (© Kalyakan/Adobe Stock)
 
 ![](20250704_SecedaPeak_1920x1080.jpg)
 
