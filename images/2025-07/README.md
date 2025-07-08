@@ -2,6 +2,10 @@
 
 ![](20250708_WheatFields_1920x1080.jpg)
 
+#### 20250708 Vue aérienne de la Baie d'Authie, Somme, Haut-de-France (© Tuul & Bruno Morandi/Getty Images)
+
+![](20250708_BaieSomme_1920x1080.jpg)
+
 #### 20250707 鴨川河川敷に灯る風鈴灯, 京都市 (© Kaoru Hayashi/Getty Images)
 
 ![](20250707_Tanabata_1920x1080.jpg)
