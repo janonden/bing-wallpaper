@@ -1,3 +1,7 @@
+#### 20250709 宪法火车站，布宜诺斯艾利斯，阿根廷 (© Grafissimo/Getty Images)
+
+![](20250709_ConstitucionStation_1920x1080.jpg)
+
 #### 20250708 パッチワークの路, 北海道 美瑛町 (© DoctorEgg/Getty Images)
 
 ![](20250708_WheatFields_1920x1080.jpg)
