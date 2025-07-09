@@ -1,3 +1,7 @@
+#### 20250710 巴哈马的绿松石色水域 (© BlueOrange Studio/Adobe Stock)
+
+![](20250710_BahamaBlues_1920x1080.jpg)
+
 #### 20250709 Constitución railway station, Buenos Aires, Argentina (© Grafissimo/Getty Images)
 
 ![](20250709_ConstitucionStation_1920x1080.jpg)

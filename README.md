@@ -1,3 +1,7 @@
+#### 20250710 巴哈马的绿松石色水域 (© BlueOrange Studio/Adobe Stock)
+
+![](images/2025-07/20250710_BahamaBlues_1920x1080.jpg)
+
 #### 20250709 Constitución railway station, Buenos Aires, Argentina (© Grafissimo/Getty Images)
 
 ![](images/2025-07/20250709_ConstitucionStation_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250702 Spine-cheeked anemonefish surrounded by bubble-tip anemone, Milne Bay, Papua New Guinea (© Fred Bavendam/Nature Picture Library)
 
 ![](images/2025-07/20250702_MaroonClownfish_1920x1080.jpg)
-
-#### 20250702 Historische Fachwerkhäuser am Marktplatz, Calw, Baden-Württemberg (© imageBROKER/Getty Images)
-
-![](images/2025-07/20250702_CalwMarketsquare_1920x1080.jpg)
 
 
 
