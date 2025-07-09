@@ -1,4 +1,4 @@
-#### 20250709 宪法火车站，布宜诺斯艾利斯，阿根廷 (© Grafissimo/Getty Images)
+#### 20250709 Constitución railway station, Buenos Aires, Argentina (© Grafissimo/Getty Images)
 
 ![](20250709_ConstitucionStation_1920x1080.jpg)
 
