@@ -1,4 +1,4 @@
-#### 20250710 巴哈马的绿松石色水域 (© BlueOrange Studio/Adobe Stock)
+#### 20250710 Turquoise waters of the Bahamas (© BlueOrange Studio/Adobe Stock)
 
 ![](images/2025-07/20250710_BahamaBlues_1920x1080.jpg)
 
