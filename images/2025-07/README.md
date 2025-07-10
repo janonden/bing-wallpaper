@@ -1,3 +1,7 @@
+#### 20250711 日出时的东京，日本 (© pongnathee kluaythong/Getty Images)
+
+![](20250711_TokyoSunrise_1920x1080.jpg)
+
 #### 20250710 Turquoise waters of the Bahamas (© BlueOrange Studio/Adobe Stock)
 
 ![](20250710_BahamaBlues_1920x1080.jpg)

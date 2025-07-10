@@ -1,3 +1,7 @@
+#### 20250711 日出时的东京，日本 (© pongnathee kluaythong/Getty Images)
+
+![](images/2025-07/20250711_TokyoSunrise_1920x1080.jpg)
+
 #### 20250710 Turquoise waters of the Bahamas (© BlueOrange Studio/Adobe Stock)
 
 ![](images/2025-07/20250710_BahamaBlues_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250703 Rainbow River in Rainbow Springs State Park, Florida (© Michel Roggo/Minden Pictures)
 
 ![](images/2025-07/20250703_RainbowRiver_1920x1080.jpg)
-
-#### 20250702 Spine-cheeked anemonefish surrounded by bubble-tip anemone, Milne Bay, Papua New Guinea (© Fred Bavendam/Nature Picture Library)
-
-![](images/2025-07/20250702_MaroonClownfish_1920x1080.jpg)
 
 
 
