@@ -1,4 +1,4 @@
-#### 20250711 日出时的东京，日本 (© pongnathee kluaythong/Getty Images)
+#### 20250711 Tokyo at sunrise (© pongnathee kluaythong/Getty Images)
 
 ![](20250711_TokyoSunrise_1920x1080.jpg)
 
