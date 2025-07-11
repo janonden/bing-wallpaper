@@ -1,3 +1,7 @@
+#### 20250712 汤氏瞪羚母亲和小鹿，马赛马拉，肯尼亚 (© Gallo Images/DanitaDelimont.com)
+
+![](images/2025-07/20250712_ThomsonGazelle_1920x1080.jpg)
+
 #### 20250711 Tokyo at sunrise (© pongnathee kluaythong/Getty Images)
 
 ![](images/2025-07/20250711_TokyoSunrise_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250704 Skipper butterfly on an Echinacea flower, Rockefeller State Park, New York (© Marianne A. Campolongo/Alamy)
 
 ![](images/2025-07/20250704_EchinaceaButterfly_1920x1080.jpg)
-
-#### 20250703 Rainbow River in Rainbow Springs State Park, Florida (© Michel Roggo/Minden Pictures)
-
-![](images/2025-07/20250703_RainbowRiver_1920x1080.jpg)
 
 
 

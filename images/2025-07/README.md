@@ -1,3 +1,7 @@
+#### 20250712 汤氏瞪羚母亲和小鹿，马赛马拉，肯尼亚 (© Gallo Images/DanitaDelimont.com)
+
+![](20250712_ThomsonGazelle_1920x1080.jpg)
+
 #### 20250711 Tokyo at sunrise (© pongnathee kluaythong/Getty Images)
 
 ![](20250711_TokyoSunrise_1920x1080.jpg)
