@@ -1,3 +1,7 @@
+#### 20250713 卡尔夫沙马尔斯维克湾玄武岩柱，斯卡吉半岛，冰岛 (© Arterra Picture Library/Alamy Stock Photo)
+
+![](20250713_BasaltColumns_1920x1080.jpg)
+
 #### 20250712 Thomson's gazelle mother and fawn, Maasai Mara, Kenya (© Gallo Images/DanitaDelimont.com)
 
 ![](20250712_ThomsonGazelle_1920x1080.jpg)

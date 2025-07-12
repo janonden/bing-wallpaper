@@ -1,3 +1,7 @@
+#### 20250713 卡尔夫沙马尔斯维克湾玄武岩柱，斯卡吉半岛，冰岛 (© Arterra Picture Library/Alamy Stock Photo)
+
+![](images/2025-07/20250713_BasaltColumns_1920x1080.jpg)
+
 #### 20250712 Thomson's gazelle mother and fawn, Maasai Mara, Kenya (© Gallo Images/DanitaDelimont.com)
 
 ![](images/2025-07/20250712_ThomsonGazelle_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250704 奥罗塞，撒丁岛，意大利 (© EyeEm Mobile GmbH/Getty Images)
 
 ![](images/2025-07/20250704_OroseiSardegna_1920x1080.jpg)
-
-#### 20250704 Skipper butterfly on an Echinacea flower, Rockefeller State Park, New York (© Marianne A. Campolongo/Alamy)
-
-![](images/2025-07/20250704_EchinaceaButterfly_1920x1080.jpg)
 
 
 
