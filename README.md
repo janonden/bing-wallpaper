@@ -1,4 +1,4 @@
-#### 20250712 汤氏瞪羚母亲和小鹿，马赛马拉，肯尼亚 (© Gallo Images/DanitaDelimont.com)
+#### 20250712 Thomson's gazelle mother and fawn, Maasai Mara, Kenya (© Gallo Images/DanitaDelimont.com)
 
 ![](images/2025-07/20250712_ThomsonGazelle_1920x1080.jpg)
 
