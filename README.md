@@ -1,3 +1,7 @@
+#### 20250714 加利西亚海域游弋的幼年大青鲨，西班牙 (© Damocean/Getty Images)
+
+![](images/2025-07/20250714_YoungShark_1920x1080.jpg)
+
 #### 20250713 Basalt columns at Kálfshamarsvík, Skagi Peninsula, Iceland (© Arterra Picture Library/Alamy)
 
 ![](images/2025-07/20250713_BasaltColumns_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250704 Fourth of July fireworks over Lake Union in Seattle (© Dixin Yan)
 
 ![](images/2025-07/20250704_SeattleFireworks_1920x1080.jpg)
-
-#### 20250704 奥罗塞，撒丁岛，意大利 (© EyeEm Mobile GmbH/Getty Images)
-
-![](images/2025-07/20250704_OroseiSardegna_1920x1080.jpg)
 
 
 

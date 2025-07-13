@@ -1,3 +1,7 @@
+#### 20250714 加利西亚海域游弋的幼年大青鲨，西班牙 (© Damocean/Getty Images)
+
+![](20250714_YoungShark_1920x1080.jpg)
+
 #### 20250713 Basalt columns at Kálfshamarsvík, Skagi Peninsula, Iceland (© Arterra Picture Library/Alamy)
 
 ![](20250713_BasaltColumns_1920x1080.jpg)
