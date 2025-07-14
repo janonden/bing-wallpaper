@@ -2,6 +2,10 @@
 
 ![](20250714_YoungShark_1920x1080.jpg)
 
+#### 20250714 Feu d'artifice du 14 juillet au-dessus de la citadelle de Sisteron au crépuscule, Provence (© francois-roux/Getty Images)
+
+![](20250714_BastilleDayCelebration_1920x1080.jpg)
+
 #### 20250713 Basalt columns at Kálfshamarsvík, Skagi Peninsula, Iceland (© Arterra Picture Library/Alamy)
 
 ![](20250713_BasaltColumns_1920x1080.jpg)

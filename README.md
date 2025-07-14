@@ -2,6 +2,10 @@
 
 ![](images/2025-07/20250714_YoungShark_1920x1080.jpg)
 
+#### 20250714 Feu d'artifice du 14 juillet au-dessus de la citadelle de Sisteron au crépuscule, Provence (© francois-roux/Getty Images)
+
+![](images/2025-07/20250714_BastilleDayCelebration_1920x1080.jpg)
+
 #### 20250713 Basalt columns at Kálfshamarsvík, Skagi Peninsula, Iceland (© Arterra Picture Library/Alamy)
 
 ![](images/2025-07/20250713_BasaltColumns_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250704 Seceda, a peak in the Dolomites, South Tyrol, Italy (© Kalyakan/Adobe Stock)
 
 ![](images/2025-07/20250704_SecedaPeak_1920x1080.jpg)
-
-#### 20250704 Fourth of July fireworks over Lake Union in Seattle (© Dixin Yan)
-
-![](images/2025-07/20250704_SeattleFireworks_1920x1080.jpg)
 
 
 
