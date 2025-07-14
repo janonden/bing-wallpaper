@@ -1,4 +1,4 @@
-#### 20250714 加利西亚海域游弋的幼年大青鲨，西班牙 (© Damocean/Getty Images)
+#### 20250714 Young blue shark swimming off the coast of Galicia, Spain (© Damocean/Getty Images)
 
 ![](20250714_YoungShark_1920x1080.jpg)
 
