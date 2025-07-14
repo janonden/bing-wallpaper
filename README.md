@@ -1,3 +1,7 @@
+#### 20250715 英仙座流星雨和一棵古老刺果松，大盆地国家公园，内华达州，美国 (© Wirestock Creators/Shutterstock)
+
+![](images/2025-07/20250715_PerseidsPine_1920x1080.jpg)
+
 #### 20250714 Young blue shark swimming off the coast of Galicia, Spain (© Damocean/Getty Images)
 
 ![](images/2025-07/20250714_YoungShark_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250705 Cize-Bolozon viaduct crossing the Ain gorge, France (© Leonid Andronov/Getty Images)
 
 ![](images/2025-07/20250705_BolozonViaduct_1920x1080.jpg)
-
-#### 20250704 Seceda, a peak in the Dolomites, South Tyrol, Italy (© Kalyakan/Adobe Stock)
-
-![](images/2025-07/20250704_SecedaPeak_1920x1080.jpg)
 
 
 
