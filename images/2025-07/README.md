@@ -1,3 +1,7 @@
+#### 20250716 菲莱神庙 (aka Temple of Isis), 阿斯旺, 埃及 (© Ratnakorn Piyasirisorost/Getty Images)
+
+![](20250716_TemplePhilae_1920x1080.jpg)
+
 #### 20250715 Perseid meteor shower and an ancient bristlecone pine, Great Basin National Park, Nevada (© Wirestock Creators/Shutterstock)
 
 ![](20250715_PerseidsPine_1920x1080.jpg)

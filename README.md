@@ -1,3 +1,7 @@
+#### 20250716 菲莱神庙 (aka Temple of Isis), 阿斯旺, 埃及 (© Ratnakorn Piyasirisorost/Getty Images)
+
+![](images/2025-07/20250716_TemplePhilae_1920x1080.jpg)
+
 #### 20250715 Perseid meteor shower and an ancient bristlecone pine, Great Basin National Park, Nevada (© Wirestock Creators/Shutterstock)
 
 ![](images/2025-07/20250715_PerseidsPine_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250705 Descending the Col du Tourmalet in the French Pyrenees during the 2021 Tour de France (© THOMAS SAMSON/AFP via Getty Images)
 
 ![](images/2025-07/20250705_TourCyclists_1920x1080.jpg)
-
-#### 20250705 Cize-Bolozon viaduct crossing the Ain gorge, France (© Leonid Andronov/Getty Images)
-
-![](images/2025-07/20250705_BolozonViaduct_1920x1080.jpg)
 
 
 
