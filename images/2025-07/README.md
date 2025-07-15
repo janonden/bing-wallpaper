@@ -1,4 +1,4 @@
-#### 20250715 英仙座流星雨和一棵古老刺果松，大盆地国家公园，内华达州，美国 (© Wirestock Creators/Shutterstock)
+#### 20250715 Perseid meteor shower and an ancient bristlecone pine, Great Basin National Park, Nevada (© Wirestock Creators/Shutterstock)
 
 ![](20250715_PerseidsPine_1920x1080.jpg)
 
