@@ -1,4 +1,4 @@
-#### 20250716 菲莱神庙 (aka Temple of Isis), 阿斯旺, 埃及 (© Ratnakorn Piyasirisorost/Getty Images)
+#### 20250716 Temple of Philae (aka Temple of Isis), Aswan, Egypt (© Ratnakorn Piyasirisorost/Getty Images)
 
 ![](images/2025-07/20250716_TemplePhilae_1920x1080.jpg)
 
