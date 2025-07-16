@@ -1,3 +1,7 @@
+#### 20250717 瓦朗索勒高原的薰衣草田，法国 (© zpagistock/Getty Images)
+
+![](images/2025-07/20250717_FranceLavender_1920x1080.jpg)
+
 #### 20250716 Temple of Philae (aka Temple of Isis), Aswan, Egypt (© Ratnakorn Piyasirisorost/Getty Images)
 
 ![](images/2025-07/20250716_TemplePhilae_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250706 Mesquite Flat Sand Dunes in Death Valley National Park, California (© Bryan Jolley/TANDEM Stills + Motion)
 
 ![](images/2025-07/20250706_MesquiteFlats_1920x1080.jpg)
-
-#### 20250705 Descending the Col du Tourmalet in the French Pyrenees during the 2021 Tour de France (© THOMAS SAMSON/AFP via Getty Images)
-
-![](images/2025-07/20250705_TourCyclists_1920x1080.jpg)
 
 
 
