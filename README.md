@@ -1,3 +1,11 @@
+#### 20250718 塞里雅兰瀑布日落美景，冰岛 (© Tom Mackie/AWL/plainpicture)
+
+![](images/2025-07/20250718_IcelandSolstice_1920x1080.jpg)
+
+#### 20250718 ドロミーティのチンクェトッリ, イタリア (© usabin/Getty Images)
+
+![](images/2025-07/20250718_DolomitiEstate_1920x1080.jpg)
+
 #### 20250717 Blühender Lavendel und Leuchtturm Westerheversand in Westerhever, Nordfriesland, Schleswig-Holstein (© Sven-Erik Arndt/Arterra/Universal Images Group/Getty Images)
 
 ![](images/2025-07/20250717_LavenderWesterhever_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20250708 Vue aérienne de la Baie d'Authie, Somme, Haut-de-France (© Tuul & Bruno Morandi/Getty Images)
 
 ![](images/2025-07/20250708_BaieSomme_1920x1080.jpg)
-
-#### 20250707 鴨川河川敷に灯る風鈴灯, 京都市 (© Kaoru Hayashi/Getty Images)
-
-![](images/2025-07/20250707_Tanabata_1920x1080.jpg)
-
-#### 20250707 Northern gannets diving for fish, Shetland Islands, Scotland (© Richard Shucksmith/Minden Pictures)
-
-![](images/2025-07/20250707_ShetlandGannets_1920x1080.jpg)
 
 
 

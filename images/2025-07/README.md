@@ -1,3 +1,11 @@
+#### 20250718 塞里雅兰瀑布日落美景，冰岛 (© Tom Mackie/AWL/plainpicture)
+
+![](20250718_IcelandSolstice_1920x1080.jpg)
+
+#### 20250718 ドロミーティのチンクェトッリ, イタリア (© usabin/Getty Images)
+
+![](20250718_DolomitiEstate_1920x1080.jpg)
+
 #### 20250717 Blühender Lavendel und Leuchtturm Westerheversand in Westerhever, Nordfriesland, Schleswig-Holstein (© Sven-Erik Arndt/Arterra/Universal Images Group/Getty Images)
 
 ![](20250717_LavenderWesterhever_1920x1080.jpg)
