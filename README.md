@@ -1,3 +1,7 @@
+#### 20250717 Blühender Lavendel und Leuchtturm Westerheversand in Westerhever, Nordfriesland, Schleswig-Holstein (© Sven-Erik Arndt/Arterra/Universal Images Group/Getty Images)
+
+![](images/2025-07/20250717_LavenderWesterhever_1920x1080.jpg)
+
 #### 20250717 瓦朗索勒高原的薰衣草田，法国 (© zpagistock/Getty Images)
 
 ![](images/2025-07/20250717_FranceLavender_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250707 Northern gannets diving for fish, Shetland Islands, Scotland (© Richard Shucksmith/Minden Pictures)
 
 ![](images/2025-07/20250707_ShetlandGannets_1920x1080.jpg)
-
-#### 20250706 Mesquite Flat Sand Dunes in Death Valley National Park, California (© Bryan Jolley/TANDEM Stills + Motion)
-
-![](images/2025-07/20250706_MesquiteFlats_1920x1080.jpg)
 
 
 

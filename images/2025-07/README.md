@@ -1,3 +1,7 @@
+#### 20250717 Blühender Lavendel und Leuchtturm Westerheversand in Westerhever, Nordfriesland, Schleswig-Holstein (© Sven-Erik Arndt/Arterra/Universal Images Group/Getty Images)
+
+![](20250717_LavenderWesterhever_1920x1080.jpg)
+
 #### 20250717 瓦朗索勒高原的薰衣草田，法国 (© zpagistock/Getty Images)
 
 ![](20250717_FranceLavender_1920x1080.jpg)
