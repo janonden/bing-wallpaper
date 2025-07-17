@@ -2,7 +2,7 @@
 
 ![](images/2025-07/20250717_LavenderWesterhever_1920x1080.jpg)
 
-#### 20250717 瓦朗索勒高原的薰衣草田，法国 (© zpagistock/Getty Images)
+#### 20250717 Lavender fields in Plateau de Valensole, France (© zpagistock/Getty Images)
 
 ![](images/2025-07/20250717_FranceLavender_1920x1080.jpg)
 
