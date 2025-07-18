@@ -1,3 +1,11 @@
+#### 20250719 幽鹤国家公园的伯吉斯山和翡翠湖, 不列颠哥伦比亚省, 加拿大 (© Feng Wei Photography/Getty Images)
+
+![](images/2025-07/20250719_YohoNP_1920x1080.jpg)
+
+#### 20250719 サン・ピエトロ大聖堂, バチカン市国 (© RudyBalasko/Getty Images)
+
+![](images/2025-07/20250719_VaticanCity_1920x1080.jpg)
+
 #### 20250719 Eucalyptus forest, Urubici, Santa Catarina, Brazil (© YES BRASIL/Getty Images)
 
 ![](images/2025-07/20250719_EucaliptoSC_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20250713 Basalt columns at Kálfshamarsvík, Skagi Peninsula, Iceland (© Arterra Picture Library/Alamy)
 
 ![](images/2025-07/20250713_BasaltColumns_1920x1080.jpg)
-
-#### 20250712 Thomson's gazelle mother and fawn, Maasai Mara, Kenya (© Gallo Images/DanitaDelimont.com)
-
-![](images/2025-07/20250712_ThomsonGazelle_1920x1080.jpg)
-
-#### 20250711 Tokyo at sunrise (© pongnathee kluaythong/Getty Images)
-
-![](images/2025-07/20250711_TokyoSunrise_1920x1080.jpg)
 
 
 
