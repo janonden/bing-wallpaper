@@ -1,3 +1,7 @@
+#### 20250719 Eucalyptus forest, Urubici, Santa Catarina, Brazil (© YES BRASIL/Getty Images)
+
+![](images/2025-07/20250719_EucaliptoSC_1920x1080.jpg)
+
 #### 20250718 Orosei, Sardinia, Italy (© EyeEm Mobile GmbH/Getty Images)
 
 ![](images/2025-07/20250718_OroseiSardegna_1920x1080.jpg)
@@ -9,6 +13,10 @@
 #### 20250718 塞里雅兰瀑布日落美景，冰岛 (© Tom Mackie/AWL/plainpicture)
 
 ![](images/2025-07/20250718_IcelandSolstice_1920x1080.jpg)
+
+#### 20250718 Beach at sunrise, Gulf Islands National Seashore, Florida (© Tim Fitzharris/Minden Pictures)
+
+![](images/2025-07/20250718_FloridaSeashore_1920x1080.jpg)
 
 #### 20250718 ドロミーティのチンクェトッリ, イタリア (© usabin/Getty Images)
 
@@ -49,14 +57,6 @@
 #### 20250711 Tokyo at sunrise (© pongnathee kluaythong/Getty Images)
 
 ![](images/2025-07/20250711_TokyoSunrise_1920x1080.jpg)
-
-#### 20250710 Turquoise waters of the Bahamas (© BlueOrange Studio/Adobe Stock)
-
-![](images/2025-07/20250710_BahamaBlues_1920x1080.jpg)
-
-#### 20250709 Constitución railway station, Buenos Aires, Argentina (© Grafissimo/Getty Images)
-
-![](images/2025-07/20250709_ConstitucionStation_1920x1080.jpg)
 
 
 

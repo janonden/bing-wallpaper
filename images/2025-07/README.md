@@ -1,3 +1,7 @@
+#### 20250719 Eucalyptus forest, Urubici, Santa Catarina, Brazil (© YES BRASIL/Getty Images)
+
+![](20250719_EucaliptoSC_1920x1080.jpg)
+
 #### 20250718 Orosei, Sardinia, Italy (© EyeEm Mobile GmbH/Getty Images)
 
 ![](20250718_OroseiSardegna_1920x1080.jpg)
@@ -9,6 +13,10 @@
 #### 20250718 塞里雅兰瀑布日落美景，冰岛 (© Tom Mackie/AWL/plainpicture)
 
 ![](20250718_IcelandSolstice_1920x1080.jpg)
+
+#### 20250718 Beach at sunrise, Gulf Islands National Seashore, Florida (© Tim Fitzharris/Minden Pictures)
+
+![](20250718_FloridaSeashore_1920x1080.jpg)
 
 #### 20250718 ドロミーティのチンクェトッリ, イタリア (© usabin/Getty Images)
 
