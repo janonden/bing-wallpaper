@@ -1,3 +1,7 @@
+#### 20250718 Miravet am Fluss Ebro, Tarragona, Katalonien, Spanien (© Eloi_Omella/Getty Images)
+
+![](20250718_MiravetSpain_1920x1080.jpg)
+
 #### 20250718 塞里雅兰瀑布日落美景，冰岛 (© Tom Mackie/AWL/plainpicture)
 
 ![](20250718_IcelandSolstice_1920x1080.jpg)

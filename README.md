@@ -1,3 +1,7 @@
+#### 20250718 Miravet am Fluss Ebro, Tarragona, Katalonien, Spanien (© Eloi_Omella/Getty Images)
+
+![](images/2025-07/20250718_MiravetSpain_1920x1080.jpg)
+
 #### 20250718 塞里雅兰瀑布日落美景，冰岛 (© Tom Mackie/AWL/plainpicture)
 
 ![](images/2025-07/20250718_IcelandSolstice_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250708 パッチワークの路, 北海道 美瑛町 (© DoctorEgg/Getty Images)
 
 ![](images/2025-07/20250708_WheatFields_1920x1080.jpg)
-
-#### 20250708 Vue aérienne de la Baie d'Authie, Somme, Haut-de-France (© Tuul & Bruno Morandi/Getty Images)
-
-![](images/2025-07/20250708_BaieSomme_1920x1080.jpg)
 
 
 
