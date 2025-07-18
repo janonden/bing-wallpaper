@@ -1,3 +1,7 @@
+#### 20250718 Orosei, Sardinia, Italy (© EyeEm Mobile GmbH/Getty Images)
+
+![](20250718_OroseiSardegna_1920x1080.jpg)
+
 #### 20250718 Miravet am Fluss Ebro, Tarragona, Katalonien, Spanien (© Eloi_Omella/Getty Images)
 
 ![](20250718_MiravetSpain_1920x1080.jpg)
