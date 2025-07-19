@@ -14,7 +14,7 @@
 
 ![](20250719_Saumur_1920x1080.jpg)
 
-#### 20250719 Luna-Motte auf einer Zedern-Ulme ruhend, New Braunfels, Texas, USA (© Rolf Nussbaumer/Nature Picture Library)
+#### 20250719 Luna moth resting on cedar elm, New Braunfels, Texas, USA (© Rolf Nussbaumer/Nature Picture Library)
 
 ![](20250719_MothWeek_1920x1080.jpg)
 
