@@ -6,6 +6,10 @@
 
 ![](images/2025-07/20250719_VaticanCity_1920x1080.jpg)
 
+#### 20250719 Jackson's Point Lighthouse on Lake Simcoe, Ontario (© AWSeebaran/E+/Getty Images)
+
+![](images/2025-07/20250719_SimcoeLighthouse_1920x1080.jpg)
+
 #### 20250719 Saumur et son château au crépuscule, Vallée de la Loire (© Hiroshi Higuchi/Getty Images)
 
 ![](images/2025-07/20250719_Saumur_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250715 Perseid meteor shower and an ancient bristlecone pine, Great Basin National Park, Nevada (© Wirestock Creators/Shutterstock)
 
 ![](images/2025-07/20250715_PerseidsPine_1920x1080.jpg)
-
-#### 20250714 Young blue shark swimming off the coast of Galicia, Spain (© Damocean/Getty Images)
-
-![](images/2025-07/20250714_YoungShark_1920x1080.jpg)
 
 
 

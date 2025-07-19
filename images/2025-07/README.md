@@ -6,6 +6,10 @@
 
 ![](20250719_VaticanCity_1920x1080.jpg)
 
+#### 20250719 Jackson's Point Lighthouse on Lake Simcoe, Ontario (© AWSeebaran/E+/Getty Images)
+
+![](20250719_SimcoeLighthouse_1920x1080.jpg)
+
 #### 20250719 Saumur et son château au crépuscule, Vallée de la Loire (© Hiroshi Higuchi/Getty Images)
 
 ![](20250719_Saumur_1920x1080.jpg)
