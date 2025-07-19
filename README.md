@@ -1,3 +1,7 @@
+#### 20250720 望远镜下的月球表面照片 (© Sergey Kuznetsov/Getty Images)
+
+![](images/2025-07/20250720_BigMoon_1920x1080.jpg)
+
 #### 20250719 幽鹤国家公园的伯吉斯山和翡翠湖, 不列颠哥伦比亚省, 加拿大 (© Feng Wei Photography/Getty Images)
 
 ![](images/2025-07/20250719_YohoNP_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250716 Temple of Philae (aka Temple of Isis), Aswan, Egypt (© Ratnakorn Piyasirisorost/Getty Images)
 
 ![](images/2025-07/20250716_TemplePhilae_1920x1080.jpg)
-
-#### 20250715 Perseid meteor shower and an ancient bristlecone pine, Great Basin National Park, Nevada (© Wirestock Creators/Shutterstock)
-
-![](images/2025-07/20250715_PerseidsPine_1920x1080.jpg)
 
 
 
