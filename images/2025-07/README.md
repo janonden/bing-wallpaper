@@ -6,6 +6,14 @@
 
 ![](20250719_VaticanCity_1920x1080.jpg)
 
+#### 20250719 Saumur et son château au crépuscule, Vallée de la Loire (© Hiroshi Higuchi/Getty Images)
+
+![](20250719_Saumur_1920x1080.jpg)
+
+#### 20250719 Luna-Motte auf einer Zedern-Ulme ruhend, New Braunfels, Texas, USA (© Rolf Nussbaumer/Nature Picture Library)
+
+![](20250719_MothWeek_1920x1080.jpg)
+
 #### 20250719 Eucalyptus forest, Urubici, Santa Catarina, Brazil (© YES BRASIL/Getty Images)
 
 ![](20250719_EucaliptoSC_1920x1080.jpg)

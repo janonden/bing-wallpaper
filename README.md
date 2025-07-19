@@ -6,6 +6,14 @@
 
 ![](images/2025-07/20250719_VaticanCity_1920x1080.jpg)
 
+#### 20250719 Saumur et son château au crépuscule, Vallée de la Loire (© Hiroshi Higuchi/Getty Images)
+
+![](images/2025-07/20250719_Saumur_1920x1080.jpg)
+
+#### 20250719 Luna-Motte auf einer Zedern-Ulme ruhend, New Braunfels, Texas, USA (© Rolf Nussbaumer/Nature Picture Library)
+
+![](images/2025-07/20250719_MothWeek_1920x1080.jpg)
+
 #### 20250719 Eucalyptus forest, Urubici, Santa Catarina, Brazil (© YES BRASIL/Getty Images)
 
 ![](images/2025-07/20250719_EucaliptoSC_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20250714 Young blue shark swimming off the coast of Galicia, Spain (© Damocean/Getty Images)
 
 ![](images/2025-07/20250714_YoungShark_1920x1080.jpg)
-
-#### 20250714 Feu d'artifice du 14 juillet au-dessus de la citadelle de Sisteron au crépuscule, Provence (© francois-roux/Getty Images)
-
-![](images/2025-07/20250714_BastilleDayCelebration_1920x1080.jpg)
-
-#### 20250713 Basalt columns at Kálfshamarsvík, Skagi Peninsula, Iceland (© Arterra Picture Library/Alamy)
-
-![](images/2025-07/20250713_BasaltColumns_1920x1080.jpg)
 
 
 
