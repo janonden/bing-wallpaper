@@ -1,4 +1,4 @@
-#### 20250720 望远镜下的月球表面照片 (© Sergey Kuznetsov/Getty Images)
+#### 20250720 The moon's surface photographed through a telescope (© Sergey Kuznetsov/Getty Images)
 
 ![](images/2025-07/20250720_BigMoon_1920x1080.jpg)
 
