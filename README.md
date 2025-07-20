@@ -1,3 +1,11 @@
+#### 20250721 青い海に浮かぶ種子島の無人島, 鹿児島県 (© Ippei Naoi/Getty Images)
+
+![](images/2025-07/20250721_MarineDay_1920x1080.jpg)
+
+#### 20250721 浅海中的鹿角珊瑚 (© blue-sea.cz/Shutterstock)
+
+![](images/2025-07/20250721_AcroporaReef_1920x1080.jpg)
+
 #### 20250720 The moon's surface photographed through a telescope (© Sergey Kuznetsov/Getty Images)
 
 ![](images/2025-07/20250720_BigMoon_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20250717 Blühender Lavendel und Leuchtturm Westerheversand in Westerhever, Nordfriesland, Schleswig-Holstein (© Sven-Erik Arndt/Arterra/Universal Images Group/Getty Images)
 
 ![](images/2025-07/20250717_LavenderWesterhever_1920x1080.jpg)
-
-#### 20250717 Lavender fields in Plateau de Valensole, France (© zpagistock/Getty Images)
-
-![](images/2025-07/20250717_FranceLavender_1920x1080.jpg)
-
-#### 20250716 Temple of Philae (aka Temple of Isis), Aswan, Egypt (© Ratnakorn Piyasirisorost/Getty Images)
-
-![](images/2025-07/20250716_TemplePhilae_1920x1080.jpg)
 
 
 

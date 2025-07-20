@@ -1,3 +1,11 @@
+#### 20250721 青い海に浮かぶ種子島の無人島, 鹿児島県 (© Ippei Naoi/Getty Images)
+
+![](20250721_MarineDay_1920x1080.jpg)
+
+#### 20250721 浅海中的鹿角珊瑚 (© blue-sea.cz/Shutterstock)
+
+![](20250721_AcroporaReef_1920x1080.jpg)
+
 #### 20250720 The moon's surface photographed through a telescope (© Sergey Kuznetsov/Getty Images)
 
 ![](20250720_BigMoon_1920x1080.jpg)
