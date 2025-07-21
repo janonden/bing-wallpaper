@@ -1,3 +1,11 @@
+#### 20250722 夏季的赛里木湖，博尔塔拉蒙古自治州博乐县, 中国新疆维吾尔自治区 (© Feng Wei Photography/Getty Images)
+
+![](20250722_GreatHeatY_1920x1080.jpg)
+
+#### 20250722 バッドランズ国立公園, 米国 サウスダコタ州 (© Petr Bednarik/Danita Delimont/Alamy)
+
+![](20250722_BadlandsSunset_1920x1080.jpg)
+
 #### 20250721 青い海に浮かぶ種子島の無人島, 鹿児島県 (© Ippei Naoi/Getty Images)
 
 ![](20250721_MarineDay_1920x1080.jpg)

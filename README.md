@@ -1,3 +1,11 @@
+#### 20250722 夏季的赛里木湖，博尔塔拉蒙古自治州博乐县, 中国新疆维吾尔自治区 (© Feng Wei Photography/Getty Images)
+
+![](images/2025-07/20250722_GreatHeatY_1920x1080.jpg)
+
+#### 20250722 バッドランズ国立公園, 米国 サウスダコタ州 (© Petr Bednarik/Danita Delimont/Alamy)
+
+![](images/2025-07/20250722_BadlandsSunset_1920x1080.jpg)
+
 #### 20250721 青い海に浮かぶ種子島の無人島, 鹿児島県 (© Ippei Naoi/Getty Images)
 
 ![](images/2025-07/20250721_MarineDay_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20250718 Beach at sunrise, Gulf Islands National Seashore, Florida (© Tim Fitzharris/Minden Pictures)
 
 ![](images/2025-07/20250718_FloridaSeashore_1920x1080.jpg)
-
-#### 20250718 ドロミーティのチンクェトッリ, イタリア (© usabin/Getty Images)
-
-![](images/2025-07/20250718_DolomitiEstate_1920x1080.jpg)
-
-#### 20250717 Blühender Lavendel und Leuchtturm Westerheversand in Westerhever, Nordfriesland, Schleswig-Holstein (© Sven-Erik Arndt/Arterra/Universal Images Group/Getty Images)
-
-![](images/2025-07/20250717_LavenderWesterhever_1920x1080.jpg)
 
 
 
