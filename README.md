@@ -42,6 +42,10 @@
 
 ![](images/2025-07/20250719_EucaliptoSC_1920x1080.jpg)
 
+#### 20250718 Jeune requin bleu nageant au large des côtes de Galice, Espagne (© Damocean/Getty Images)
+
+![](images/2025-07/20250718_YoungShark_1920x1080.jpg)
+
 #### 20250718 Orosei, Sardinia, Italy (© EyeEm Mobile GmbH/Getty Images)
 
 ![](images/2025-07/20250718_OroseiSardegna_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250718 塞里雅兰瀑布日落美景，冰岛 (© Tom Mackie/AWL/plainpicture)
 
 ![](images/2025-07/20250718_IcelandSolstice_1920x1080.jpg)
-
-#### 20250718 Beach at sunrise, Gulf Islands National Seashore, Florida (© Tim Fitzharris/Minden Pictures)
-
-![](images/2025-07/20250718_FloridaSeashore_1920x1080.jpg)
 
 
 

@@ -42,6 +42,10 @@
 
 ![](20250719_EucaliptoSC_1920x1080.jpg)
 
+#### 20250718 Jeune requin bleu nageant au large des côtes de Galice, Espagne (© Damocean/Getty Images)
+
+![](20250718_YoungShark_1920x1080.jpg)
+
 #### 20250718 Orosei, Sardinia, Italy (© EyeEm Mobile GmbH/Getty Images)
 
 ![](20250718_OroseiSardegna_1920x1080.jpg)
