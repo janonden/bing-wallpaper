@@ -2,7 +2,7 @@
 
 ![](20250721_MarineDay_1920x1080.jpg)
 
-#### 20250721 浅海中的鹿角珊瑚 (© blue-sea.cz/Shutterstock)
+#### 20250721 Staghorn coral off the island of Bonaire, Caribbean Netherlands (© blue-sea.cz/Shutterstock)
 
 ![](20250721_AcroporaReef_1920x1080.jpg)
 
