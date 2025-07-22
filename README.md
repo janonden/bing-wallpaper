@@ -2,7 +2,7 @@
 
 ![](images/2025-07/20250722_GreatHeatY_1920x1080.jpg)
 
-#### 20250722 バッドランズ国立公園, 米国 サウスダコタ州 (© Petr Bednarik/Danita Delimont/Alamy)
+#### 20250722 Sunset over Badlands National Park, South Dakota (© Petr Bednarik/Danita Delimont/Alamy)
 
 ![](images/2025-07/20250722_BadlandsSunset_1920x1080.jpg)
 
