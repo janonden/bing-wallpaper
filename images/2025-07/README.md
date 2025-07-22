@@ -1,3 +1,7 @@
+#### 20250723 提灯の灯りに照らされた南観音山, 京都市 (© Route16/Adobe Stock)
+
+![](20250723_GionFestival_1920x1080.jpg)
+
 #### 20250722 夏季的赛里木湖，博尔塔拉蒙古自治州博乐县, 中国新疆维吾尔自治区 (© Feng Wei Photography/Getty Images)
 
 ![](20250722_GreatHeatY_1920x1080.jpg)
