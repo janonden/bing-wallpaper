@@ -26,7 +26,7 @@
 
 ![](images/2025-07/20250719_YohoNP_1920x1080.jpg)
 
-#### 20250719 サン・ピエトロ大聖堂, バチカン市国 (© RudyBalasko/Getty Images)
+#### 20250719 Vatican City with St. Peter's Basilica (© RudyBalasko/Getty Images)
 
 ![](images/2025-07/20250719_VaticanCity_1920x1080.jpg)
 
