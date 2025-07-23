@@ -1,3 +1,7 @@
+#### 20250724 栖息在树枝上的灰燕鵙家族 (© Captain Skyhigh/Getty Images)
+
+![](images/2025-07/20250724_AshyWoodswallow_1920x1080.jpg)
+
 #### 20250723 提灯の灯りに照らされた南観音山, 京都市 (© Route16/Adobe Stock)
 
 ![](images/2025-07/20250723_GionFestival_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250718 Orosei, Sardinia, Italy (© EyeEm Mobile GmbH/Getty Images)
 
 ![](images/2025-07/20250718_OroseiSardegna_1920x1080.jpg)
-
-#### 20250718 Miravet am Fluss Ebro, Tarragona, Katalonien, Spanien (© Eloi_Omella/Getty Images)
-
-![](images/2025-07/20250718_MiravetSpain_1920x1080.jpg)
 
 
 

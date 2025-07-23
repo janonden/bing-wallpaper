@@ -1,3 +1,7 @@
+#### 20250724 栖息在树枝上的灰燕鵙家族 (© Captain Skyhigh/Getty Images)
+
+![](20250724_AshyWoodswallow_1920x1080.jpg)
+
 #### 20250723 提灯の灯りに照らされた南観音山, 京都市 (© Route16/Adobe Stock)
 
 ![](20250723_GionFestival_1920x1080.jpg)
