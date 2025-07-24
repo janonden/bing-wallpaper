@@ -1,3 +1,7 @@
+#### 20250725 大加那利岛拉斯帕尔马斯色彩缤纷的房屋鸟瞰图，西班牙 (© Marco Bottigelli/Getty Images)
+
+![](images/2025-07/20250725_LasPalmas_1920x1080.jpg)
+
 #### 20250724 Innenansicht des Bayreuther Festspielhauses, Bayreuth, Bayern (© Bruce Yuanyue Bi/Getty Images)
 
 ![](images/2025-07/20250724_BayreuthTheatre_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250719 Eucalyptus forest, Urubici, Santa Catarina, Brazil (© YES BRASIL/Getty Images)
 
 ![](images/2025-07/20250719_EucaliptoSC_1920x1080.jpg)
-
-#### 20250718 Jeune requin bleu nageant au large des côtes de Galice, Espagne (© Damocean/Getty Images)
-
-![](images/2025-07/20250718_YoungShark_1920x1080.jpg)
 
 
 

@@ -1,3 +1,7 @@
+#### 20250725 大加那利岛拉斯帕尔马斯色彩缤纷的房屋鸟瞰图，西班牙 (© Marco Bottigelli/Getty Images)
+
+![](20250725_LasPalmas_1920x1080.jpg)
+
 #### 20250724 Innenansicht des Bayreuther Festspielhauses, Bayreuth, Bayern (© Bruce Yuanyue Bi/Getty Images)
 
 ![](20250724_BayreuthTheatre_1920x1080.jpg)
