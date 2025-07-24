@@ -1,3 +1,7 @@
+#### 20250724 Innenansicht des Bayreuther Festspielhauses, Bayreuth, Bayern (© Bruce Yuanyue Bi/Getty Images)
+
+![](20250724_BayreuthTheatre_1920x1080.jpg)
+
 #### 20250724 栖息在树枝上的灰燕鵙家族 (© Captain Skyhigh/Getty Images)
 
 ![](20250724_AshyWoodswallow_1920x1080.jpg)

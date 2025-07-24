@@ -1,3 +1,7 @@
+#### 20250724 Innenansicht des Bayreuther Festspielhauses, Bayreuth, Bayern (© Bruce Yuanyue Bi/Getty Images)
+
+![](images/2025-07/20250724_BayreuthTheatre_1920x1080.jpg)
+
 #### 20250724 栖息在树枝上的灰燕鵙家族 (© Captain Skyhigh/Getty Images)
 
 ![](images/2025-07/20250724_AshyWoodswallow_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250718 Jeune requin bleu nageant au large des côtes de Galice, Espagne (© Damocean/Getty Images)
 
 ![](images/2025-07/20250718_YoungShark_1920x1080.jpg)
-
-#### 20250718 Orosei, Sardinia, Italy (© EyeEm Mobile GmbH/Getty Images)
-
-![](images/2025-07/20250718_OroseiSardegna_1920x1080.jpg)
 
 
 
