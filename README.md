@@ -1,3 +1,7 @@
+#### 20250726 黄昏时的红树林，瓦拉基里海滩，松巴岛，印度尼西亚 (© Boonchet Ch./Getty Images)
+
+![](images/2025-07/20250726_MangroveTwilight_1920x1080.jpg)
+
 #### 20250725 Aerial view of colorful houses, Las Palmas de Gran Canaria, Spain (© Marco Bottigelli/Getty Images)
 
 ![](images/2025-07/20250725_LasPalmas_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250719 Saumur et son château au crépuscule, Vallée de la Loire (© Hiroshi Higuchi/Getty Images)
 
 ![](images/2025-07/20250719_Saumur_1920x1080.jpg)
-
-#### 20250719 Luna moth resting on cedar elm, New Braunfels, Texas, USA (© Rolf Nussbaumer/Nature Picture Library)
-
-![](images/2025-07/20250719_MothWeek_1920x1080.jpg)
 
 
 
