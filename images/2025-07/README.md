@@ -2,6 +2,10 @@
 
 ![](20250725_LasPalmas_1920x1080.jpg)
 
+#### 20250725 Banc de barracudas chevrons, Shark Reef, parc national de Ras Mohammed, péninsule du Sinaï, Égypte (© Alex Mustard/Nature Picture Library)
+
+![](20250725_BlackfinBarracuda_1920x1080.jpg)
+
 #### 20250724 Innenansicht des Bayreuther Festspielhauses, Bayreuth, Bayern (© Bruce Yuanyue Bi/Getty Images)
 
 ![](20250724_BayreuthTheatre_1920x1080.jpg)

@@ -2,6 +2,10 @@
 
 ![](images/2025-07/20250725_LasPalmas_1920x1080.jpg)
 
+#### 20250725 Banc de barracudas chevrons, Shark Reef, parc national de Ras Mohammed, péninsule du Sinaï, Égypte (© Alex Mustard/Nature Picture Library)
+
+![](images/2025-07/20250725_BlackfinBarracuda_1920x1080.jpg)
+
 #### 20250724 Innenansicht des Bayreuther Festspielhauses, Bayreuth, Bayern (© Bruce Yuanyue Bi/Getty Images)
 
 ![](images/2025-07/20250724_BayreuthTheatre_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250719 Luna moth resting on cedar elm, New Braunfels, Texas, USA (© Rolf Nussbaumer/Nature Picture Library)
 
 ![](images/2025-07/20250719_MothWeek_1920x1080.jpg)
-
-#### 20250719 Eucalyptus forest, Urubici, Santa Catarina, Brazil (© YES BRASIL/Getty Images)
-
-![](images/2025-07/20250719_EucaliptoSC_1920x1080.jpg)
 
 
 
