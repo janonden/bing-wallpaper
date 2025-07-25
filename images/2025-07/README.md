@@ -1,4 +1,4 @@
-#### 20250725 大加那利岛拉斯帕尔马斯色彩缤纷的房屋鸟瞰图，西班牙 (© Marco Bottigelli/Getty Images)
+#### 20250725 Aerial view of colorful houses, Las Palmas de Gran Canaria, Spain (© Marco Bottigelli/Getty Images)
 
 ![](20250725_LasPalmas_1920x1080.jpg)
 
