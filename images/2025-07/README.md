@@ -1,4 +1,4 @@
-#### 20250726 黄昏时的红树林，瓦拉基里海滩，松巴岛，印度尼西亚 (© Boonchet Ch./Getty Images)
+#### 20250726 Mangrove trees at twilight, Walakiri Beach, island of Sumba, Indonesia (© Boonchet Ch./Getty Images)
 
 ![](20250726_MangroveTwilight_1920x1080.jpg)
 
