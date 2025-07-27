@@ -1,3 +1,7 @@
+#### 20250727 Le peloton du Tour de France 2019, Arc de Triomphe du Tour de France, Paris (© Kiran Ridley/Getty Images)
+
+![](20250727_TourFrance_1920x1080.jpg)
+
 #### 20250726 Mangrove trees at twilight, Walakiri Beach, island of Sumba, Indonesia (© Boonchet Ch./Getty Images)
 
 ![](20250726_MangroveTwilight_1920x1080.jpg)

@@ -1,3 +1,7 @@
+#### 20250727 Le peloton du Tour de France 2019, Arc de Triomphe du Tour de France, Paris (© Kiran Ridley/Getty Images)
+
+![](images/2025-07/20250727_TourFrance_1920x1080.jpg)
+
 #### 20250726 Mangrove trees at twilight, Walakiri Beach, island of Sumba, Indonesia (© Boonchet Ch./Getty Images)
 
 ![](images/2025-07/20250726_MangroveTwilight_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250719 Jackson's Point Lighthouse on Lake Simcoe, Ontario (© AWSeebaran/E+/Getty Images)
 
 ![](images/2025-07/20250719_SimcoeLighthouse_1920x1080.jpg)
-
-#### 20250719 Saumur et son château au crépuscule, Vallée de la Loire (© Hiroshi Higuchi/Getty Images)
-
-![](images/2025-07/20250719_Saumur_1920x1080.jpg)
 
 
 
