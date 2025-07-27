@@ -10,7 +10,7 @@
 
 ![](images/2025-07/20250725_LasPalmas_1920x1080.jpg)
 
-#### 20250725 Banc de barracudas chevrons, Shark Reef, parc national de Ras Mohammed, péninsule du Sinaï, Égypte (© Alex Mustard/Nature Picture Library)
+#### 20250725 School of blackfin barracuda, Shark Reef, Ras Mohammed National Park, Sinai Peninsula, Egypt (© Alex Mustard/Nature Picture Library)
 
 ![](images/2025-07/20250725_BlackfinBarracuda_1920x1080.jpg)
 
