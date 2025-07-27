@@ -1,3 +1,7 @@
+#### 20250728 蒙古草原上的蒙古包 (© Michel Arnault/Shutterstock)
+
+![](images/2025-07/20250728_MongoliaYurts_1920x1080.jpg)
+
 #### 20250727 Le peloton du Tour de France 2019, Arc de Triomphe du Tour de France, Paris (© Kiran Ridley/Getty Images)
 
 ![](images/2025-07/20250727_TourFrance_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250719 Vatican City with St. Peter's Basilica (© RudyBalasko/Getty Images)
 
 ![](images/2025-07/20250719_VaticanCity_1920x1080.jpg)
-
-#### 20250719 Jackson's Point Lighthouse on Lake Simcoe, Ontario (© AWSeebaran/E+/Getty Images)
-
-![](images/2025-07/20250719_SimcoeLighthouse_1920x1080.jpg)
 
 
 

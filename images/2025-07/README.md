@@ -1,3 +1,7 @@
+#### 20250728 蒙古草原上的蒙古包 (© Michel Arnault/Shutterstock)
+
+![](20250728_MongoliaYurts_1920x1080.jpg)
+
 #### 20250727 Le peloton du Tour de France 2019, Arc de Triomphe du Tour de France, Paris (© Kiran Ridley/Getty Images)
 
 ![](20250727_TourFrance_1920x1080.jpg)
