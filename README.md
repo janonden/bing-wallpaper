@@ -1,3 +1,7 @@
+#### 20250729 雌性孟加拉虎，坎哈国家公园，印度 (© Axel Gomille/Nature Picture Library)
+
+![](images/2025-07/20250729_TigerDay_1920x1080.jpg)
+
 #### 20250728 Yurts in the grasslands of Mongolia (© Michel Arnault/Shutterstock)
 
 ![](images/2025-07/20250728_MongoliaYurts_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250719 幽鹤国家公园的伯吉斯山和翡翠湖, 不列颠哥伦比亚省, 加拿大 (© Feng Wei Photography/Getty Images)
 
 ![](images/2025-07/20250719_YohoNP_1920x1080.jpg)
-
-#### 20250719 Vatican City with St. Peter's Basilica (© RudyBalasko/Getty Images)
-
-![](images/2025-07/20250719_VaticanCity_1920x1080.jpg)
 
 
 
