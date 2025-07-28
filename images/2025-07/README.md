@@ -1,4 +1,4 @@
-#### 20250728 蒙古草原上的蒙古包 (© Michel Arnault/Shutterstock)
+#### 20250728 Yurts in the grasslands of Mongolia (© Michel Arnault/Shutterstock)
 
 ![](20250728_MongoliaYurts_1920x1080.jpg)
 
