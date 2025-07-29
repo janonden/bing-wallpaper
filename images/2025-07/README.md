@@ -1,3 +1,11 @@
+#### 20250730 Saype による地上絵, アラブ首長国連邦 (© VALENTIN FLAURAUD/EPA-EFE/Shutterstock)
+
+![](20250730_SaypeDubai_1920x1080.jpg)
+
+#### 20250730 里瓦德塞利亚，阿斯图里亚斯，西班牙 (© Agnieszka Glowala/Getty Images)
+
+![](20250730_RibadesellaSummer_1920x1080.jpg)
+
 #### 20250729 Female Bengal tiger, Kanha National Park, India (© Axel Gomille/Nature Picture Library)
 
 ![](20250729_TigerDay_1920x1080.jpg)
