@@ -1,3 +1,7 @@
+#### 20250731 纳帕利海岸的卡拉劳海滩, 可爱岛, 夏威夷, 美国 (© Russ Bishop/DanitaDelimont.com)
+
+![](images/2025-07/20250731_NaPaliKauai_1920x1080.jpg)
+
 #### 20250730 'Beyond Walls' land-art installation by Saype at Expo 2020 Dubai, United Arab Emirates (© VALENTIN FLAURAUD/EPA-EFE/Shutterstock)
 
 ![](images/2025-07/20250730_SaypeDubai_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250721 青い海に浮かぶ種子島の無人島, 鹿児島県 (© Ippei Naoi/Getty Images)
 
 ![](images/2025-07/20250721_MarineDay_1920x1080.jpg)
-
-#### 20250721 Staghorn coral off the island of Bonaire, Caribbean Netherlands (© blue-sea.cz/Shutterstock)
-
-![](images/2025-07/20250721_AcroporaReef_1920x1080.jpg)
 
 
 

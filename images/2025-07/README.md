@@ -1,3 +1,7 @@
+#### 20250731 纳帕利海岸的卡拉劳海滩, 可爱岛, 夏威夷, 美国 (© Russ Bishop/DanitaDelimont.com)
+
+![](20250731_NaPaliKauai_1920x1080.jpg)
+
 #### 20250730 'Beyond Walls' land-art installation by Saype at Expo 2020 Dubai, United Arab Emirates (© VALENTIN FLAURAUD/EPA-EFE/Shutterstock)
 
 ![](20250730_SaypeDubai_1920x1080.jpg)
