@@ -1,4 +1,4 @@
-#### 20250730 Saype による地上絵, アラブ首長国連邦 (© VALENTIN FLAURAUD/EPA-EFE/Shutterstock)
+#### 20250730 'Beyond Walls' land-art installation by Saype at Expo 2020 Dubai, United Arab Emirates (© VALENTIN FLAURAUD/EPA-EFE/Shutterstock)
 
 ![](images/2025-07/20250730_SaypeDubai_1920x1080.jpg)
 
