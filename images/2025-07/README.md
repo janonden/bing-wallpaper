@@ -2,6 +2,10 @@
 
 ![](20250731_NaPaliKauai_1920x1080.jpg)
 
+#### 20250731 Ring-tailed lemur infant playing with its own tail, Madagascar (© Andy Rouse/Nature Picture Library)
+
+![](20250731_BabyLemur_1920x1080.jpg)
+
 #### 20250730 'Beyond Walls' land-art installation by Saype at Expo 2020 Dubai, United Arab Emirates (© VALENTIN FLAURAUD/EPA-EFE/Shutterstock)
 
 ![](20250730_SaypeDubai_1920x1080.jpg)

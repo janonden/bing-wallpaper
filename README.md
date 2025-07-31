@@ -2,6 +2,10 @@
 
 ![](images/2025-07/20250731_NaPaliKauai_1920x1080.jpg)
 
+#### 20250731 Ring-tailed lemur infant playing with its own tail, Madagascar (© Andy Rouse/Nature Picture Library)
+
+![](images/2025-07/20250731_BabyLemur_1920x1080.jpg)
+
 #### 20250730 'Beyond Walls' land-art installation by Saype at Expo 2020 Dubai, United Arab Emirates (© VALENTIN FLAURAUD/EPA-EFE/Shutterstock)
 
 ![](images/2025-07/20250730_SaypeDubai_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250722 Sunset over Badlands National Park, South Dakota (© Petr Bednarik/Danita Delimont/Alamy)
 
 ![](images/2025-07/20250722_BadlandsSunset_1920x1080.jpg)
-
-#### 20250721 青い海に浮かぶ種子島の無人島, 鹿児島県 (© Ippei Naoi/Getty Images)
-
-![](images/2025-07/20250721_MarineDay_1920x1080.jpg)
 
 
 
