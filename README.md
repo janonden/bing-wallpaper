@@ -1,3 +1,7 @@
+#### 20250801 皇家英里大道, 爱丁堡, 苏格兰 (© MEDITERRANEAN/Getty Images)
+
+![](images/2025-08/20250801_EdinburghFringe_1920x1080.jpg)
+
 #### 20250731 纳帕利海岸的卡拉劳海滩, 可爱岛, 夏威夷, 美国 (© Russ Bishop/DanitaDelimont.com)
 
 ![](images/2025-07/20250731_NaPaliKauai_1920x1080.jpg)
@@ -54,10 +58,6 @@
 
 ![](images/2025-07/20250722_GreatHeatY_1920x1080.jpg)
 
-#### 20250722 Sunset over Badlands National Park, South Dakota (© Petr Bednarik/Danita Delimont/Alamy)
-
-![](images/2025-07/20250722_BadlandsSunset_1920x1080.jpg)
-
 
 
 
@@ -66,7 +66,7 @@
 
 
 
-- 2025&emsp;&emsp;[07](images/2025-07/README.md) &emsp;&emsp;[06](images/2025-06/README.md) &emsp;&emsp;[05](images/2025-05/README.md) &emsp;&emsp;[04](images/2025-04/README.md) &emsp;&emsp;[03](images/2025-03/README.md) &emsp;&emsp;[02](images/2025-02/README.md) &emsp;&emsp;[01](images/2025-01/README.md) 
+- 2025&emsp;&emsp;[08](images/2025-08/README.md) &emsp;&emsp;[07](images/2025-07/README.md) &emsp;&emsp;[06](images/2025-06/README.md) &emsp;&emsp;[05](images/2025-05/README.md) &emsp;&emsp;[04](images/2025-04/README.md) &emsp;&emsp;[03](images/2025-03/README.md) &emsp;&emsp;[02](images/2025-02/README.md) &emsp;&emsp;[01](images/2025-01/README.md) 
 
 - 2024&emsp;&emsp;[12](https://github.com/janonden/bing-wallpaper/blob/2024/images/2024-12/README.md) &emsp;&emsp;[11](https://github.com/janonden/bing-wallpaper/blob/2024/images/2024-11/README.md) &emsp;&emsp;[10](https://github.com/janonden/bing-wallpaper/blob/2024/images/2024-10/README.md) &emsp;&emsp;[09](https://github.com/janonden/bing-wallpaper/blob/2024/images/2024-09/README.md) &emsp;&emsp;[08](https://github.com/janonden/bing-wallpaper/blob/2024/images/2024-08/README.md) &emsp;&emsp;[07](https://github.com/janonden/bing-wallpaper/blob/2024/images/2024-07/README.md) &emsp;&emsp;[06](https://github.com/janonden/bing-wallpaper/blob/2024/images/2024-06/README.md) &emsp;&emsp;[05](https://github.com/janonden/bing-wallpaper/blob/2024/images/2024-05/README.md) &emsp;&emsp;[04](https://github.com/janonden/bing-wallpaper/blob/2024/images/2024-04/README.md) &emsp;&emsp;[03](https://github.com/janonden/bing-wallpaper/blob/2024/images/2024-03/README.md) &emsp;&emsp;[02](https://github.com/janonden/bing-wallpaper/blob/2024/images/2024-02/README.md) &emsp;&emsp;[01](https://github.com/janonden/bing-wallpaper/blob/2024/images/2024-01/README.md) 
 
