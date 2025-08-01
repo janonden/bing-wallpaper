@@ -1,3 +1,7 @@
+#### 20250802 圆顶礁国家公园弗鲁塔附近的岩画, 犹他州, 美国 (© Nicolas VINCENT/Adobe Stock)
+
+![](images/2025-08/20250802_FruitaPetroglyphs_1920x1080.jpg)
+
 #### 20250801 Costumes folkloriques bretons, Lorient, Finistère (© guy-ozenne/Getty images)
 
 ![](images/2025-08/20250801_LorientCeltic_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250724 Family of ashy woodswallows perched on a branch in Thailand (© Captain Skyhigh/Getty Images)
 
 ![](images/2025-07/20250724_AshyWoodswallow_1920x1080.jpg)
-
-#### 20250723 提灯の灯りに照らされた南観音山, 京都市 (© Route16/Adobe Stock)
-
-![](images/2025-07/20250723_GionFestival_1920x1080.jpg)
 
 
 

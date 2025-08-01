@@ -1,3 +1,7 @@
+#### 20250802 圆顶礁国家公园弗鲁塔附近的岩画, 犹他州, 美国 (© Nicolas VINCENT/Adobe Stock)
+
+![](20250802_FruitaPetroglyphs_1920x1080.jpg)
+
 #### 20250801 Costumes folkloriques bretons, Lorient, Finistère (© guy-ozenne/Getty images)
 
 ![](20250801_LorientCeltic_1920x1080.jpg)
