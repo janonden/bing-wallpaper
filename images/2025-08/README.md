@@ -1,3 +1,7 @@
+#### 20250802 Herrenhäuser und Gärten am Abend, Hannover, Niedersachsen (© Westend61/Getty Images)
+
+![](20250802_HerrenhaeuserHannover_1920x1080.jpg)
+
 #### 20250802 圆顶礁国家公园弗鲁塔附近的岩画, 犹他州, 美国 (© Nicolas VINCENT/Adobe Stock)
 
 ![](20250802_FruitaPetroglyphs_1920x1080.jpg)

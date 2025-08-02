@@ -1,3 +1,7 @@
+#### 20250802 Herrenhäuser und Gärten am Abend, Hannover, Niedersachsen (© Westend61/Getty Images)
+
+![](images/2025-08/20250802_HerrenhaeuserHannover_1920x1080.jpg)
+
 #### 20250802 圆顶礁国家公园弗鲁塔附近的岩画, 犹他州, 美国 (© Nicolas VINCENT/Adobe Stock)
 
 ![](images/2025-08/20250802_FruitaPetroglyphs_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250724 Innenansicht des Bayreuther Festspielhauses, Bayreuth, Bayern (© Bruce Yuanyue Bi/Getty Images)
 
 ![](images/2025-07/20250724_BayreuthTheatre_1920x1080.jpg)
-
-#### 20250724 Family of ashy woodswallows perched on a branch in Thailand (© Captain Skyhigh/Getty Images)
-
-![](images/2025-07/20250724_AshyWoodswallow_1920x1080.jpg)
 
 
 
