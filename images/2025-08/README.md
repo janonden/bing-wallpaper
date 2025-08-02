@@ -1,3 +1,11 @@
+#### 20250803 優美な扇ねぷた, 青森県 弘前市 (© John S Lander/寄稿者/Getty Images)
+
+![](20250803_HirosakiNeputaFestival_1920x1080.jpg)
+
+#### 20250803 夏天田野里盛开的向日葵 (© Arsgera/Shutterstock)
+
+![](20250803_HappySunflower_1920x1080.jpg)
+
 #### 20250802 Herrenhäuser und Gärten am Abend, Hannover, Niedersachsen (© Westend61/Getty Images)
 
 ![](20250802_HerrenhaeuserHannover_1920x1080.jpg)

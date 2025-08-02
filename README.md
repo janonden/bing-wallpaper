@@ -1,3 +1,11 @@
+#### 20250803 優美な扇ねぷた, 青森県 弘前市 (© John S Lander/寄稿者/Getty Images)
+
+![](images/2025-08/20250803_HirosakiNeputaFestival_1920x1080.jpg)
+
+#### 20250803 夏天田野里盛开的向日葵 (© Arsgera/Shutterstock)
+
+![](images/2025-08/20250803_HappySunflower_1920x1080.jpg)
+
 #### 20250802 Herrenhäuser und Gärten am Abend, Hannover, Niedersachsen (© Westend61/Getty Images)
 
 ![](images/2025-08/20250802_HerrenhaeuserHannover_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20250725 Aerial view of colorful houses, Las Palmas de Gran Canaria, Spain (© Marco Bottigelli/Getty Images)
 
 ![](images/2025-07/20250725_LasPalmas_1920x1080.jpg)
-
-#### 20250725 School of blackfin barracuda, Shark Reef, Ras Mohammed National Park, Sinai Peninsula, Egypt (© Alex Mustard/Nature Picture Library)
-
-![](images/2025-07/20250725_BlackfinBarracuda_1920x1080.jpg)
-
-#### 20250724 Innenansicht des Bayreuther Festspielhauses, Bayreuth, Bayern (© Bruce Yuanyue Bi/Getty Images)
-
-![](images/2025-07/20250724_BayreuthTheatre_1920x1080.jpg)
 
 
 
