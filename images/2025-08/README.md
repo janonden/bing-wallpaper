@@ -2,7 +2,7 @@
 
 ![](20250803_HirosakiNeputaFestival_1920x1080.jpg)
 
-#### 20250803 夏天田野里盛开的向日葵 (© Arsgera/Shutterstock)
+#### 20250803 Sunflowers in a field in summer (© Arsgera/Shutterstock)
 
 ![](20250803_HappySunflower_1920x1080.jpg)
 
