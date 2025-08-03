@@ -1,3 +1,7 @@
+#### 20250804 巢中的乌林鸮, 芬兰 (© imageBROKER.com/Alamy Stock Photo)
+
+![](20250804_LaplandOwl_1920x1080.jpg)
+
 #### 20250803 優美な扇ねぷた, 青森県 弘前市 (© John S Lander/寄稿者/Getty Images)
 
 ![](20250803_HirosakiNeputaFestival_1920x1080.jpg)

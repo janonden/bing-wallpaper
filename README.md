@@ -1,3 +1,7 @@
+#### 20250804 巢中的乌林鸮, 芬兰 (© imageBROKER.com/Alamy Stock Photo)
+
+![](images/2025-08/20250804_LaplandOwl_1920x1080.jpg)
+
 #### 20250803 優美な扇ねぷた, 青森県 弘前市 (© John S Lander/寄稿者/Getty Images)
 
 ![](images/2025-08/20250803_HirosakiNeputaFestival_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250726 Mangrove trees at twilight, Walakiri Beach, island of Sumba, Indonesia (© Boonchet Ch./Getty Images)
 
 ![](images/2025-07/20250726_MangroveTwilight_1920x1080.jpg)
-
-#### 20250725 Aerial view of colorful houses, Las Palmas de Gran Canaria, Spain (© Marco Bottigelli/Getty Images)
-
-![](images/2025-07/20250725_LasPalmas_1920x1080.jpg)
 
 
 
