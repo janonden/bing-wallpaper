@@ -1,3 +1,7 @@
+#### 20250805 拉霍亚的潮汐池‌, 加利福尼亚州, 美国 (© Andrew Shoemaker/DanitaDelimont.com)
+
+![](20250805_CaliforniaTidepool_1920x1080.jpg)
+
 #### 20250804 Great gray owls in their nest, Finland (© imageBROKER.com/Alamy)
 
 ![](20250804_LaplandOwl_1920x1080.jpg)
