@@ -1,4 +1,4 @@
-#### 20250804 巢中的乌林鸮, 芬兰 (© imageBROKER.com/Alamy Stock Photo)
+#### 20250804 Great gray owls in their nest, Finland (© imageBROKER.com/Alamy)
 
 ![](20250804_LaplandOwl_1920x1080.jpg)
 
