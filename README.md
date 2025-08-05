@@ -2,7 +2,7 @@
 
 ![](images/2025-08/20250805_PoppyfieldAdelschlag_1920x1080.jpg)
 
-#### 20250805 拉霍亚的潮汐池‌, 加利福尼亚州, 美国 (© Andrew Shoemaker/DanitaDelimont.com)
+#### 20250805 Tide pools in La Jolla, California (© Andrew Shoemaker/DanitaDelimont.com)
 
 ![](images/2025-08/20250805_CaliforniaTidepool_1920x1080.jpg)
 
