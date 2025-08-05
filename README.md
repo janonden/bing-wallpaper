@@ -1,3 +1,7 @@
+#### 20250805 Mohnfelder, Adelschlag, Bayern (© Michael Rucker/Getty Images)
+
+![](images/2025-08/20250805_PoppyfieldAdelschlag_1920x1080.jpg)
+
 #### 20250805 拉霍亚的潮汐池‌, 加利福尼亚州, 美国 (© Andrew Shoemaker/DanitaDelimont.com)
 
 ![](images/2025-08/20250805_CaliforniaTidepool_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250728 Yurts in the grasslands of Mongolia (© Michel Arnault/Shutterstock)
 
 ![](images/2025-07/20250728_MongoliaYurts_1920x1080.jpg)
-
-#### 20250727 Le peloton du Tour de France 2019, Arc de Triomphe du Tour de France, Paris (© Kiran Ridley/Getty Images)
-
-![](images/2025-07/20250727_TourFrance_1920x1080.jpg)
 
 
 
