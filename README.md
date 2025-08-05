@@ -1,3 +1,7 @@
+#### 20250806 平和のピースキャンドル, 長崎県 長崎市 (© NurPhoto/寄稿者/Getty Images)
+
+![](images/2025-08/20250806_HiroshimaPeace_1920x1080.jpg)
+
 #### 20250805 Mohnfelder, Adelschlag, Bayern (© Michael Rucker/Getty Images)
 
 ![](images/2025-08/20250805_PoppyfieldAdelschlag_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250729 Female Bengal tiger, Kanha National Park, India (© Axel Gomille/Nature Picture Library)
 
 ![](images/2025-07/20250729_TigerDay_1920x1080.jpg)
-
-#### 20250728 Yurts in the grasslands of Mongolia (© Michel Arnault/Shutterstock)
-
-![](images/2025-07/20250728_MongoliaYurts_1920x1080.jpg)
 
 
 
