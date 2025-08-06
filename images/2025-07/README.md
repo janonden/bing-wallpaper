@@ -1,4 +1,4 @@
-#### 20250731 纳帕利海岸的卡拉劳海滩, 可爱岛, 夏威夷, 美国 (© Russ Bishop/DanitaDelimont.com)
+#### 20250731 Kalalau Beach on the Nā Pali Coast, Kauai, Hawaii (© Russ Bishop/DanitaDelimont.com)
 
 ![](20250731_NaPaliKauai_1920x1080.jpg)
 
