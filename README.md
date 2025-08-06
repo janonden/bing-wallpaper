@@ -1,3 +1,7 @@
+#### 20250807 加斯帕里拉岛灯塔后导标灯, 博卡格兰德, 佛罗里达州, 美国 (© Wiltser/Getty Images)
+
+![](images/2025-08/20250807_GasparillaLight_1920x1080.jpg)
+
 #### 20250806 平和のピースキャンドル, 長崎県 長崎市 (© NurPhoto/寄稿者/Getty Images)
 
 ![](images/2025-08/20250806_HiroshimaPeace_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250730 里瓦德塞利亚，阿斯图里亚斯，西班牙 (© Agnieszka Glowala/Getty Images)
 
 ![](images/2025-07/20250730_RibadesellaSummer_1920x1080.jpg)
-
-#### 20250729 Female Bengal tiger, Kanha National Park, India (© Axel Gomille/Nature Picture Library)
-
-![](images/2025-07/20250729_TigerDay_1920x1080.jpg)
 
 
 

@@ -1,3 +1,7 @@
+#### 20250807 加斯帕里拉岛灯塔后导标灯, 博卡格兰德, 佛罗里达州, 美国 (© Wiltser/Getty Images)
+
+![](20250807_GasparillaLight_1920x1080.jpg)
+
 #### 20250806 平和のピースキャンドル, 長崎県 長崎市 (© NurPhoto/寄稿者/Getty Images)
 
 ![](20250806_HiroshimaPeace_1920x1080.jpg)
