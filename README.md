@@ -1,3 +1,7 @@
+#### 20250807 Monoliths of the Mingan Archipelago, Quebec (© David Boutin Photography/Getty Images)
+
+![](images/2025-08/20250807_MinganWonders_1920x1080.jpg)
+
 #### 20250807 加斯帕里拉岛灯塔后导标灯, 博卡格兰德, 佛罗里达州, 美国 (© Wiltser/Getty Images)
 
 ![](images/2025-08/20250807_GasparillaLight_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250730 'Beyond Walls' land-art installation by Saype at Expo 2020 Dubai, United Arab Emirates (© VALENTIN FLAURAUD/EPA-EFE/Shutterstock)
 
 ![](images/2025-07/20250730_SaypeDubai_1920x1080.jpg)
-
-#### 20250730 里瓦德塞利亚，阿斯图里亚斯，西班牙 (© Agnieszka Glowala/Getty Images)
-
-![](images/2025-07/20250730_RibadesellaSummer_1920x1080.jpg)
 
 
 
