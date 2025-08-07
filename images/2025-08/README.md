@@ -2,7 +2,7 @@
 
 ![](20250807_MinganWonders_1920x1080.jpg)
 
-#### 20250807 加斯帕里拉岛灯塔后导标灯, 博卡格兰德, 佛罗里达州, 美国 (© Wiltser/Getty Images)
+#### 20250807 Gasparilla Island Rear Range Light, Boca Grande, Florida (© Wiltser/Getty Images)
 
 ![](20250807_GasparillaLight_1920x1080.jpg)
 
