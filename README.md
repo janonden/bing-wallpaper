@@ -1,3 +1,7 @@
+#### 20250808 伊瓜苏瀑布的三火枪瀑布, 阿根廷 (© Mark Meredith/Getty Images)
+
+![](images/2025-08/20250808_IguazuArgentina_1920x1080.jpg)
+
 #### 20250807 Monoliths of the Mingan Archipelago, Quebec (© David Boutin Photography/Getty Images)
 
 ![](images/2025-08/20250807_MinganWonders_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250731 Ring-tailed lemur infant playing with its own tail, Madagascar (© Andy Rouse/Nature Picture Library)
 
 ![](images/2025-07/20250731_BabyLemur_1920x1080.jpg)
-
-#### 20250730 'Beyond Walls' land-art installation by Saype at Expo 2020 Dubai, United Arab Emirates (© VALENTIN FLAURAUD/EPA-EFE/Shutterstock)
-
-![](images/2025-07/20250730_SaypeDubai_1920x1080.jpg)
 
 
 
