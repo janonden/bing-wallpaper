@@ -1,3 +1,7 @@
+#### 20250809 陶波湖上的 Ngātoroirangi 矿湾毛利石刻, 新西兰 (© Joppi/Getty Images)
+
+![](20250809_MaoriRock_1920x1080.jpg)
+
 #### 20250808 Three Musketeers Falls at Iguazú Falls, Argentina (© Mark Meredith/Getty Images)
 
 ![](20250808_IguazuArgentina_1920x1080.jpg)
