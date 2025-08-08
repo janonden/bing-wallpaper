@@ -1,4 +1,4 @@
-#### 20250808 伊瓜苏瀑布的三火枪瀑布, 阿根廷 (© Mark Meredith/Getty Images)
+#### 20250808 Three Musketeers Falls at Iguazú Falls, Argentina (© Mark Meredith/Getty Images)
 
 ![](20250808_IguazuArgentina_1920x1080.jpg)
 
