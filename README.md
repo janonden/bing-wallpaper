@@ -1,3 +1,7 @@
+#### 20250809 Feuerwerk Rhein in Flammen, Spay/Koblenz, Rheinland-Pfalz (© EKH-Pictures/Getty Images)
+
+![](images/2025-08/20250809_RhineFirework_1920x1080.jpg)
+
 #### 20250809 陶波湖上的 Ngātoroirangi 矿湾毛利石刻, 新西兰 (© Joppi/Getty Images)
 
 ![](images/2025-08/20250809_MaoriRock_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250801 Royal Mile, Edinburgh, Scotland (© MEDITERRANEAN/Getty Images)
 
 ![](images/2025-08/20250801_EdinburghFringe_1920x1080.jpg)
-
-#### 20250731 Kalalau Beach on the Nā Pali Coast, Kauai, Hawaii (© Russ Bishop/DanitaDelimont.com)
-
-![](images/2025-07/20250731_NaPaliKauai_1920x1080.jpg)
 
 
 
