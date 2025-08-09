@@ -2,6 +2,10 @@
 
 ![](images/2025-08/20250810_RotatoriaLetras_1920x1080.jpg)
 
+#### 20250810 马赛马拉国家保护区的雌狮,肯尼亚 (© Tandem Stock/Adobe Stock)
+
+![](images/2025-08/20250810_LionessKenya_1920x1080.jpg)
+
 #### 20250809 Feuerwerk Rhein in Flammen, Spay/Koblenz, Rheinland-Pfalz (© EKH-Pictures/Getty Images)
 
 ![](images/2025-08/20250809_RhineFirework_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250802 Petroglyphs near Fruita in Capitol Reef National Park, Utah (© Nicolas VINCENT/Adobe Stock)
 
 ![](images/2025-08/20250802_FruitaPetroglyphs_1920x1080.jpg)
-
-#### 20250801 Costumes folkloriques bretons, Lorient, Finistère (© guy-ozenne/Getty images)
-
-![](images/2025-08/20250801_LorientCeltic_1920x1080.jpg)
 
 
 

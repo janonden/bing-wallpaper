@@ -2,6 +2,10 @@
 
 ![](20250810_RotatoriaLetras_1920x1080.jpg)
 
+#### 20250810 马赛马拉国家保护区的雌狮,肯尼亚 (© Tandem Stock/Adobe Stock)
+
+![](20250810_LionessKenya_1920x1080.jpg)
+
 #### 20250809 Feuerwerk Rhein in Flammen, Spay/Koblenz, Rheinland-Pfalz (© EKH-Pictures/Getty Images)
 
 ![](20250809_RhineFirework_1920x1080.jpg)
