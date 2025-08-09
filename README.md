@@ -1,8 +1,12 @@
+#### 20250810 Letters Square Roundabout, Manaus, Brazil (© Cristian Lourenço/Getty Images)
+
+![](images/2025-08/20250810_RotatoriaLetras_1920x1080.jpg)
+
 #### 20250809 Feuerwerk Rhein in Flammen, Spay/Koblenz, Rheinland-Pfalz (© EKH-Pictures/Getty Images)
 
 ![](images/2025-08/20250809_RhineFirework_1920x1080.jpg)
 
-#### 20250809 陶波湖上的 Ngātoroirangi 矿湾毛利石刻, 新西兰 (© Joppi/Getty Images)
+#### 20250809 Ngātoroirangi Mine Bay Māori Rock Carvings on Lake Taupō, New Zealand (© Joppi/Getty Images)
 
 ![](images/2025-08/20250809_MaoriRock_1920x1080.jpg)
 
@@ -53,10 +57,6 @@
 #### 20250801 Costumes folkloriques bretons, Lorient, Finistère (© guy-ozenne/Getty images)
 
 ![](images/2025-08/20250801_LorientCeltic_1920x1080.jpg)
-
-#### 20250801 Royal Mile, Edinburgh, Scotland (© MEDITERRANEAN/Getty Images)
-
-![](images/2025-08/20250801_EdinburghFringe_1920x1080.jpg)
 
 
 
