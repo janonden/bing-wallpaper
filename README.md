@@ -34,6 +34,10 @@
 
 ![](images/2025-08/20250807_GasparillaLight_1920x1080.jpg)
 
+#### 20250807 Ring-tailed lemur infant playing with its own tail, Madagascar (© Andy Rouse/Nature Picture Library)
+
+![](images/2025-08/20250807_BabyLemur_1920x1080.jpg)
+
 #### 20250806 平和のピースキャンドル, 長崎県 長崎市 (© NurPhoto/寄稿者/Getty Images)
 
 ![](images/2025-08/20250806_HiroshimaPeace_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250803 優美な扇ねぷた, 青森県 弘前市 (© John S Lander/寄稿者/Getty Images)
 
 ![](images/2025-08/20250803_HirosakiNeputaFestival_1920x1080.jpg)
-
-#### 20250803 Sunflowers in a field in summer (© Arsgera/Shutterstock)
-
-![](images/2025-08/20250803_HappySunflower_1920x1080.jpg)
 
 
 

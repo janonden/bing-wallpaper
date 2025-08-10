@@ -34,6 +34,10 @@
 
 ![](20250807_GasparillaLight_1920x1080.jpg)
 
+#### 20250807 Ring-tailed lemur infant playing with its own tail, Madagascar (© Andy Rouse/Nature Picture Library)
+
+![](20250807_BabyLemur_1920x1080.jpg)
+
 #### 20250806 平和のピースキャンドル, 長崎県 長崎市 (© NurPhoto/寄稿者/Getty Images)
 
 ![](20250806_HiroshimaPeace_1920x1080.jpg)
