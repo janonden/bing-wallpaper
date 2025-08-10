@@ -1,3 +1,11 @@
+#### 20250811 圣玛格达莱娜, 多洛米蒂山, 意大利 (© Sakrapee Nopparat/Getty Images)
+
+![](images/2025-08/20250811_SantaMaddalena_1920x1080.jpg)
+
+#### 20250811 中部山岳国立公園の上高地, 長野県 松本市 (© Poca Wander/Getty Images)
+
+![](images/2025-08/20250811_MountainDay_1920x1080.jpg)
+
 #### 20250810 Letters Square Roundabout, Manaus, Brazil (© Cristian Lourenço/Getty Images)
 
 ![](images/2025-08/20250810_RotatoriaLetras_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20250803 Sunflowers in a field in summer (© Arsgera/Shutterstock)
 
 ![](images/2025-08/20250803_HappySunflower_1920x1080.jpg)
-
-#### 20250802 Herrenhäuser und Gärten am Abend, Hannover, Niedersachsen (© Westend61/Getty Images)
-
-![](images/2025-08/20250802_HerrenhaeuserHannover_1920x1080.jpg)
-
-#### 20250802 Petroglyphs near Fruita in Capitol Reef National Park, Utah (© Nicolas VINCENT/Adobe Stock)
-
-![](images/2025-08/20250802_FruitaPetroglyphs_1920x1080.jpg)
 
 
 
