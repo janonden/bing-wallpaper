@@ -38,6 +38,10 @@
 
 ![](20250807_BabyLemur_1920x1080.jpg)
 
+#### 20250806 Kalalau Beach on the Nā Pali Coast, Kauai, Hawaii (© Russ Bishop/DanitaDelimont.com)
+
+![](20250806_NaPaliKauai_1920x1080.jpg)
+
 #### 20250806 平和のピースキャンドル, 長崎県 長崎市 (© NurPhoto/寄稿者/Getty Images)
 
 ![](20250806_HiroshimaPeace_1920x1080.jpg)

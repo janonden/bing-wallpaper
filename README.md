@@ -38,6 +38,10 @@
 
 ![](images/2025-08/20250807_BabyLemur_1920x1080.jpg)
 
+#### 20250806 Kalalau Beach on the Nā Pali Coast, Kauai, Hawaii (© Russ Bishop/DanitaDelimont.com)
+
+![](images/2025-08/20250806_NaPaliKauai_1920x1080.jpg)
+
 #### 20250806 平和のピースキャンドル, 長崎県 長崎市 (© NurPhoto/寄稿者/Getty Images)
 
 ![](images/2025-08/20250806_HiroshimaPeace_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250804 Great gray owls in their nest, Finland (© imageBROKER.com/Alamy)
 
 ![](images/2025-08/20250804_LaplandOwl_1920x1080.jpg)
-
-#### 20250803 優美な扇ねぷた, 青森県 弘前市 (© John S Lander/寄稿者/Getty Images)
-
-![](images/2025-08/20250803_HirosakiNeputaFestival_1920x1080.jpg)
 
 
 
