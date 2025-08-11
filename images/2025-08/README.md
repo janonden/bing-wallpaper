@@ -1,3 +1,7 @@
+#### 20250812 非洲象群, 安博塞利国家公园, 肯尼亚 (© Chase Dekker/Minden Pictures)
+
+![](20250812_KenyaElephants_1920x1080.jpg)
+
 #### 20250811 Village of Santa Maddalena, Dolomites, Italy (© Sakrapee Nopparat/Getty Images)
 
 ![](20250811_SantaMaddalena_1920x1080.jpg)

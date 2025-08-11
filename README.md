@@ -1,3 +1,7 @@
+#### 20250812 非洲象群, 安博塞利国家公园, 肯尼亚 (© Chase Dekker/Minden Pictures)
+
+![](images/2025-08/20250812_KenyaElephants_1920x1080.jpg)
+
 #### 20250811 Village of Santa Maddalena, Dolomites, Italy (© Sakrapee Nopparat/Getty Images)
 
 ![](images/2025-08/20250811_SantaMaddalena_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250805 Tide pools in La Jolla, California (© Andrew Shoemaker/DanitaDelimont.com)
 
 ![](images/2025-08/20250805_CaliforniaTidepool_1920x1080.jpg)
-
-#### 20250804 Great gray owls in their nest, Finland (© imageBROKER.com/Alamy)
-
-![](images/2025-08/20250804_LaplandOwl_1920x1080.jpg)
 
 
 
