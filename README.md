@@ -1,4 +1,4 @@
-#### 20250811 圣玛格达莱娜, 多洛米蒂山, 意大利 (© Sakrapee Nopparat/Getty Images)
+#### 20250811 Village of Santa Maddalena, Dolomites, Italy (© Sakrapee Nopparat/Getty Images)
 
 ![](images/2025-08/20250811_SantaMaddalena_1920x1080.jpg)
 
