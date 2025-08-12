@@ -1,3 +1,7 @@
+#### 20250813 一名男子从摩押附近的科罗纳拱门索降, 美国 (© Grant Ordelheide/TANDEM Stills + Motion)
+
+![](20250813_CoronaArch_1920x1080.jpg)
+
 #### 20250812 African elephant herd, Amboseli National Park, Kenya (© Chase Dekker/Minden Pictures)
 
 ![](20250812_KenyaElephants_1920x1080.jpg)

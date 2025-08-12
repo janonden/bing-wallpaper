@@ -1,3 +1,7 @@
+#### 20250813 一名男子从摩押附近的科罗纳拱门索降, 美国 (© Grant Ordelheide/TANDEM Stills + Motion)
+
+![](images/2025-08/20250813_CoronaArch_1920x1080.jpg)
+
 #### 20250812 African elephant herd, Amboseli National Park, Kenya (© Chase Dekker/Minden Pictures)
 
 ![](images/2025-08/20250812_KenyaElephants_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250805 Mohnfelder, Adelschlag, Bayern (© Michael Rucker/Getty Images)
 
 ![](images/2025-08/20250805_PoppyfieldAdelschlag_1920x1080.jpg)
-
-#### 20250805 Tide pools in La Jolla, California (© Andrew Shoemaker/DanitaDelimont.com)
-
-![](images/2025-08/20250805_CaliforniaTidepool_1920x1080.jpg)
 
 
 
