@@ -1,3 +1,7 @@
+#### 20250814 皮兹奈尔山缆车站, 格劳宾登州, 瑞士 (© Roberto Moiola/Alamy)
+
+![](20250814_PizNairPeak_1920x1080.jpg)
+
 #### 20250813 Flamant rose, Saintes-Maries-de-la-Mer, Parc naturel régional de Camargue, Languedoc-Roussillon (© Raimund Linke/Getty Images)
 
 ![](20250813_Flamingos_1920x1080.jpg)
