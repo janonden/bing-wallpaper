@@ -1,3 +1,7 @@
+#### 20250813 Flamant rose, Saintes-Maries-de-la-Mer, Parc naturel régional de Camargue, Languedoc-Roussillon (© Raimund Linke/Getty Images)
+
+![](20250813_Flamingos_1920x1080.jpg)
+
 #### 20250813 一名男子从摩押附近的科罗纳拱门索降, 美国 (© Grant Ordelheide/TANDEM Stills + Motion)
 
 ![](20250813_CoronaArch_1920x1080.jpg)

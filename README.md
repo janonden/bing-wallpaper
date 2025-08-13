@@ -1,3 +1,7 @@
+#### 20250813 Flamant rose, Saintes-Maries-de-la-Mer, Parc naturel régional de Camargue, Languedoc-Roussillon (© Raimund Linke/Getty Images)
+
+![](images/2025-08/20250813_Flamingos_1920x1080.jpg)
+
 #### 20250813 一名男子从摩押附近的科罗纳拱门索降, 美国 (© Grant Ordelheide/TANDEM Stills + Motion)
 
 ![](images/2025-08/20250813_CoronaArch_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250806 平和のピースキャンドル, 長崎県 長崎市 (© NurPhoto/寄稿者/Getty Images)
 
 ![](images/2025-08/20250806_HiroshimaPeace_1920x1080.jpg)
-
-#### 20250805 Mohnfelder, Adelschlag, Bayern (© Michael Rucker/Getty Images)
-
-![](images/2025-08/20250805_PoppyfieldAdelschlag_1920x1080.jpg)
 
 
 
