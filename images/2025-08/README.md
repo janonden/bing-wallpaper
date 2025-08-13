@@ -2,7 +2,7 @@
 
 ![](20250813_Flamingos_1920x1080.jpg)
 
-#### 20250813 一名男子从摩押附近的科罗纳拱门索降, 美国 (© Grant Ordelheide/TANDEM Stills + Motion)
+#### 20250813 A man rappels off Corona Arch near Moab, Utah (© Grant Ordelheide/TANDEM Stills + Motion)
 
 ![](20250813_CoronaArch_1920x1080.jpg)
 
