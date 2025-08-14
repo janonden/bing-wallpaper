@@ -1,3 +1,7 @@
+#### 20250815 斑点鹞鲼，圣克里斯托瓦尔岛‌，‌加拉帕戈斯群岛，厄瓜多尔 (© Tui De Roy/Minden Pictures)
+
+![](20250815_SpottedEagleRay_1920x1080.jpg)
+
 #### 20250814 Cable car station on Piz Nair mountain, Graubünden, Switzerland (© Roberto Moiola/Alamy)
 
 ![](20250814_PizNairPeak_1920x1080.jpg)
