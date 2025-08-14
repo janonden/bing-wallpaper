@@ -1,4 +1,4 @@
-#### 20250814 皮兹奈尔山缆车站, 格劳宾登州, 瑞士 (© Roberto Moiola/Alamy)
+#### 20250814 Cable car station on Piz Nair mountain, Graubünden, Switzerland (© Roberto Moiola/Alamy)
 
 ![](images/2025-08/20250814_PizNairPeak_1920x1080.jpg)
 
