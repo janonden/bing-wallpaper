@@ -1,4 +1,4 @@
-#### 20250815 斑点鹞鲼，圣克里斯托瓦尔岛‌，‌加拉帕戈斯群岛，厄瓜多尔 (© Tui De Roy/Minden Pictures)
+#### 20250815 Spotted eagle rays, San Cristóbal Island, Galápagos Islands, Ecuador (© Tui De Roy/Minden Pictures)
 
 ![](images/2025-08/20250815_SpottedEagleRay_1920x1080.jpg)
 
