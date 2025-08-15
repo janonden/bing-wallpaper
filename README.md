@@ -1,3 +1,11 @@
+#### 20250816 大の字の中心・金尾の火床, 京都府 京都市 (© kumikomini/Getty Images)
+
+![](images/2025-08/20250816_Okuribi_1920x1080.jpg)
+
+#### 20250816 色彩斑斓的蜂巢, 意大利 (© Roberto Caucino/Shutterstock)
+
+![](images/2025-08/20250816_ColorfulBeehives_1920x1080.jpg)
+
 #### 20250815 Spotted eagle rays, San Cristóbal Island, Galápagos Islands, Ecuador (© Tui De Roy/Minden Pictures)
 
 ![](images/2025-08/20250815_SpottedEagleRay_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20250808 Three Musketeers Falls at Iguazú Falls, Argentina (© Mark Meredith/Getty Images)
 
 ![](images/2025-08/20250808_IguazuArgentina_1920x1080.jpg)
-
-#### 20250807 Monoliths of the Mingan Archipelago, Quebec (© David Boutin Photography/Getty Images)
-
-![](images/2025-08/20250807_MinganWonders_1920x1080.jpg)
-
-#### 20250807 Gasparilla Island Rear Range Light, Boca Grande, Florida (© Wiltser/Getty Images)
-
-![](images/2025-08/20250807_GasparillaLight_1920x1080.jpg)
 
 
 

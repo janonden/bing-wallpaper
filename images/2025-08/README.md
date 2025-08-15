@@ -1,3 +1,11 @@
+#### 20250816 大の字の中心・金尾の火床, 京都府 京都市 (© kumikomini/Getty Images)
+
+![](20250816_Okuribi_1920x1080.jpg)
+
+#### 20250816 色彩斑斓的蜂巢, 意大利 (© Roberto Caucino/Shutterstock)
+
+![](20250816_ColorfulBeehives_1920x1080.jpg)
+
 #### 20250815 Spotted eagle rays, San Cristóbal Island, Galápagos Islands, Ecuador (© Tui De Roy/Minden Pictures)
 
 ![](20250815_SpottedEagleRay_1920x1080.jpg)
