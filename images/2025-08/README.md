@@ -2,6 +2,10 @@
 
 ![](20250815_SpottedEagleRay_1920x1080.jpg)
 
+#### 20250815 The Orbitor ride at the Canadian National Exhibition, Toronto (© James Hackland/Alamy Stock Photo)
+
+![](20250815_CNExhibit_1920x1080.jpg)
+
 #### 20250814 Cable car station on Piz Nair mountain, Graubünden, Switzerland (© Roberto Moiola/Alamy)
 
 ![](20250814_PizNairPeak_1920x1080.jpg)

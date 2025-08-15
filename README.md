@@ -2,6 +2,10 @@
 
 ![](images/2025-08/20250815_SpottedEagleRay_1920x1080.jpg)
 
+#### 20250815 The Orbitor ride at the Canadian National Exhibition, Toronto (© James Hackland/Alamy Stock Photo)
+
+![](images/2025-08/20250815_CNExhibit_1920x1080.jpg)
+
 #### 20250814 Cable car station on Piz Nair mountain, Graubünden, Switzerland (© Roberto Moiola/Alamy)
 
 ![](images/2025-08/20250814_PizNairPeak_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250807 Gasparilla Island Rear Range Light, Boca Grande, Florida (© Wiltser/Getty Images)
 
 ![](images/2025-08/20250807_GasparillaLight_1920x1080.jpg)
-
-#### 20250807 Ring-tailed lemur infant playing with its own tail, Madagascar (© Andy Rouse/Nature Picture Library)
-
-![](images/2025-08/20250807_BabyLemur_1920x1080.jpg)
 
 
 
