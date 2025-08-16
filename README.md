@@ -1,3 +1,7 @@
+#### 20250817 灵维格灯塔，维泽桑讷，丹麦 (© Caroline Brundle Bugge/Getty Images)
+
+![](images/2025-08/20250817_LyngvigLighthouse_1920x1080.jpg)
+
 #### 20250816 大の字の中心・金尾の火床, 京都府 京都市 (© kumikomini/Getty Images)
 
 ![](images/2025-08/20250816_Okuribi_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250809 Feuerwerk Rhein in Flammen, Spay/Koblenz, Rheinland-Pfalz (© EKH-Pictures/Getty Images)
 
 ![](images/2025-08/20250809_RhineFirework_1920x1080.jpg)
-
-#### 20250809 Ngātoroirangi Mine Bay Māori Rock Carvings on Lake Taupō, New Zealand (© Joppi/Getty Images)
-
-![](images/2025-08/20250809_MaoriRock_1920x1080.jpg)
 
 
 

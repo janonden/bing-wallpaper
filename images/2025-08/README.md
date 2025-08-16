@@ -1,3 +1,7 @@
+#### 20250817 灵维格灯塔，维泽桑讷，丹麦 (© Caroline Brundle Bugge/Getty Images)
+
+![](20250817_LyngvigLighthouse_1920x1080.jpg)
+
 #### 20250816 大の字の中心・金尾の火床, 京都府 京都市 (© kumikomini/Getty Images)
 
 ![](20250816_Okuribi_1920x1080.jpg)
