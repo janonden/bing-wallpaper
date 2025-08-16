@@ -2,6 +2,10 @@
 
 ![](20250816_Okuribi_1920x1080.jpg)
 
+#### 20250816 Cerfs-volants dans le ciel de Fréjus, Var, Provence-Alpes-Côte d’Azur (© ICHAUVEL/Getty Images)
+
+![](20250816_KiteFrejus_1920x1080.jpg)
+
 #### 20250816 色彩斑斓的蜂巢, 意大利 (© Roberto Caucino/Shutterstock)
 
 ![](20250816_ColorfulBeehives_1920x1080.jpg)
