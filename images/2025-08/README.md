@@ -6,7 +6,7 @@
 
 ![](20250816_KiteFrejus_1920x1080.jpg)
 
-#### 20250816 色彩斑斓的蜂巢, 意大利 (© Roberto Caucino/Shutterstock)
+#### 20250816 Colorful beehives in Italy (© Roberto Caucino/Shutterstock)
 
 ![](20250816_ColorfulBeehives_1920x1080.jpg)
 
