@@ -1,4 +1,4 @@
-#### 20250817 灵维格灯塔，维泽桑讷，丹麦 (© Caroline Brundle Bugge/Getty Images)
+#### 20250817 Lyngvig Lighthouse, Hvide Sande, Denmark (© Caroline Brundle Bugge/Getty Images)
 
 ![](images/2025-08/20250817_LyngvigLighthouse_1920x1080.jpg)
 
