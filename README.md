@@ -1,3 +1,7 @@
+#### 20250818 雪崩湖步道，阿迪朗达克高峰区，纽约州，美国 (© Posnov/Getty Images)
+
+![](images/2025-08/20250818_AvalancheLake_1920x1080.jpg)
+
 #### 20250817 Lyngvig Lighthouse, Hvide Sande, Denmark (© Caroline Brundle Bugge/Getty Images)
 
 ![](images/2025-08/20250817_LyngvigLighthouse_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250810 Lioness in Maasai Mara National Reserve, Kenya (© Tandem Stock/Adobe Stock)
 
 ![](images/2025-08/20250810_LionessKenya_1920x1080.jpg)
-
-#### 20250809 Feuerwerk Rhein in Flammen, Spay/Koblenz, Rheinland-Pfalz (© EKH-Pictures/Getty Images)
-
-![](images/2025-08/20250809_RhineFirework_1920x1080.jpg)
 
 
 
