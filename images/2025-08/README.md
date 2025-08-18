@@ -1,3 +1,7 @@
+#### 20250819 祖马亚的复理层，巴斯克地区，西班牙 (© Eloi_Omella/Getty Images)
+
+![](20250819_GipuzcoaSummer_1920x1080.jpg)
+
 #### 20250818 Wanderer bei Sonnenaufgang auf einem Bergkamm, Nationalpark Gesäuse, Steiermark, Österreich (© AscentXmedia/Getty Images)
 
 ![](20250818_GermanyHiker_1920x1080.jpg)

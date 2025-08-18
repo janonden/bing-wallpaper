@@ -1,3 +1,7 @@
+#### 20250819 祖马亚的复理层，巴斯克地区，西班牙 (© Eloi_Omella/Getty Images)
+
+![](images/2025-08/20250819_GipuzcoaSummer_1920x1080.jpg)
+
 #### 20250818 Wanderer bei Sonnenaufgang auf einem Bergkamm, Nationalpark Gesäuse, Steiermark, Österreich (© AscentXmedia/Getty Images)
 
 ![](images/2025-08/20250818_GermanyHiker_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250811 中部山岳国立公園の上高地, 長野県 松本市 (© Poca Wander/Getty Images)
 
 ![](images/2025-08/20250811_MountainDay_1920x1080.jpg)
-
-#### 20250810 Letters Square Roundabout, Manaus, Brazil (© Cristian Lourenço/Getty Images)
-
-![](images/2025-08/20250810_RotatoriaLetras_1920x1080.jpg)
 
 
 
