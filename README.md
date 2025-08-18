@@ -1,3 +1,7 @@
+#### 20250818 Wanderer bei Sonnenaufgang auf einem Bergkamm, Nationalpark Gesäuse, Steiermark, Österreich (© AscentXmedia/Getty Images)
+
+![](images/2025-08/20250818_GermanyHiker_1920x1080.jpg)
+
 #### 20250818 雪崩湖步道，阿迪朗达克高峰区，纽约州，美国 (© Posnov/Getty Images)
 
 ![](images/2025-08/20250818_AvalancheLake_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250810 Letters Square Roundabout, Manaus, Brazil (© Cristian Lourenço/Getty Images)
 
 ![](images/2025-08/20250810_RotatoriaLetras_1920x1080.jpg)
-
-#### 20250810 Lioness in Maasai Mara National Reserve, Kenya (© Tandem Stock/Adobe Stock)
-
-![](images/2025-08/20250810_LionessKenya_1920x1080.jpg)
 
 
 
