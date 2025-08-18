@@ -2,7 +2,7 @@
 
 ![](images/2025-08/20250818_GermanyHiker_1920x1080.jpg)
 
-#### 20250818 雪崩湖步道，阿迪朗达克高峰区，纽约州，美国 (© Posnov/Getty Images)
+#### 20250818 Avalanche Lake Trail at Adirondack High Peaks, New York (© Posnov/Getty Images)
 
 ![](images/2025-08/20250818_AvalancheLake_1920x1080.jpg)
 
