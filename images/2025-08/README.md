@@ -2,6 +2,10 @@
 
 ![](20250819_VanIsland_1920x1080.jpg)
 
+#### 20250819 Solar Impulse 2 at Kalaeloa Airport, Honolulu, Hawaii (© Solar Impulse/Revillard/Sipa/Shutterstock)
+
+![](20250819_SolarAviation_1920x1080.jpg)
+
 #### 20250819 祖马亚的复理层，巴斯克地区，西班牙 (© Eloi_Omella/Getty Images)
 
 ![](20250819_GipuzcoaSummer_1920x1080.jpg)
