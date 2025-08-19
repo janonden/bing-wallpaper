@@ -1,3 +1,7 @@
+#### 20250819 Aerial view of Vancouver Island, British Columbia (© edb3_16/Getty Images)
+
+![](20250819_VanIsland_1920x1080.jpg)
+
 #### 20250819 祖马亚的复理层，巴斯克地区，西班牙 (© Eloi_Omella/Getty Images)
 
 ![](20250819_GipuzcoaSummer_1920x1080.jpg)

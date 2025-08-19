@@ -1,3 +1,7 @@
+#### 20250819 Aerial view of Vancouver Island, British Columbia (© edb3_16/Getty Images)
+
+![](images/2025-08/20250819_VanIsland_1920x1080.jpg)
+
 #### 20250819 祖马亚的复理层，巴斯克地区，西班牙 (© Eloi_Omella/Getty Images)
 
 ![](images/2025-08/20250819_GipuzcoaSummer_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250811 Village of Santa Maddalena, Dolomites, Italy (© Sakrapee Nopparat/Getty Images)
 
 ![](images/2025-08/20250811_SantaMaddalena_1920x1080.jpg)
-
-#### 20250811 中部山岳国立公園の上高地, 長野県 松本市 (© Poca Wander/Getty Images)
-
-![](images/2025-08/20250811_MountainDay_1920x1080.jpg)
 
 
 
