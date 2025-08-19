@@ -1,3 +1,7 @@
+#### 20250820 博尼法乔城堡，科西嘉岛南部，法国 (© Marc Dozier/Getty Images)
+
+![](images/2025-08/20250820_CitadelBonifacio_1920x1080.jpg)
+
 #### 20250819 Aerial view of Vancouver Island, British Columbia (© edb3_16/Getty Images)
 
 ![](images/2025-08/20250819_VanIsland_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250813 A man rappels off Corona Arch near Moab, Utah (© Grant Ordelheide/TANDEM Stills + Motion)
 
 ![](images/2025-08/20250813_CoronaArch_1920x1080.jpg)
-
-#### 20250812 African elephant herd, Amboseli National Park, Kenya (© Chase Dekker/Minden Pictures)
-
-![](images/2025-08/20250812_KenyaElephants_1920x1080.jpg)
 
 
 
