@@ -1,4 +1,4 @@
-#### 20250820 博尼法乔城堡，科西嘉岛南部，法国 (© Marc Dozier/Getty Images)
+#### 20250820 The citadel in Bonifacio, Southern Corsica, France (© Marc Dozier/Getty Images)
 
 ![](20250820_CitadelBonifacio_1920x1080.jpg)
 
