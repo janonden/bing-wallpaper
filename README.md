@@ -1,3 +1,7 @@
+#### 20250821 穗䳭和盛开的帚石楠，峰区国家公园，英格兰 (© Ben Hall/Nature Picture Library)
+
+![](images/2025-08/20250821_WheatearBird_1920x1080.jpg)
+
 #### 20250820 The citadel in Bonifacio, Southern Corsica, France (© Marc Dozier/Getty Images)
 
 ![](images/2025-08/20250820_CitadelBonifacio_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250813 Flamant rose, Saintes-Maries-de-la-Mer, Parc naturel régional de Camargue, Languedoc-Roussillon (© Raimund Linke/Getty Images)
 
 ![](images/2025-08/20250813_Flamingos_1920x1080.jpg)
-
-#### 20250813 A man rappels off Corona Arch near Moab, Utah (© Grant Ordelheide/TANDEM Stills + Motion)
-
-![](images/2025-08/20250813_CoronaArch_1920x1080.jpg)
 
 
 
