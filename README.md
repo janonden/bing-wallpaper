@@ -1,3 +1,7 @@
+#### 20250822 帕卢斯连绵起伏的丘陵，华盛顿州，美国 (© svetlana57/Getty Images)
+
+![](images/2025-08/20250822_PalouseWA_1920x1080.jpg)
+
 #### 20250821 Wheatear and flowering heather, Peak District National Park, England (© Ben Hall/Nature Picture Library)
 
 ![](images/2025-08/20250821_WheatearBird_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250814 Cable car station on Piz Nair mountain, Graubünden, Switzerland (© Roberto Moiola/Alamy)
 
 ![](images/2025-08/20250814_PizNairPeak_1920x1080.jpg)
-
-#### 20250813 Flamant rose, Saintes-Maries-de-la-Mer, Parc naturel régional de Camargue, Languedoc-Roussillon (© Raimund Linke/Getty Images)
-
-![](images/2025-08/20250813_Flamingos_1920x1080.jpg)
 
 
 
