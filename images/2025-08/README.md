@@ -2,7 +2,7 @@
 
 ![](20250822_RockSeine_1920x1080.jpg)
 
-#### 20250822 帕卢斯连绵起伏的丘陵，华盛顿州，美国 (© svetlana57/Getty Images)
+#### 20250822 Rolling hills of the Palouse, Washington (© svetlana57/Getty Images)
 
 ![](20250822_PalouseWA_1920x1080.jpg)
 
