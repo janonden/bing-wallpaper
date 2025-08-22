@@ -1,6 +1,14 @@
+#### 20250822 Domaine national de Saint-Cloud, Grande Cascade, Île de France (© GUIZIOU Franck/hemis.fr)
+
+![](20250822_RockSeine_1920x1080.jpg)
+
 #### 20250822 帕卢斯连绵起伏的丘陵，华盛顿州，美国 (© svetlana57/Getty Images)
 
 ![](20250822_PalouseWA_1920x1080.jpg)
+
+#### 20250822 Ansicht eines landwirtschaftlichen Feldes, Kaiserstuhl, Baden-Württemberg (© EyeEM Mobile GmbH/Getty Images)
+
+![](20250822_FieldKaiserstuhl_1920x1080.jpg)
 
 #### 20250821 Wheatear and flowering heather, Peak District National Park, England (© Ben Hall/Nature Picture Library)
 

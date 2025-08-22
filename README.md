@@ -1,6 +1,14 @@
+#### 20250822 Domaine national de Saint-Cloud, Grande Cascade, Île de France (© GUIZIOU Franck/hemis.fr)
+
+![](images/2025-08/20250822_RockSeine_1920x1080.jpg)
+
 #### 20250822 帕卢斯连绵起伏的丘陵，华盛顿州，美国 (© svetlana57/Getty Images)
 
 ![](images/2025-08/20250822_PalouseWA_1920x1080.jpg)
+
+#### 20250822 Ansicht eines landwirtschaftlichen Feldes, Kaiserstuhl, Baden-Württemberg (© EyeEM Mobile GmbH/Getty Images)
+
+![](images/2025-08/20250822_FieldKaiserstuhl_1920x1080.jpg)
 
 #### 20250821 Wheatear and flowering heather, Peak District National Park, England (© Ben Hall/Nature Picture Library)
 
@@ -49,14 +57,6 @@
 #### 20250815 Spotted eagle rays, San Cristóbal Island, Galápagos Islands, Ecuador (© Tui De Roy/Minden Pictures)
 
 ![](images/2025-08/20250815_SpottedEagleRay_1920x1080.jpg)
-
-#### 20250815 The Orbitor ride at the Canadian National Exhibition, Toronto (© James Hackland/Alamy Stock Photo)
-
-![](images/2025-08/20250815_CNExhibit_1920x1080.jpg)
-
-#### 20250814 Cable car station on Piz Nair mountain, Graubünden, Switzerland (© Roberto Moiola/Alamy)
-
-![](images/2025-08/20250814_PizNairPeak_1920x1080.jpg)
 
 
 
