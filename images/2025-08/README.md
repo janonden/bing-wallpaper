@@ -26,6 +26,10 @@
 
 ![](20250819_SolarAviation_1920x1080.jpg)
 
+#### 20250819 サンタ・マッダレーナ, イタリア (© Sakrapee Nopparat/Getty Images)
+
+![](20250819_SantaMaddalena_1920x1080.jpg)
+
 #### 20250819 祖马亚的复理层，巴斯克地区，西班牙 (© Eloi_Omella/Getty Images)
 
 ![](20250819_GipuzcoaSummer_1920x1080.jpg)

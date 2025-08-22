@@ -26,6 +26,10 @@
 
 ![](images/2025-08/20250819_SolarAviation_1920x1080.jpg)
 
+#### 20250819 サンタ・マッダレーナ, イタリア (© Sakrapee Nopparat/Getty Images)
+
+![](images/2025-08/20250819_SantaMaddalena_1920x1080.jpg)
+
 #### 20250819 祖马亚的复理层，巴斯克地区，西班牙 (© Eloi_Omella/Getty Images)
 
 ![](images/2025-08/20250819_GipuzcoaSummer_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250816 Colorful beehives in Italy (© Roberto Caucino/Shutterstock)
 
 ![](images/2025-08/20250816_ColorfulBeehives_1920x1080.jpg)
-
-#### 20250815 Spotted eagle rays, San Cristóbal Island, Galápagos Islands, Ecuador (© Tui De Roy/Minden Pictures)
-
-![](images/2025-08/20250815_SpottedEagleRay_1920x1080.jpg)
 
 
 
