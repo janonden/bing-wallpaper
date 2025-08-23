@@ -1,3 +1,7 @@
+#### 20250823 Barbaradom, Kuttenberg, Tschechien (© Castka/Getty Images)
+
+![](images/2025-08/20250823_SaintBarbaras_1920x1080.jpg)
+
 #### 20250823 早朝に開花する美しいアサガオ (© borchee/Getty Images)
 
 ![](images/2025-08/20250823_Morningglory_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250817 Lyngvig Lighthouse, Hvide Sande, Denmark (© Caroline Brundle Bugge/Getty Images)
 
 ![](images/2025-08/20250817_LyngvigLighthouse_1920x1080.jpg)
-
-#### 20250816 大の字の中心・金尾の火床, 京都府 京都市 (© kumikomini/Getty Images)
-
-![](images/2025-08/20250816_Okuribi_1920x1080.jpg)
 
 
 

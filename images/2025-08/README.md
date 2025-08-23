@@ -1,3 +1,7 @@
+#### 20250823 Barbaradom, Kuttenberg, Tschechien (© Castka/Getty Images)
+
+![](20250823_SaintBarbaras_1920x1080.jpg)
+
 #### 20250823 早朝に開花する美しいアサガオ (© borchee/Getty Images)
 
 ![](20250823_Morningglory_1920x1080.jpg)
