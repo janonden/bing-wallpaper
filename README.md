@@ -1,4 +1,8 @@
-#### 20250823 Barbaradom, Kuttenberg, Tschechien (© Castka/Getty Images)
+#### 20250824 Greater flamingos, Saintes-Maries-de-la-Mer, Camargue Regional Nature Park, France (© Raimund Linke/Getty Images)
+
+![](images/2025-08/20250824_Flamingos_1920x1080.jpg)
+
+#### 20250823 St. Barbara's Cathedral, Kutná Hora, Czechia (© Castka/Getty Images)
 
 ![](images/2025-08/20250823_SaintBarbaras_1920x1080.jpg)
 
@@ -53,10 +57,6 @@
 #### 20250818 Avalanche Lake Trail at Adirondack High Peaks, New York (© Posnov/Getty Images)
 
 ![](images/2025-08/20250818_AvalancheLake_1920x1080.jpg)
-
-#### 20250817 Lyngvig Lighthouse, Hvide Sande, Denmark (© Caroline Brundle Bugge/Getty Images)
-
-![](images/2025-08/20250817_LyngvigLighthouse_1920x1080.jpg)
 
 
 

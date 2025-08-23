@@ -1,4 +1,8 @@
-#### 20250823 Barbaradom, Kuttenberg, Tschechien (© Castka/Getty Images)
+#### 20250824 Greater flamingos, Saintes-Maries-de-la-Mer, Camargue Regional Nature Park, France (© Raimund Linke/Getty Images)
+
+![](20250824_Flamingos_1920x1080.jpg)
+
+#### 20250823 St. Barbara's Cathedral, Kutná Hora, Czechia (© Castka/Getty Images)
 
 ![](20250823_SaintBarbaras_1920x1080.jpg)
 
