@@ -2,6 +2,10 @@
 
 ![](images/2025-08/20250824_Flamingos_1920x1080.jpg)
 
+#### 20250824 欧洲黇鹿‌，英格兰 (© Enrique Aguirre Aves/Getty Images)
+
+![](images/2025-08/20250824_CervusDama_1920x1080.jpg)
+
 #### 20250823 St. Barbara's Cathedral, Kutná Hora, Czechia (© Castka/Getty Images)
 
 ![](images/2025-08/20250823_SaintBarbaras_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250818 Wanderer bei Sonnenaufgang auf einem Bergkamm, Nationalpark Gesäuse, Steiermark, Österreich (© AscentXmedia/Getty Images)
 
 ![](images/2025-08/20250818_GermanyHiker_1920x1080.jpg)
-
-#### 20250818 Avalanche Lake Trail at Adirondack High Peaks, New York (© Posnov/Getty Images)
-
-![](images/2025-08/20250818_AvalancheLake_1920x1080.jpg)
 
 
 
