@@ -62,6 +62,10 @@
 
 ![](20250818_GermanyHiker_1920x1080.jpg)
 
+#### 20250818 Ruches colorées, Italie (© Roberto Caucino/Shutterstock)
+
+![](20250818_ColorfulBeehives_1920x1080.jpg)
+
 #### 20250818 Avalanche Lake Trail at Adirondack High Peaks, New York (© Posnov/Getty Images)
 
 ![](20250818_AvalancheLake_1920x1080.jpg)
