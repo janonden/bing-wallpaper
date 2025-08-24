@@ -1,3 +1,7 @@
+#### 20250825 方解石温泉区和黄石河，黄石国家公园，怀俄明州，美国 (© Rebecca L. Latson/Getty Images)
+
+![](images/2025-08/20250825_YellowstoneRiver_1920x1080.jpg)
+
 #### 20250824 Greater flamingos, Saintes-Maries-de-la-Mer, Camargue Regional Nature Park, France (© Raimund Linke/Getty Images)
 
 ![](images/2025-08/20250824_Flamingos_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250819 祖马亚的复理层，巴斯克地区，西班牙 (© Eloi_Omella/Getty Images)
 
 ![](images/2025-08/20250819_GipuzcoaSummer_1920x1080.jpg)
-
-#### 20250818 Wanderer bei Sonnenaufgang auf einem Bergkamm, Nationalpark Gesäuse, Steiermark, Österreich (© AscentXmedia/Getty Images)
-
-![](images/2025-08/20250818_GermanyHiker_1920x1080.jpg)
 
 
 
