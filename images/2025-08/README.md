@@ -2,7 +2,7 @@
 
 ![](20250824_Flamingos_1920x1080.jpg)
 
-#### 20250824 欧洲黇鹿‌，英格兰 (© Enrique Aguirre Aves/Getty Images)
+#### 20250824 European fallow deer, England (© Enrique Aguirre Aves/Getty Images)
 
 ![](20250824_CervusDama_1920x1080.jpg)
 
