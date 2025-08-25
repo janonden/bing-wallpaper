@@ -1,4 +1,4 @@
-#### 20250825 方解石温泉区和黄石河，黄石国家公园，怀俄明州，美国 (© Rebecca L. Latson/Getty Images)
+#### 20250825 Calcite Springs Overlook and Yellowstone River, Yellowstone National Park, Wyoming (© Rebecca L. Latson/Getty Images)
 
 ![](20250825_YellowstoneRiver_1920x1080.jpg)
 
