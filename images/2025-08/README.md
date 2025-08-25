@@ -2,6 +2,10 @@
 
 ![](20250825_YellowstoneRiver_1920x1080.jpg)
 
+#### 20250825 Colony of northern gannets, Quebec (© Vladone/Getty Images)
+
+![](20250825_Gannets_1920x1080.jpg)
+
 #### 20250824 Greater flamingos, Saintes-Maries-de-la-Mer, Camargue Regional Nature Park, France (© Raimund Linke/Getty Images)
 
 ![](20250824_Flamingos_1920x1080.jpg)
