@@ -1,3 +1,7 @@
+#### 20250826 阿尔贝罗贝洛的特鲁洛建筑，普利亚大区，意大利 (© Feng Wei Photography/Getty Images)
+
+![](20250826_TrulliHouses_1920x1080.jpg)
+
 #### 20250825 Calcite Springs Overlook and Yellowstone River, Yellowstone National Park, Wyoming (© Rebecca L. Latson/Getty Images)
 
 ![](20250825_YellowstoneRiver_1920x1080.jpg)
