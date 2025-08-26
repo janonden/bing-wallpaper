@@ -1,4 +1,4 @@
-#### 20250826 阿尔贝罗贝洛的特鲁洛建筑，普利亚大区，意大利 (© Feng Wei Photography/Getty Images)
+#### 20250826 Trullo buildings in Alberobello, Apulia, Italy (© Feng Wei Photography/Getty Images)
 
 ![](20250826_TrulliHouses_1920x1080.jpg)
 
