@@ -1,3 +1,7 @@
+#### 20250827 瑟沃格湖，瓦加尔岛，法罗群岛 (© Anton Petrus/Getty Images)
+
+![](images/2025-08/20250827_FaroeLake_1920x1080.jpg)
+
 #### 20250826 Trullo buildings in Alberobello, Apulia, Italy (© Feng Wei Photography/Getty Images)
 
 ![](images/2025-08/20250826_TrulliHouses_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250820 The citadel in Bonifacio, Southern Corsica, France (© Marc Dozier/Getty Images)
 
 ![](images/2025-08/20250820_CitadelBonifacio_1920x1080.jpg)
-
-#### 20250819 Aerial view of Vancouver Island, British Columbia (© edb3_16/Getty Images)
-
-![](images/2025-08/20250819_VanIsland_1920x1080.jpg)
 
 
 
