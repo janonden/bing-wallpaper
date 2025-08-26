@@ -2,6 +2,10 @@
 
 ![](images/2025-08/20250826_TrulliHouses_1920x1080.jpg)
 
+#### 20250826 Silhouette eines springenden Kitesurfers bei Sonnenuntergang im baltischen Meer (© Jens Breuer/Getty Images)
+
+![](images/2025-08/20250826_KitesurferGermany_1920x1080.jpg)
+
 #### 20250825 Calcite Springs Overlook and Yellowstone River, Yellowstone National Park, Wyoming (© Rebecca L. Latson/Getty Images)
 
 ![](images/2025-08/20250825_YellowstoneRiver_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250819 Aerial view of Vancouver Island, British Columbia (© edb3_16/Getty Images)
 
 ![](images/2025-08/20250819_VanIsland_1920x1080.jpg)
-
-#### 20250819 Solar Impulse 2 at Kalaeloa Airport, Honolulu, Hawaii (© Solar Impulse/Revillard/Sipa/Shutterstock)
-
-![](images/2025-08/20250819_SolarAviation_1920x1080.jpg)
 
 
 

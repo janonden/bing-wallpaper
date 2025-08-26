@@ -2,6 +2,10 @@
 
 ![](20250826_TrulliHouses_1920x1080.jpg)
 
+#### 20250826 Silhouette eines springenden Kitesurfers bei Sonnenuntergang im baltischen Meer (© Jens Breuer/Getty Images)
+
+![](20250826_KitesurferGermany_1920x1080.jpg)
+
 #### 20250825 Calcite Springs Overlook and Yellowstone River, Yellowstone National Park, Wyoming (© Rebecca L. Latson/Getty Images)
 
 ![](20250825_YellowstoneRiver_1920x1080.jpg)
