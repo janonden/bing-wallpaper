@@ -1,4 +1,4 @@
-#### 20250827 瑟沃格湖，瓦加尔岛，法罗群岛 (© Anton Petrus/Getty Images)
+#### 20250827 Sørvágsvatn lake, island of Vágar, Faroe Islands, Denmark (© Anton Petrus/Getty Images)
 
 ![](images/2025-08/20250827_FaroeLake_1920x1080.jpg)
 
