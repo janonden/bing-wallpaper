@@ -1,3 +1,7 @@
+#### 20250829 马约尔广场鸟瞰图, 马德里, 西班牙 (© AirPano LLC/Amazing Aerial Agency)
+
+![](images/2025-08/20250829_PlazaMayor_1920x1080.jpg)
+
 #### 20250828 Great white egret, Hungary (© Markus Varesvuo/Nature Picture Library)
 
 ![](images/2025-08/20250828_WhiteEgret_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250822 Ansicht eines landwirtschaftlichen Feldes, Kaiserstuhl, Baden-Württemberg (© EyeEM Mobile GmbH/Getty Images)
 
 ![](images/2025-08/20250822_FieldKaiserstuhl_1920x1080.jpg)
-
-#### 20250821 Wheatear and flowering heather, Peak District National Park, England (© Ben Hall/Nature Picture Library)
-
-![](images/2025-08/20250821_WheatearBird_1920x1080.jpg)
 
 
 
