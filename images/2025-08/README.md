@@ -1,4 +1,4 @@
-#### 20250828 大白鹭，匈牙利 (© Markus Varesvuo/Nature Picture Library)
+#### 20250828 Great white egret, Hungary (© Markus Varesvuo/Nature Picture Library)
 
 ![](20250828_WhiteEgret_1920x1080.jpg)
 
