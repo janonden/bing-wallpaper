@@ -1,3 +1,11 @@
+#### 20250830 全国花火競技大会, 秋田県, 大仙市 (© Toru Hanai/寄稿者/Getty Images)
+
+![](20250830_OmagariFireworks_1920x1080.jpg)
+
+#### 20250830 阿里夫达鲁环礁海岸的鲸鲨, 马尔代夫 (© Bachir Moukarzel/Amazing Aerial Agency)
+
+![](20250830_MaldivesWhaleShark_1920x1080.jpg)
+
 #### 20250829 Aerial view of Plaza Mayor, Madrid, Spain (© AirPano LLC/Amazing Aerial Agency)
 
 ![](20250829_PlazaMayor_1920x1080.jpg)
