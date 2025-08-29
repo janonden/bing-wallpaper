@@ -1,4 +1,4 @@
-#### 20250829 马约尔广场鸟瞰图, 马德里, 西班牙 (© AirPano LLC/Amazing Aerial Agency)
+#### 20250829 Aerial view of Plaza Mayor, Madrid, Spain (© AirPano LLC/Amazing Aerial Agency)
 
 ![](20250829_PlazaMayor_1920x1080.jpg)
 
