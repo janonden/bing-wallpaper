@@ -1,3 +1,7 @@
+#### 20250831 杰灵的斯科茨布拉夫国家纪念碑‌, 内布拉斯加州,美国 (© Hawk Buckman/Getty Images)
+
+![](20250831_ScottsBluff_1920x1080.jpg)
+
 #### 20250830 全国花火競技大会, 秋田県, 大仙市 (© Toru Hanai/寄稿者/Getty Images)
 
 ![](20250830_OmagariFireworks_1920x1080.jpg)

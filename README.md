@@ -1,3 +1,7 @@
+#### 20250831 杰灵的斯科茨布拉夫国家纪念碑‌, 内布拉斯加州,美国 (© Hawk Buckman/Getty Images)
+
+![](images/2025-08/20250831_ScottsBluff_1920x1080.jpg)
+
 #### 20250830 全国花火競技大会, 秋田県, 大仙市 (© Toru Hanai/寄稿者/Getty Images)
 
 ![](images/2025-08/20250830_OmagariFireworks_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250823 秋季九寨沟国家公园里的诺日朗瀑布, 四川省, 中国 (© tawatchaiprakobkit/Getty images)
 
 ![](images/2025-08/20250823_ChushuY_1920x1080.jpg)
-
-#### 20250822 Domaine national de Saint-Cloud, Grande Cascade, Île de France (© GUIZIOU Franck/hemis.fr)
-
-![](images/2025-08/20250822_RockSeine_1920x1080.jpg)
 
 
 
