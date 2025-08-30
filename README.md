@@ -2,7 +2,7 @@
 
 ![](images/2025-08/20250830_OmagariFireworks_1920x1080.jpg)
 
-#### 20250830 阿里夫达鲁环礁海岸的鲸鲨, 马尔代夫 (© Bachir Moukarzel/Amazing Aerial Agency)
+#### 20250830 Whale shark off the coast of Alifu Dhaalu Atoll, Maldives (© Bachir Moukarzel/Amazing Aerial Agency)
 
 ![](images/2025-08/20250830_MaldivesWhaleShark_1920x1080.jpg)
 
