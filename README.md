@@ -1,4 +1,4 @@
-#### 20250831 杰灵的斯科茨布拉夫国家纪念碑‌, 内布拉斯加州,美国 (© Hawk Buckman/Getty Images)
+#### 20250831 Scotts Bluff National Monument in Gering, Nebraska (© Hawk Buckman/Getty Images)
 
 ![](images/2025-08/20250831_ScottsBluff_1920x1080.jpg)
 
