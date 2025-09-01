@@ -2,6 +2,10 @@
 
 ![](images/2025-09/20250901_MinnesotaWaters_1920x1080.jpg)
 
+#### 20250901 Amalgamated Clothing Workers of America in a Labor Day parade, May 1915, Chicago (© Chicago Sun-Times/Chicago Daily News collection/Chicago History Museum/Getty Images)
+
+![](images/2025-09/20250901_LaborDayChicago_1920x1080.jpg)
+
 #### 20250831 Scotts Bluff National Monument in Gering, Nebraska (© Hawk Buckman/Getty Images)
 
 ![](images/2025-08/20250831_ScottsBluff_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250823 St. Barbara's Cathedral, Kutná Hora, Czechia (© Castka/Getty Images)
 
 ![](images/2025-08/20250823_SaintBarbaras_1920x1080.jpg)
-
-#### 20250823 早朝に開花する美しいアサガオ (© borchee/Getty Images)
-
-![](images/2025-08/20250823_Morningglory_1920x1080.jpg)
 
 
 
