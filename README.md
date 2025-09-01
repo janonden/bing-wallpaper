@@ -1,3 +1,7 @@
+#### 20250902 骆驼刺树, 死亡谷, 纳米布-诺克卢福国家公园, 纳米比亚 (© Inge Johnsson/Alamy Stock Photo)
+
+![](images/2025-09/20250902_DeadvleiTrees_1920x1080.jpg)
+
 #### 20250901 Zone sauvage des Boundary Waters Canoe Area, Minnesota, États-Unis (© s.tomas/Shutterstock)
 
 ![](images/2025-09/20250901_MinnesotaWaters_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250824 European fallow deer, England (© Enrique Aguirre Aves/Getty Images)
 
 ![](images/2025-08/20250824_CervusDama_1920x1080.jpg)
-
-#### 20250823 St. Barbara's Cathedral, Kutná Hora, Czechia (© Castka/Getty Images)
-
-![](images/2025-08/20250823_SaintBarbaras_1920x1080.jpg)
 
 
 
