@@ -1,3 +1,7 @@
+#### 20250902 Kaiserstuhl, Baden-Württemberg, Germany (© EyeEM Mobile GmbH/Getty Images)
+
+![](images/2025-09/20250902_FieldKaiserstuhl_1920x1080.jpg)
+
 #### 20250902 骆驼刺树, 死亡谷, 纳米布-诺克卢福国家公园, 纳米比亚 (© Inge Johnsson/Alamy Stock Photo)
 
 ![](images/2025-09/20250902_DeadvleiTrees_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250824 Greater flamingos, Saintes-Maries-de-la-Mer, Camargue Regional Nature Park, France (© Raimund Linke/Getty Images)
 
 ![](images/2025-08/20250824_Flamingos_1920x1080.jpg)
-
-#### 20250824 European fallow deer, England (© Enrique Aguirre Aves/Getty Images)
-
-![](images/2025-08/20250824_CervusDama_1920x1080.jpg)
 
 
 
