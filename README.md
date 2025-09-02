@@ -2,7 +2,7 @@
 
 ![](images/2025-09/20250902_FieldKaiserstuhl_1920x1080.jpg)
 
-#### 20250902 骆驼刺树, 死亡谷, 纳米布-诺克卢福国家公园, 纳米比亚 (© Inge Johnsson/Alamy Stock Photo)
+#### 20250902 Camel thorn trees, Deadvlei, Namib-Naukluft Park, Namibia (© Inge Johnsson/Alamy)
 
 ![](images/2025-09/20250902_DeadvleiTrees_1920x1080.jpg)
 
