@@ -14,7 +14,7 @@
 
 ![](20250902_DeadvleiTrees_1920x1080.jpg)
 
-#### 20250901 Zone sauvage des Boundary Waters Canoe Area, Minnesota, États-Unis (© s.tomas/Shutterstock)
+#### 20250901 Boundary Waters Canoe Area Wilderness, Minnesota (© s.tomas/Shutterstock)
 
 ![](20250901_MinnesotaWaters_1920x1080.jpg)
 
