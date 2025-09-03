@@ -1,3 +1,7 @@
+#### 20250903 Abbaye du Mont Saint-Michel au crépuscule, Manche, Normandie (© Ilhan Eroglu/500px/Getty Images)
+
+![](images/2025-09/20250903_MontSaintMichel_1920x1080.jpg)
+
 #### 20250902 Kaiserstuhl, Baden-Württemberg, Germany (© EyeEM Mobile GmbH/Getty Images)
 
 ![](images/2025-09/20250902_FieldKaiserstuhl_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250825 Colony of northern gannets, Quebec (© Vladone/Getty Images)
 
 ![](images/2025-08/20250825_Gannets_1920x1080.jpg)
-
-#### 20250824 Greater flamingos, Saintes-Maries-de-la-Mer, Camargue Regional Nature Park, France (© Raimund Linke/Getty Images)
-
-![](images/2025-08/20250824_Flamingos_1920x1080.jpg)
 
 
 

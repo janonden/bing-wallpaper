@@ -1,3 +1,7 @@
+#### 20250903 Abbaye du Mont Saint-Michel au crépuscule, Manche, Normandie (© Ilhan Eroglu/500px/Getty Images)
+
+![](20250903_MontSaintMichel_1920x1080.jpg)
+
 #### 20250902 Kaiserstuhl, Baden-Württemberg, Germany (© EyeEM Mobile GmbH/Getty Images)
 
 ![](20250902_FieldKaiserstuhl_1920x1080.jpg)
