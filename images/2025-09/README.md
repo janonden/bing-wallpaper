@@ -1,3 +1,7 @@
+#### 20250903 Grizzly bears wrestling, Katmai National Park and Preserve, Alaska, United States (© Cavan Images/Adobe Stock)
+
+![](20250903_WrestlingBears_1920x1080.jpg)
+
 #### 20250903 Abbaye du Mont Saint-Michel au crépuscule, Manche, Normandie (© Ilhan Eroglu/500px/Getty Images)
 
 ![](20250903_MontSaintMichel_1920x1080.jpg)

@@ -1,3 +1,7 @@
+#### 20250903 Grizzly bears wrestling, Katmai National Park and Preserve, Alaska, United States (© Cavan Images/Adobe Stock)
+
+![](images/2025-09/20250903_WrestlingBears_1920x1080.jpg)
+
 #### 20250903 Abbaye du Mont Saint-Michel au crépuscule, Manche, Normandie (© Ilhan Eroglu/500px/Getty Images)
 
 ![](images/2025-09/20250903_MontSaintMichel_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250825 Calcite Springs Overlook and Yellowstone River, Yellowstone National Park, Wyoming (© Rebecca L. Latson/Getty Images)
 
 ![](images/2025-08/20250825_YellowstoneRiver_1920x1080.jpg)
-
-#### 20250825 Colony of northern gannets, Quebec (© Vladone/Getty Images)
-
-![](images/2025-08/20250825_Gannets_1920x1080.jpg)
 
 
 
