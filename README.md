@@ -1,3 +1,7 @@
+#### 20250904 ヨーホー国立公園, カナダ (© Feng Wei Photography/Getty Images)
+
+![](images/2025-09/20250904_YohoNP_1920x1080.jpg)
+
 #### 20250903 Grizzly bears wrestling, Katmai National Park and Preserve, Alaska, United States (© Cavan Images/Adobe Stock)
 
 ![](images/2025-09/20250903_WrestlingBears_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250826 Silhouette eines springenden Kitesurfers bei Sonnenuntergang im baltischen Meer (© Jens Breuer/Getty Images)
 
 ![](images/2025-08/20250826_KitesurferGermany_1920x1080.jpg)
-
-#### 20250825 Calcite Springs Overlook and Yellowstone River, Yellowstone National Park, Wyoming (© Rebecca L. Latson/Getty Images)
-
-![](images/2025-08/20250825_YellowstoneRiver_1920x1080.jpg)
 
 
 
