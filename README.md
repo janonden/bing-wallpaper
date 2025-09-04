@@ -1,3 +1,7 @@
+#### 20250905 太平洋公园，圣莫妮卡州立海滩，加利福尼亚州，美国 (© EXTREME-PHOTOGRAPHER/Getty Images)
+
+![](images/2025-09/20250905_SunsetPier_1920x1080.jpg)
+
 #### 20250904 ヨーホー国立公園, カナダ (© Feng Wei Photography/Getty Images)
 
 ![](images/2025-09/20250904_YohoNP_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250828 Great white egret, Hungary (© Markus Varesvuo/Nature Picture Library)
 
 ![](images/2025-08/20250828_WhiteEgret_1920x1080.jpg)
-
-#### 20250827 Sørvágsvatn lake, island of Vágar, Faroe Islands, Denmark (© Anton Petrus/Getty Images)
-
-![](images/2025-08/20250827_FaroeLake_1920x1080.jpg)
 
 
 
