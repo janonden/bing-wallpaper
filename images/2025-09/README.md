@@ -6,7 +6,7 @@
 
 ![](20250904_TiFF_1920x1080.jpg)
 
-#### 20250903 Grizzly bears wrestling, Katmai National Park and Preserve, Alaska, United States (© Cavan Images/Adobe Stock)
+#### 20250903 Grizzly bears wrestling, Katmai National Park and Preserve, Alaska (© Cavan Images/Adobe Stock)
 
 ![](20250903_WrestlingBears_1920x1080.jpg)
 
@@ -21,6 +21,10 @@
 #### 20250902 Camel thorn trees, Deadvlei, Namib-Naukluft Park, Namibia (© Inge Johnsson/Alamy)
 
 ![](20250902_DeadvleiTrees_1920x1080.jpg)
+
+#### 20250901 聖バルボラ教会, チェコ共和国 (© Castka/Getty Images)
+
+![](20250901_SaintBarbaras_1920x1080.jpg)
 
 #### 20250901 Boundary Waters Canoe Area Wilderness, Minnesota (© s.tomas/Shutterstock)
 
