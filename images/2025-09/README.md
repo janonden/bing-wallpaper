@@ -2,6 +2,10 @@
 
 ![](20250904_YohoNP_1920x1080.jpg)
 
+#### 20250904 CN Tower illuminated at night in Toronto, Ontario (© R.M. Nunes/Shutterstock)
+
+![](20250904_TiFF_1920x1080.jpg)
+
 #### 20250903 Grizzly bears wrestling, Katmai National Park and Preserve, Alaska, United States (© Cavan Images/Adobe Stock)
 
 ![](20250903_WrestlingBears_1920x1080.jpg)
