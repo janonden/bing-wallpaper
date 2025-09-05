@@ -1,3 +1,7 @@
+#### 20250906 棕煌蜂鸟，旧金山金门公园，加利福尼亚州，美国 (© jeremyborkat/Getty Images)
+
+![](20250906_RufousHummer_1920x1080.jpg)
+
 #### 20250905 Pacific Park at Santa Monica State Beach, California (© EXTREME-PHOTOGRAPHER/Getty Images)
 
 ![](20250905_SunsetPier_1920x1080.jpg)

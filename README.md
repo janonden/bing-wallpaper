@@ -1,3 +1,7 @@
+#### 20250906 棕煌蜂鸟，旧金山金门公园，加利福尼亚州，美国 (© jeremyborkat/Getty Images)
+
+![](images/2025-09/20250906_RufousHummer_1920x1080.jpg)
+
 #### 20250905 Pacific Park at Santa Monica State Beach, California (© EXTREME-PHOTOGRAPHER/Getty Images)
 
 ![](images/2025-09/20250905_SunsetPier_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250829 Aerial view of Plaza Mayor, Madrid, Spain (© AirPano LLC/Amazing Aerial Agency)
 
 ![](images/2025-08/20250829_PlazaMayor_1920x1080.jpg)
-
-#### 20250828 Great white egret, Hungary (© Markus Varesvuo/Nature Picture Library)
-
-![](images/2025-08/20250828_WhiteEgret_1920x1080.jpg)
 
 
 
