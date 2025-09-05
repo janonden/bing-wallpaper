@@ -1,4 +1,4 @@
-#### 20250905 太平洋公园，圣莫妮卡州立海滩，加利福尼亚州，美国 (© EXTREME-PHOTOGRAPHER/Getty Images)
+#### 20250905 Pacific Park at Santa Monica State Beach, California (© EXTREME-PHOTOGRAPHER/Getty Images)
 
 ![](images/2025-09/20250905_SunsetPier_1920x1080.jpg)
 
