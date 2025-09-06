@@ -1,4 +1,4 @@
-#### 20250906 棕煌蜂鸟，旧金山金门公园，加利福尼亚州，美国 (© jeremyborkat/Getty Images)
+#### 20250906 Rufous hummingbird, Golden Gate Park, San Francisco, California (© jeremyborkat/Getty Images)
 
 ![](images/2025-09/20250906_RufousHummer_1920x1080.jpg)
 
@@ -42,6 +42,10 @@
 
 ![](images/2025-09/20250901_YellowstoneRiver_1920x1080.jpg)
 
+#### 20250901 Trulli in Alberobello, Apulien, Italien (© Feng Wei Photography/Getty Images)
+
+![](images/2025-09/20250901_TrulliHouses_1920x1080.jpg)
+
 #### 20250901 聖バルボラ教会, チェコ共和国 (© Castka/Getty Images)
 
 ![](images/2025-09/20250901_SaintBarbaras_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250901 Amalgamated Clothing Workers of America in a Labor Day parade, May 1915, Chicago (© Chicago Sun-Times/Chicago Daily News collection/Chicago History Museum/Getty Images)
 
 ![](images/2025-09/20250901_LaborDayChicago_1920x1080.jpg)
-
-#### 20250831 Scotts Bluff National Monument in Gering, Nebraska (© Hawk Buckman/Getty Images)
-
-![](images/2025-08/20250831_ScottsBluff_1920x1080.jpg)
 
 
 

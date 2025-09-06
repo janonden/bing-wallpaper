@@ -1,4 +1,4 @@
-#### 20250906 棕煌蜂鸟，旧金山金门公园，加利福尼亚州，美国 (© jeremyborkat/Getty Images)
+#### 20250906 Rufous hummingbird, Golden Gate Park, San Francisco, California (© jeremyborkat/Getty Images)
 
 ![](20250906_RufousHummer_1920x1080.jpg)
 
@@ -41,6 +41,10 @@
 #### 20250901 Calcite Springs Overlook and Yellowstone River, Yellowstone National Park, Wyoming (© Rebecca L. Latson/Getty Images)
 
 ![](20250901_YellowstoneRiver_1920x1080.jpg)
+
+#### 20250901 Trulli in Alberobello, Apulien, Italien (© Feng Wei Photography/Getty Images)
+
+![](20250901_TrulliHouses_1920x1080.jpg)
 
 #### 20250901 聖バルボラ教会, チェコ共和国 (© Castka/Getty Images)
 
