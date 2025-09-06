@@ -2,6 +2,14 @@
 
 ![](20250906_RufousHummer_1920x1080.jpg)
 
+#### 20250906 Le beffroi de la Chambre de Commerce, Lille, Hauts-de-France (© Wirestock/Getty Images)
+
+![](20250906_LilleMarket_1920x1080.jpg)
+
+#### 20250906 Frankfurter Skyline im violetten Licht und Alte Brücke, Frankfurt am Main, Hessen (© diegograndi/iStock/Getty Images Plus)
+
+![](20250906_FrankfurtAlteBruecke_1920x1080.jpg)
+
 #### 20250905 Pacific Park at Santa Monica State Beach, California (© EXTREME-PHOTOGRAPHER/Getty Images)
 
 ![](20250905_SunsetPier_1920x1080.jpg)

@@ -2,6 +2,14 @@
 
 ![](images/2025-09/20250906_RufousHummer_1920x1080.jpg)
 
+#### 20250906 Le beffroi de la Chambre de Commerce, Lille, Hauts-de-France (© Wirestock/Getty Images)
+
+![](images/2025-09/20250906_LilleMarket_1920x1080.jpg)
+
+#### 20250906 Frankfurter Skyline im violetten Licht und Alte Brücke, Frankfurt am Main, Hessen (© diegograndi/iStock/Getty Images Plus)
+
+![](images/2025-09/20250906_FrankfurtAlteBruecke_1920x1080.jpg)
+
 #### 20250905 Pacific Park at Santa Monica State Beach, California (© EXTREME-PHOTOGRAPHER/Getty Images)
 
 ![](images/2025-09/20250905_SunsetPier_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20250830 全国花火競技大会, 秋田県, 大仙市 (© Toru Hanai/寄稿者/Getty Images)
 
 ![](images/2025-08/20250830_OmagariFireworks_1920x1080.jpg)
-
-#### 20250830 Whale shark off the coast of Alifu Dhaalu Atoll, Maldives (© Bachir Moukarzel/Amazing Aerial Agency)
-
-![](images/2025-08/20250830_MaldivesWhaleShark_1920x1080.jpg)
-
-#### 20250829 Aerial view of Plaza Mayor, Madrid, Spain (© AirPano LLC/Amazing Aerial Agency)
-
-![](images/2025-08/20250829_PlazaMayor_1920x1080.jpg)
 
 
 
