@@ -38,6 +38,10 @@
 
 ![](images/2025-09/20250902_DeadvleiTrees_1920x1080.jpg)
 
+#### 20250901 Calcite Springs Overlook and Yellowstone River, Yellowstone National Park, Wyoming (© Rebecca L. Latson/Getty Images)
+
+![](images/2025-09/20250901_YellowstoneRiver_1920x1080.jpg)
+
 #### 20250901 聖バルボラ教会, チェコ共和国 (© Castka/Getty Images)
 
 ![](images/2025-09/20250901_SaintBarbaras_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250831 Scotts Bluff National Monument in Gering, Nebraska (© Hawk Buckman/Getty Images)
 
 ![](images/2025-08/20250831_ScottsBluff_1920x1080.jpg)
-
-#### 20250830 全国花火競技大会, 秋田県, 大仙市 (© Toru Hanai/寄稿者/Getty Images)
-
-![](images/2025-08/20250830_OmagariFireworks_1920x1080.jpg)
 
 
 

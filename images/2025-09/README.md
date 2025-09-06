@@ -38,6 +38,10 @@
 
 ![](20250902_DeadvleiTrees_1920x1080.jpg)
 
+#### 20250901 Calcite Springs Overlook and Yellowstone River, Yellowstone National Park, Wyoming (© Rebecca L. Latson/Getty Images)
+
+![](20250901_YellowstoneRiver_1920x1080.jpg)
+
 #### 20250901 聖バルボラ教会, チェコ共和国 (© Castka/Getty Images)
 
 ![](20250901_SaintBarbaras_1920x1080.jpg)
