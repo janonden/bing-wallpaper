@@ -1,3 +1,7 @@
+#### 20250907 位于莫特拉瓦河河畔的格但斯克市，波兰 (© Oscar Dominguez/TANDEM Stills + Motion)
+
+![](20250907_BlueGdansk_1920x1080.jpg)
+
 #### 20250906 Rufous hummingbird, Golden Gate Park, San Francisco, California (© jeremyborkat/Getty Images)
 
 ![](20250906_RufousHummer_1920x1080.jpg)

@@ -1,3 +1,7 @@
+#### 20250907 位于莫特拉瓦河河畔的格但斯克市，波兰 (© Oscar Dominguez/TANDEM Stills + Motion)
+
+![](images/2025-09/20250907_BlueGdansk_1920x1080.jpg)
+
 #### 20250906 Rufous hummingbird, Golden Gate Park, San Francisco, California (© jeremyborkat/Getty Images)
 
 ![](images/2025-09/20250906_RufousHummer_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250901 Boundary Waters Canoe Area Wilderness, Minnesota (© s.tomas/Shutterstock)
 
 ![](images/2025-09/20250901_MinnesotaWaters_1920x1080.jpg)
-
-#### 20250901 Amalgamated Clothing Workers of America in a Labor Day parade, May 1915, Chicago (© Chicago Sun-Times/Chicago Daily News collection/Chicago History Museum/Getty Images)
-
-![](images/2025-09/20250901_LaborDayChicago_1920x1080.jpg)
 
 
 
