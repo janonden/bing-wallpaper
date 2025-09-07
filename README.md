@@ -1,4 +1,4 @@
-#### 20250907 位于莫特拉瓦河河畔的格但斯克市，波兰 (© Oscar Dominguez/TANDEM Stills + Motion)
+#### 20250907 Gdańsk on the banks of the Motława, Poland (© Oscar Dominguez/TANDEM Stills + Motion)
 
 ![](images/2025-09/20250907_BlueGdansk_1920x1080.jpg)
 
