@@ -1,3 +1,7 @@
+#### 20250908 乌节图书馆，新加坡 (© Darwin Fan/Getty Images)
+
+![](20250908_OrchardLibrary_1920x1080.jpg)
+
 #### 20250907 Gdańsk on the banks of the Motława, Poland (© Oscar Dominguez/TANDEM Stills + Motion)
 
 ![](20250907_BlueGdansk_1920x1080.jpg)

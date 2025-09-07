@@ -1,3 +1,7 @@
+#### 20250908 乌节图书馆，新加坡 (© Darwin Fan/Getty Images)
+
+![](images/2025-09/20250908_OrchardLibrary_1920x1080.jpg)
+
 #### 20250907 Gdańsk on the banks of the Motława, Poland (© Oscar Dominguez/TANDEM Stills + Motion)
 
 ![](images/2025-09/20250907_BlueGdansk_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250901 聖バルボラ教会, チェコ共和国 (© Castka/Getty Images)
 
 ![](images/2025-09/20250901_SaintBarbaras_1920x1080.jpg)
-
-#### 20250901 Boundary Waters Canoe Area Wilderness, Minnesota (© s.tomas/Shutterstock)
-
-![](images/2025-09/20250901_MinnesotaWaters_1920x1080.jpg)
 
 
 
