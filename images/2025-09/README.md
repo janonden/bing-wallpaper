@@ -1,4 +1,4 @@
-#### 20250908 乌节图书馆，新加坡 (© Darwin Fan/Getty Images)
+#### 20250908 Library@orchard, Singapore (© Darwin Fan/Getty Images)
 
 ![](20250908_OrchardLibrary_1920x1080.jpg)
 
