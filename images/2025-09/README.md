@@ -1,3 +1,7 @@
+#### 20250909 一只雌性欧亚红松鼠正在搬运苔藓，瑞士 (© Jean-Luc and Francoise Ziegler/Minden Pictures)
+
+![](20250909_SwissSquirrel_1920x1080.jpg)
+
 #### 20250908 Library@orchard, Singapore (© Darwin Fan/Getty Images)
 
 ![](20250908_OrchardLibrary_1920x1080.jpg)

@@ -1,3 +1,7 @@
+#### 20250909 一只雌性欧亚红松鼠正在搬运苔藓，瑞士 (© Jean-Luc and Francoise Ziegler/Minden Pictures)
+
+![](images/2025-09/20250909_SwissSquirrel_1920x1080.jpg)
+
 #### 20250908 Library@orchard, Singapore (© Darwin Fan/Getty Images)
 
 ![](images/2025-09/20250908_OrchardLibrary_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250901 Trulli in Alberobello, Apulien, Italien (© Feng Wei Photography/Getty Images)
 
 ![](images/2025-09/20250901_TrulliHouses_1920x1080.jpg)
-
-#### 20250901 聖バルボラ教会, チェコ共和国 (© Castka/Getty Images)
-
-![](images/2025-09/20250901_SaintBarbaras_1920x1080.jpg)
 
 
 
