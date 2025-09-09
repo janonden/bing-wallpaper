@@ -1,4 +1,4 @@
-#### 20250909 一只雌性欧亚红松鼠正在搬运苔藓，瑞士 (© Jean-Luc and Francoise Ziegler/Minden Pictures)
+#### 20250909 A female Eurasian red squirrel carrying moss, Switzerland (© Jean-Luc and Francoise Ziegler/Minden Pictures)
 
 ![](images/2025-09/20250909_SwissSquirrel_1920x1080.jpg)
 
