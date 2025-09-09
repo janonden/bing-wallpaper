@@ -1,3 +1,7 @@
+#### 20250910 干草捆，北约克郡，英格兰 (© Nick Brundle Photography/Getty Images)
+
+![](20250910_YorkshireHay_1920x1080.jpg)
+
 #### 20250909 A female Eurasian red squirrel carrying moss, Switzerland (© Jean-Luc and Francoise Ziegler/Minden Pictures)
 
 ![](20250909_SwissSquirrel_1920x1080.jpg)

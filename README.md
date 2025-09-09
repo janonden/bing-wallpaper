@@ -1,3 +1,7 @@
+#### 20250910 干草捆，北约克郡，英格兰 (© Nick Brundle Photography/Getty Images)
+
+![](images/2025-09/20250910_YorkshireHay_1920x1080.jpg)
+
 #### 20250909 A female Eurasian red squirrel carrying moss, Switzerland (© Jean-Luc and Francoise Ziegler/Minden Pictures)
 
 ![](images/2025-09/20250909_SwissSquirrel_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250901 Calcite Springs Overlook and Yellowstone River, Yellowstone National Park, Wyoming (© Rebecca L. Latson/Getty Images)
 
 ![](images/2025-09/20250901_YellowstoneRiver_1920x1080.jpg)
-
-#### 20250901 Trulli in Alberobello, Apulien, Italien (© Feng Wei Photography/Getty Images)
-
-![](images/2025-09/20250901_TrulliHouses_1920x1080.jpg)
 
 
 
