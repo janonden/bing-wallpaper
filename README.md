@@ -1,3 +1,7 @@
+#### 20250911 蒙弗拉圭国家公园塔霍河畔的猎鹰岩，西班牙 (© Daniel Viñé Garcia/Getty Images)
+
+![](images/2025-09/20250911_ExtremaduraJamon_1920x1080.jpg)
+
 #### 20250910 Hay bales, North Yorkshire, England (© Nick Brundle Photography/Getty Images)
 
 ![](images/2025-09/20250910_YorkshireHay_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250902 Camel thorn trees, Deadvlei, Namib-Naukluft Park, Namibia (© Inge Johnsson/Alamy)
 
 ![](images/2025-09/20250902_DeadvleiTrees_1920x1080.jpg)
-
-#### 20250901 Calcite Springs Overlook and Yellowstone River, Yellowstone National Park, Wyoming (© Rebecca L. Latson/Getty Images)
-
-![](images/2025-09/20250901_YellowstoneRiver_1920x1080.jpg)
 
 
 

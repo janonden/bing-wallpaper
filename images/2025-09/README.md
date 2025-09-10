@@ -1,3 +1,7 @@
+#### 20250911 蒙弗拉圭国家公园塔霍河畔的猎鹰岩，西班牙 (© Daniel Viñé Garcia/Getty Images)
+
+![](20250911_ExtremaduraJamon_1920x1080.jpg)
+
 #### 20250910 Hay bales, North Yorkshire, England (© Nick Brundle Photography/Getty Images)
 
 ![](20250910_YorkshireHay_1920x1080.jpg)
