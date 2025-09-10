@@ -1,4 +1,4 @@
-#### 20250910 干草捆，北约克郡，英格兰 (© Nick Brundle Photography/Getty Images)
+#### 20250910 Hay bales, North Yorkshire, England (© Nick Brundle Photography/Getty Images)
 
 ![](images/2025-09/20250910_YorkshireHay_1920x1080.jpg)
 
