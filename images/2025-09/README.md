@@ -1,3 +1,11 @@
+#### 20250912 红海中的飞旋海豚群, 阿拉姆港, 埃及 (© Franco Banfi/Nature Picture Library)
+
+![](20250912_SpinnerDolphins_1920x1080.jpg)
+
+#### 20250912 種子島宇宙センター, 鹿児島県 (© norinori303/Adobe Stock)
+
+![](20250912_SpaceDay_1920x1080.jpg)
+
 #### 20250911 Statue of Liberty and Lower Manhattan, New York City (© Tetra Images/Getty Images)
 
 ![](20250911_LibertyManhattan_1920x1080.jpg)

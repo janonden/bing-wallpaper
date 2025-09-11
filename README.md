@@ -1,3 +1,11 @@
+#### 20250912 红海中的飞旋海豚群, 阿拉姆港, 埃及 (© Franco Banfi/Nature Picture Library)
+
+![](images/2025-09/20250912_SpinnerDolphins_1920x1080.jpg)
+
+#### 20250912 種子島宇宙センター, 鹿児島県 (© norinori303/Adobe Stock)
+
+![](images/2025-09/20250912_SpaceDay_1920x1080.jpg)
+
 #### 20250911 Statue of Liberty and Lower Manhattan, New York City (© Tetra Images/Getty Images)
 
 ![](images/2025-09/20250911_LibertyManhattan_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20250903 Grizzly bears wrestling, Katmai National Park and Preserve, Alaska (© Cavan Images/Adobe Stock)
 
 ![](images/2025-09/20250903_WrestlingBears_1920x1080.jpg)
-
-#### 20250903 Abbaye du Mont Saint-Michel au crépuscule, Manche, Normandie (© Ilhan Eroglu/500px/Getty Images)
-
-![](images/2025-09/20250903_MontSaintMichel_1920x1080.jpg)
-
-#### 20250902 Kaiserstuhl, Baden-Württemberg, Germany (© EyeEM Mobile GmbH/Getty Images)
-
-![](images/2025-09/20250902_FieldKaiserstuhl_1920x1080.jpg)
 
 
 
