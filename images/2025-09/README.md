@@ -1,3 +1,7 @@
+#### 20250913 烟囱岩, 雷斯岬国家海岸, 加利福尼亚州, 美国 (© Enrique Aguirre Aves/Getty Images)
+
+![](20250913_PointReyesSeashore_1920x1080.jpg)
+
 #### 20250912 Spinner dolphin pod in the Red Sea, Marsa Alam, Egypt (© Franco Banfi/Nature Picture Library)
 
 ![](20250912_SpinnerDolphins_1920x1080.jpg)
