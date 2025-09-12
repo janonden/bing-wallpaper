@@ -1,4 +1,4 @@
-#### 20250912 红海中的飞旋海豚群, 阿拉姆港, 埃及 (© Franco Banfi/Nature Picture Library)
+#### 20250912 Spinner dolphin pod in the Red Sea, Marsa Alam, Egypt (© Franco Banfi/Nature Picture Library)
 
 ![](20250912_SpinnerDolphins_1920x1080.jpg)
 
