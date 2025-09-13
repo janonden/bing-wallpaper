@@ -1,3 +1,7 @@
+#### 20250914 奥林匹克国家公园的瀑布, 华盛顿, 美国 (© Chris Moore/TANDEM Stills + Motion)
+
+![](20250914_HohWaterfall_1920x1080.jpg)
+
 #### 20250913 Chimney Rock, Point Reyes National Seashore, California (© Enrique Aguirre Aves/Getty Images)
 
 ![](20250913_PointReyesSeashore_1920x1080.jpg)
