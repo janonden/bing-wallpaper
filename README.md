@@ -1,4 +1,4 @@
-#### 20250913 烟囱岩, 雷斯岬国家海岸, 加利福尼亚州, 美国 (© Enrique Aguirre Aves/Getty Images)
+#### 20250913 Chimney Rock, Point Reyes National Seashore, California (© Enrique Aguirre Aves/Getty Images)
 
 ![](images/2025-09/20250913_PointReyesSeashore_1920x1080.jpg)
 
