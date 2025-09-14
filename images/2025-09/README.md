@@ -2,6 +2,10 @@
 
 ![](20250914_HohWaterfall_1920x1080.jpg)
 
+#### 20250914 Orangerie Gera, Thüringen (© luchschenF/Shutterstock)
+
+![](20250914_GeraOrangerie_1920x1080.jpg)
+
 #### 20250913 Chimney Rock, Point Reyes National Seashore, California (© Enrique Aguirre Aves/Getty Images)
 
 ![](20250913_PointReyesSeashore_1920x1080.jpg)

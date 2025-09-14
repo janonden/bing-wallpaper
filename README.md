@@ -2,6 +2,10 @@
 
 ![](images/2025-09/20250914_HohWaterfall_1920x1080.jpg)
 
+#### 20250914 Orangerie Gera, Thüringen (© luchschenF/Shutterstock)
+
+![](images/2025-09/20250914_GeraOrangerie_1920x1080.jpg)
+
 #### 20250913 Chimney Rock, Point Reyes National Seashore, California (© Enrique Aguirre Aves/Getty Images)
 
 ![](images/2025-09/20250913_PointReyesSeashore_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250905 Pacific Park at Santa Monica State Beach, California (© EXTREME-PHOTOGRAPHER/Getty Images)
 
 ![](images/2025-09/20250905_SunsetPier_1920x1080.jpg)
-
-#### 20250904 ヨーホー国立公園, カナダ (© Feng Wei Photography/Getty Images)
-
-![](images/2025-09/20250904_YohoNP_1920x1080.jpg)
 
 
 
