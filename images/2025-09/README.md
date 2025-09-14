@@ -1,4 +1,4 @@
-#### 20250914 奥林匹克国家公园的瀑布, 华盛顿, 美国 (© Chris Moore/TANDEM Stills + Motion)
+#### 20250914 A waterfall in Olympic National Park, Washington (© Chris Moore/TANDEM Stills + Motion)
 
 ![](20250914_HohWaterfall_1920x1080.jpg)
 
