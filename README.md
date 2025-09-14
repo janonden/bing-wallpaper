@@ -1,3 +1,11 @@
+#### 20250915 黑翅长脚鹬, 法国 (© Antonio Sementa/500px/Getty Images)
+
+![](images/2025-09/20250915_Echasse_1920x1080.jpg)
+
+#### 20250915 アメリカワシミミズク (© Scott Suriano/Getty Images)
+
+![](images/2025-09/20250915_AgedDay_1920x1080.jpg)
+
 #### 20250914 A waterfall in Olympic National Park, Washington (© Chris Moore/TANDEM Stills + Motion)
 
 ![](images/2025-09/20250914_HohWaterfall_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20250906 Le beffroi de la Chambre de Commerce, Lille, Hauts-de-France (© Wirestock/Getty Images)
 
 ![](images/2025-09/20250906_LilleMarket_1920x1080.jpg)
-
-#### 20250906 Frankfurter Skyline im violetten Licht und Alte Brücke, Frankfurt am Main, Hessen (© diegograndi/iStock/Getty Images Plus)
-
-![](images/2025-09/20250906_FrankfurtAlteBruecke_1920x1080.jpg)
-
-#### 20250905 Pacific Park at Santa Monica State Beach, California (© EXTREME-PHOTOGRAPHER/Getty Images)
-
-![](images/2025-09/20250905_SunsetPier_1920x1080.jpg)
 
 
 

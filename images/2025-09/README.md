@@ -1,3 +1,11 @@
+#### 20250915 黑翅长脚鹬, 法国 (© Antonio Sementa/500px/Getty Images)
+
+![](20250915_Echasse_1920x1080.jpg)
+
+#### 20250915 アメリカワシミミズク (© Scott Suriano/Getty Images)
+
+![](20250915_AgedDay_1920x1080.jpg)
+
 #### 20250914 A waterfall in Olympic National Park, Washington (© Chris Moore/TANDEM Stills + Motion)
 
 ![](20250914_HohWaterfall_1920x1080.jpg)
