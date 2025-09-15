@@ -2,6 +2,10 @@
 
 ![](20250915_Echasse_1920x1080.jpg)
 
+#### 20250915 Coastline at Cape Breton Highlands National Park, Nova Scotia (© Tiago_Fernandez/Getty Images)
+
+![](20250915_BrentonHighlandsNP_1920x1080.jpg)
+
 #### 20250915 アメリカワシミミズク (© Scott Suriano/Getty Images)
 
 ![](20250915_AgedDay_1920x1080.jpg)
