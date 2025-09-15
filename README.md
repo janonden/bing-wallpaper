@@ -2,6 +2,10 @@
 
 ![](images/2025-09/20250915_Echasse_1920x1080.jpg)
 
+#### 20250915 Latino Cultural Center designed by Ricardo Legorreta, Dallas, Texas (© Ken Hurst/Alamy)
+
+![](images/2025-09/20250915_DallasLegorreta_1920x1080.jpg)
+
 #### 20250915 Coastline at Cape Breton Highlands National Park, Nova Scotia (© Tiago_Fernandez/Getty Images)
 
 ![](images/2025-09/20250915_BrentonHighlandsNP_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250907 Gdańsk on the banks of the Motława, Poland (© Oscar Dominguez/TANDEM Stills + Motion)
 
 ![](images/2025-09/20250907_BlueGdansk_1920x1080.jpg)
-
-#### 20250906 Rufous hummingbird, Golden Gate Park, San Francisco, California (© jeremyborkat/Getty Images)
-
-![](images/2025-09/20250906_RufousHummer_1920x1080.jpg)
 
 
 
