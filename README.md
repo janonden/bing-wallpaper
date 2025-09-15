@@ -1,3 +1,7 @@
+#### 20250916 从地球上空225英里处俯瞰墨西哥湾沿岸各州的夜间景象 (© Stocktrek Images/Getty Images)
+
+![](images/2025-09/20250916_OzoneEarth_1920x1080.jpg)
+
 #### 20250915 黑翅长脚鹬, 法国 (© Antonio Sementa/500px/Getty Images)
 
 ![](images/2025-09/20250915_Echasse_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250908 Library@orchard, Singapore (© Darwin Fan/Getty Images)
 
 ![](images/2025-09/20250908_OrchardLibrary_1920x1080.jpg)
-
-#### 20250907 Gdańsk on the banks of the Motława, Poland (© Oscar Dominguez/TANDEM Stills + Motion)
-
-![](images/2025-09/20250907_BlueGdansk_1920x1080.jpg)
 
 
 

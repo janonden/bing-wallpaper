@@ -1,3 +1,7 @@
+#### 20250916 从地球上空225英里处俯瞰墨西哥湾沿岸各州的夜间景象 (© Stocktrek Images/Getty Images)
+
+![](20250916_OzoneEarth_1920x1080.jpg)
+
 #### 20250915 黑翅长脚鹬, 法国 (© Antonio Sementa/500px/Getty Images)
 
 ![](20250915_Echasse_1920x1080.jpg)
