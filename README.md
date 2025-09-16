@@ -1,3 +1,7 @@
+#### 20250917 迪纳利国家公园中的一头年轻雄性驼鹿, 阿拉斯加, 美国 (© Grant Ordelheide/TANDEM Stills + Motion)
+
+![](images/2025-09/20250917_YoungMoose_1920x1080.jpg)
+
 #### 20250916 Nighttime view of the Gulf Coast states from 225 miles above Earth (© Stocktrek Images/Getty Images)
 
 ![](images/2025-09/20250916_OzoneEarth_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250909 A female Eurasian red squirrel carrying moss, Switzerland (© Jean-Luc and Francoise Ziegler/Minden Pictures)
 
 ![](images/2025-09/20250909_SwissSquirrel_1920x1080.jpg)
-
-#### 20250908 Library@orchard, Singapore (© Darwin Fan/Getty Images)
-
-![](images/2025-09/20250908_OrchardLibrary_1920x1080.jpg)
 
 
 

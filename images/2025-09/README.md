@@ -1,3 +1,7 @@
+#### 20250917 迪纳利国家公园中的一头年轻雄性驼鹿, 阿拉斯加, 美国 (© Grant Ordelheide/TANDEM Stills + Motion)
+
+![](20250917_YoungMoose_1920x1080.jpg)
+
 #### 20250916 Nighttime view of the Gulf Coast states from 225 miles above Earth (© Stocktrek Images/Getty Images)
 
 ![](20250916_OzoneEarth_1920x1080.jpg)
