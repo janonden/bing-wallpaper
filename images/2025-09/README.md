@@ -1,4 +1,4 @@
-#### 20250916 从地球上空225英里处俯瞰墨西哥湾沿岸各州的夜间景象 (© Stocktrek Images/Getty Images)
+#### 20250916 Nighttime view of the Gulf Coast states from 225 miles above Earth (© Stocktrek Images/Getty Images)
 
 ![](20250916_OzoneEarth_1920x1080.jpg)
 
