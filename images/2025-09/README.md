@@ -1,3 +1,7 @@
+#### 20250918 邓金码头的蛇形楼梯, 凯里郡, 爱尔兰 (© Hugh O'Connor/Getty Images)
+
+![](20250918_DunquinIreland_1920x1080.jpg)
+
 #### 20250917 Young bull moose in Denali National Park, Alaska (© Grant Ordelheide/TANDEM Stills + Motion)
 
 ![](20250917_YoungMoose_1920x1080.jpg)

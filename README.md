@@ -1,3 +1,7 @@
+#### 20250918 邓金码头的蛇形楼梯, 凯里郡, 爱尔兰 (© Hugh O'Connor/Getty Images)
+
+![](images/2025-09/20250918_DunquinIreland_1920x1080.jpg)
+
 #### 20250917 Young bull moose in Denali National Park, Alaska (© Grant Ordelheide/TANDEM Stills + Motion)
 
 ![](images/2025-09/20250917_YoungMoose_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250910 Hay bales, North Yorkshire, England (© Nick Brundle Photography/Getty Images)
 
 ![](images/2025-09/20250910_YorkshireHay_1920x1080.jpg)
-
-#### 20250909 A female Eurasian red squirrel carrying moss, Switzerland (© Jean-Luc and Francoise Ziegler/Minden Pictures)
-
-![](images/2025-09/20250909_SwissSquirrel_1920x1080.jpg)
 
 
 
