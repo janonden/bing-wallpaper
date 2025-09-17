@@ -1,4 +1,4 @@
-#### 20250917 迪纳利国家公园中的一头年轻雄性驼鹿, 阿拉斯加, 美国 (© Grant Ordelheide/TANDEM Stills + Motion)
+#### 20250917 Young bull moose in Denali National Park, Alaska (© Grant Ordelheide/TANDEM Stills + Motion)
 
 ![](images/2025-09/20250917_YoungMoose_1920x1080.jpg)
 
