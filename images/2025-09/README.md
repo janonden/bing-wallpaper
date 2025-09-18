@@ -1,4 +1,4 @@
-#### 20250918 邓金码头的蛇形楼梯, 凯里郡, 爱尔兰 (© Hugh O'Connor/Getty Images)
+#### 20250918 Serpentine stairs of Dunquin Pier, County Kerry, Ireland (© Hugh O'Connor/Getty Images)
 
 ![](20250918_DunquinIreland_1920x1080.jpg)
 
