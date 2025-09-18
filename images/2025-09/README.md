@@ -1,3 +1,7 @@
+#### 20250919 千岛群岛地区，圣劳伦斯河，美加边境 (© benedek/Getty Images)
+
+![](20250919_ThousandIslands_1920x1080.jpg)
+
 #### 20250918 Serpentine stairs of Dunquin Pier, County Kerry, Ireland (© Hugh O'Connor/Getty Images)
 
 ![](20250918_DunquinIreland_1920x1080.jpg)

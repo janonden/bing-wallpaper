@@ -1,3 +1,7 @@
+#### 20250919 千岛群岛地区，圣劳伦斯河，美加边境 (© benedek/Getty Images)
+
+![](images/2025-09/20250919_ThousandIslands_1920x1080.jpg)
+
 #### 20250918 Serpentine stairs of Dunquin Pier, County Kerry, Ireland (© Hugh O'Connor/Getty Images)
 
 ![](images/2025-09/20250918_DunquinIreland_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250911 蒙弗拉圭国家公园塔霍河畔的猎鹰岩，西班牙 (© Daniel Viñé Garcia/Getty Images)
 
 ![](images/2025-09/20250911_ExtremaduraJamon_1920x1080.jpg)
-
-#### 20250910 Hay bales, North Yorkshire, England (© Nick Brundle Photography/Getty Images)
-
-![](images/2025-09/20250910_YorkshireHay_1920x1080.jpg)
 
 
 
