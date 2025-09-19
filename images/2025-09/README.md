@@ -1,4 +1,4 @@
-#### 20250919 千岛群岛地区，圣劳伦斯河，美加边境 (© benedek/Getty Images)
+#### 20250919 Thousand Islands region, St. Lawrence River, US-Canada border (© benedek/Getty Images)
 
 ![](20250919_ThousandIslands_1920x1080.jpg)
 
