@@ -2,6 +2,10 @@
 
 ![](images/2025-09/20250919_ThousandIslands_1920x1080.jpg)
 
+#### 20250919 Vue aérienne du circuit Paul Ricard, Le Castellet (© Sami Sarkis/Getty Images)
+
+![](images/2025-09/20250919_BolDor_1920x1080.jpg)
+
 #### 20250918 Serpentine stairs of Dunquin Pier, County Kerry, Ireland (© Hugh O'Connor/Getty Images)
 
 ![](images/2025-09/20250918_DunquinIreland_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250911 Statue of Liberty and Lower Manhattan, New York City (© Tetra Images/Getty Images)
 
 ![](images/2025-09/20250911_LibertyManhattan_1920x1080.jpg)
-
-#### 20250911 蒙弗拉圭国家公园塔霍河畔的猎鹰岩，西班牙 (© Daniel Viñé Garcia/Getty Images)
-
-![](images/2025-09/20250911_ExtremaduraJamon_1920x1080.jpg)
 
 
 
