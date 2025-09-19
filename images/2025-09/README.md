@@ -1,3 +1,7 @@
+#### 20250920 慕尼黑啤酒节上的旋转木马，慕尼黑，巴伐利亚，德国 (© LOOK-foto/Alamy)
+
+![](20250920_OktoberfestSwing_1920x1080.jpg)
+
 #### 20250919 Thousand Islands region, St. Lawrence River, US-Canada border (© benedek/Getty Images)
 
 ![](20250919_ThousandIslands_1920x1080.jpg)

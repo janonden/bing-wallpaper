@@ -1,3 +1,7 @@
+#### 20250920 慕尼黑啤酒节上的旋转木马，慕尼黑，巴伐利亚，德国 (© LOOK-foto/Alamy)
+
+![](images/2025-09/20250920_OktoberfestSwing_1920x1080.jpg)
+
 #### 20250919 Thousand Islands region, St. Lawrence River, US-Canada border (© benedek/Getty Images)
 
 ![](images/2025-09/20250919_ThousandIslands_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250912 種子島宇宙センター, 鹿児島県 (© norinori303/Adobe Stock)
 
 ![](images/2025-09/20250912_SpaceDay_1920x1080.jpg)
-
-#### 20250911 Statue of Liberty and Lower Manhattan, New York City (© Tetra Images/Getty Images)
-
-![](images/2025-09/20250911_LibertyManhattan_1920x1080.jpg)
 
 
 
