@@ -1,3 +1,7 @@
+#### 20250921 海獭，威廉王子湾，阿拉斯加州，美国 (© Gerald Corsi/Getty Images)
+
+![](images/2025-09/20250921_IceOtters_1920x1080.jpg)
+
 #### 20250920 Swing carousel at Oktoberfest, Munich, Germany (© LOOK-foto/Alamy)
 
 ![](images/2025-09/20250920_OktoberfestSwing_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250913 Chimney Rock, Point Reyes National Seashore, California (© Enrique Aguirre Aves/Getty Images)
 
 ![](images/2025-09/20250913_PointReyesSeashore_1920x1080.jpg)
-
-#### 20250912 Spinner dolphin pod in the Red Sea, Marsa Alam, Egypt (© Franco Banfi/Nature Picture Library)
-
-![](images/2025-09/20250912_SpinnerDolphins_1920x1080.jpg)
 
 
 

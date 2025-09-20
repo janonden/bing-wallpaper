@@ -1,3 +1,7 @@
+#### 20250921 海獭，威廉王子湾，阿拉斯加州，美国 (© Gerald Corsi/Getty Images)
+
+![](20250921_IceOtters_1920x1080.jpg)
+
 #### 20250920 Swing carousel at Oktoberfest, Munich, Germany (© LOOK-foto/Alamy)
 
 ![](20250920_OktoberfestSwing_1920x1080.jpg)
