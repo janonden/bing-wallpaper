@@ -2,6 +2,10 @@
 
 ![](images/2025-09/20250920_OktoberfestSwing_1920x1080.jpg)
 
+#### 20250920 Hacker-Festzelt auf dem Oktoberfest, München, Bayern (© Westend61/Getty Images Plus)
+
+![](images/2025-09/20250920_OktoberfestHackerFestzelt_1920x1080.jpg)
+
 #### 20250919 Thousand Islands region, St. Lawrence River, US-Canada border (© benedek/Getty Images)
 
 ![](images/2025-09/20250919_ThousandIslands_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250912 Spinner dolphin pod in the Red Sea, Marsa Alam, Egypt (© Franco Banfi/Nature Picture Library)
 
 ![](images/2025-09/20250912_SpinnerDolphins_1920x1080.jpg)
-
-#### 20250912 種子島宇宙センター, 鹿児島県 (© norinori303/Adobe Stock)
-
-![](images/2025-09/20250912_SpaceDay_1920x1080.jpg)
 
 
 
