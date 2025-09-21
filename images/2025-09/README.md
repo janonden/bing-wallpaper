@@ -1,3 +1,11 @@
+#### 20250922 サンショクキムネオオハシ, コスタリカ (© Juan Carlos Vindas/Getty Images)
+
+![](20250922_ToucanForest_1920x1080.jpg)
+
+#### 20250922 秋日的白杨树，鱼湖国家森林，犹他州，美国 (© Danita Delimont/Getty Images)
+
+![](20250922_AspenEquinox_1920x1080.jpg)
+
 #### 20250921 Sea otters, Prince William Sound, Alaska (© Gerald Corsi/Getty Images)
 
 ![](20250921_IceOtters_1920x1080.jpg)
