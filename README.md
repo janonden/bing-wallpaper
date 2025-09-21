@@ -2,6 +2,10 @@
 
 ![](images/2025-09/20250921_IceOtters_1920x1080.jpg)
 
+#### 20250921 L’aiguille et la Porte d’Aval, falaises d’Étretat, Normandie (© Luis Henrique Boucault/Getty Images)
+
+![](images/2025-09/20250921_EtretatBeach_1920x1080.jpg)
+
 #### 20250920 Swing carousel at Oktoberfest, Munich, Germany (© LOOK-foto/Alamy)
 
 ![](images/2025-09/20250920_OktoberfestSwing_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250914 Orangerie Gera, Thüringen (© luchschenF/Shutterstock)
 
 ![](images/2025-09/20250914_GeraOrangerie_1920x1080.jpg)
-
-#### 20250913 Chimney Rock, Point Reyes National Seashore, California (© Enrique Aguirre Aves/Getty Images)
-
-![](images/2025-09/20250913_PointReyesSeashore_1920x1080.jpg)
 
 
 

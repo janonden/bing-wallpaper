@@ -2,6 +2,10 @@
 
 ![](20250921_IceOtters_1920x1080.jpg)
 
+#### 20250921 L’aiguille et la Porte d’Aval, falaises d’Étretat, Normandie (© Luis Henrique Boucault/Getty Images)
+
+![](20250921_EtretatBeach_1920x1080.jpg)
+
 #### 20250920 Swing carousel at Oktoberfest, Munich, Germany (© LOOK-foto/Alamy)
 
 ![](20250920_OktoberfestSwing_1920x1080.jpg)
