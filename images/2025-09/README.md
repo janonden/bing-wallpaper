@@ -1,4 +1,4 @@
-#### 20250921 海獭，威廉王子湾，阿拉斯加州，美国 (© Gerald Corsi/Getty Images)
+#### 20250921 Sea otters, Prince William Sound, Alaska (© Gerald Corsi/Getty Images)
 
 ![](20250921_IceOtters_1920x1080.jpg)
 
