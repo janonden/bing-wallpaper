@@ -1,3 +1,11 @@
+#### 20250923 航拍中国江苏省常州翠竹公园 (© Xu Changyu/Getty images)
+
+![](20250923_AutumnalEquinoxY_1920x1080.jpg)
+
+#### 20250923 秋の七草 ハギ (© kororokerokero/Getty Images)
+
+![](20250923_AutumnEquinox_1920x1080.jpg)
+
 #### 20250922 サンショクキムネオオハシ, コスタリカ (© Juan Carlos Vindas/Getty Images)
 
 ![](20250922_ToucanForest_1920x1080.jpg)

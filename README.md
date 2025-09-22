@@ -1,3 +1,11 @@
+#### 20250923 航拍中国江苏省常州翠竹公园 (© Xu Changyu/Getty images)
+
+![](images/2025-09/20250923_AutumnalEquinoxY_1920x1080.jpg)
+
+#### 20250923 秋の七草 ハギ (© kororokerokero/Getty Images)
+
+![](images/2025-09/20250923_AutumnEquinox_1920x1080.jpg)
+
 #### 20250922 サンショクキムネオオハシ, コスタリカ (© Juan Carlos Vindas/Getty Images)
 
 ![](images/2025-09/20250922_ToucanForest_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20250915 Latino Cultural Center designed by Ricardo Legorreta, Dallas, Texas (© Ken Hurst/Alamy)
 
 ![](images/2025-09/20250915_DallasLegorreta_1920x1080.jpg)
-
-#### 20250915 Coastline at Cape Breton Highlands National Park, Nova Scotia (© Tiago_Fernandez/Getty Images)
-
-![](images/2025-09/20250915_BrentonHighlandsNP_1920x1080.jpg)
-
-#### 20250915 アメリカワシミミズク (© Scott Suriano/Getty Images)
-
-![](images/2025-09/20250915_AgedDay_1920x1080.jpg)
 
 
 
