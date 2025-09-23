@@ -6,7 +6,7 @@
 
 ![](images/2025-09/20250923_AutumnEquinox_1920x1080.jpg)
 
-#### 20250922 サンショクキムネオオハシ, コスタリカ (© Juan Carlos Vindas/Getty Images)
+#### 20250922 Keel-billed toucan in Costa Rica (© Juan Carlos Vindas/Getty Images)
 
 ![](images/2025-09/20250922_ToucanForest_1920x1080.jpg)
 
