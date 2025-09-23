@@ -1,3 +1,7 @@
+#### 20250924 魔鬼塔国家纪念碑, 怀俄明州，美国 (© Laura Hedien/Getty Images)
+
+![](20250924_BearLodge_1920x1080.jpg)
+
 #### 20250923 航拍中国江苏省常州翠竹公园 (© Xu Changyu/Getty images)
 
 ![](20250923_AutumnalEquinoxY_1920x1080.jpg)

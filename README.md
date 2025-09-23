@@ -1,3 +1,7 @@
+#### 20250924 魔鬼塔国家纪念碑, 怀俄明州，美国 (© Laura Hedien/Getty Images)
+
+![](images/2025-09/20250924_BearLodge_1920x1080.jpg)
+
 #### 20250923 航拍中国江苏省常州翠竹公园 (© Xu Changyu/Getty images)
 
 ![](images/2025-09/20250923_AutumnalEquinoxY_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250915 黑翅长脚鹬, 法国 (© Antonio Sementa/500px/Getty Images)
 
 ![](images/2025-09/20250915_Echasse_1920x1080.jpg)
-
-#### 20250915 Latino Cultural Center designed by Ricardo Legorreta, Dallas, Texas (© Ken Hurst/Alamy)
-
-![](images/2025-09/20250915_DallasLegorreta_1920x1080.jpg)
 
 
 
