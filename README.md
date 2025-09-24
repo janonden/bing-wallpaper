@@ -1,3 +1,7 @@
+#### 20250925 奇陶尔加尔堡, 拉贾斯坦邦, 印度 (© chetansoni/Shutterstock)
+
+![](images/2025-09/20250925_FortChittorgarh_1920x1080.jpg)
+
 #### 20250924 Devils Tower National Monument, Wyoming (© Laura Hedien/Getty Images)
 
 ![](images/2025-09/20250924_BearLodge_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250916 Nighttime view of the Gulf Coast states from 225 miles above Earth (© Stocktrek Images/Getty Images)
 
 ![](images/2025-09/20250916_OzoneEarth_1920x1080.jpg)
-
-#### 20250915 黑翅长脚鹬, 法国 (© Antonio Sementa/500px/Getty Images)
-
-![](images/2025-09/20250915_Echasse_1920x1080.jpg)
 
 
 

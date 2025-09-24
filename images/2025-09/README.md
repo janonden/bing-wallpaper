@@ -1,3 +1,7 @@
+#### 20250925 奇陶尔加尔堡, 拉贾斯坦邦, 印度 (© chetansoni/Shutterstock)
+
+![](20250925_FortChittorgarh_1920x1080.jpg)
+
 #### 20250924 Devils Tower National Monument, Wyoming (© Laura Hedien/Getty Images)
 
 ![](20250924_BearLodge_1920x1080.jpg)
