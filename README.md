@@ -1,4 +1,4 @@
-#### 20250924 魔鬼塔国家纪念碑, 怀俄明州，美国 (© Laura Hedien/Getty Images)
+#### 20250924 Devils Tower National Monument, Wyoming (© Laura Hedien/Getty Images)
 
 ![](images/2025-09/20250924_BearLodge_1920x1080.jpg)
 
