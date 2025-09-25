@@ -1,3 +1,7 @@
+#### 20250926 最小花栗鼠, 库特奈国家公园, 蒙大拿州, 美国 (© Donald M. Jones/Minden Pictures)
+
+![](20250926_AutumnChipmunk_1920x1080.jpg)
+
 #### 20250925 Chittorgarh Fort, Rajasthan, India (© chetansoni/Shutterstock)
 
 ![](20250925_FortChittorgarh_1920x1080.jpg)

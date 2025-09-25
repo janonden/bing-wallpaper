@@ -1,3 +1,7 @@
+#### 20250926 最小花栗鼠, 库特奈国家公园, 蒙大拿州, 美国 (© Donald M. Jones/Minden Pictures)
+
+![](images/2025-09/20250926_AutumnChipmunk_1920x1080.jpg)
+
 #### 20250925 Chittorgarh Fort, Rajasthan, India (© chetansoni/Shutterstock)
 
 ![](images/2025-09/20250925_FortChittorgarh_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250917 Young bull moose in Denali National Park, Alaska (© Grant Ordelheide/TANDEM Stills + Motion)
 
 ![](images/2025-09/20250917_YoungMoose_1920x1080.jpg)
-
-#### 20250916 Nighttime view of the Gulf Coast states from 225 miles above Earth (© Stocktrek Images/Getty Images)
-
-![](images/2025-09/20250916_OzoneEarth_1920x1080.jpg)
 
 
 
