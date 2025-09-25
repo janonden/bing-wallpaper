@@ -1,4 +1,4 @@
-#### 20250925 奇陶尔加尔堡, 拉贾斯坦邦, 印度 (© chetansoni/Shutterstock)
+#### 20250925 Chittorgarh Fort, Rajasthan, India (© chetansoni/Shutterstock)
 
 ![](20250925_FortChittorgarh_1920x1080.jpg)
 
