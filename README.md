@@ -1,3 +1,7 @@
+#### 20250927 坦克湖 (Tank Lakes), 高山湖泊荒野区, 华盛顿州, 美国 (© Austin Trigg/TANDEM Stills + Motion)
+
+![](images/2025-09/20250927_TankLakes_1920x1080.jpg)
+
 #### 20250926 Least chipmunk, Kootenai National Forest, Montana (© Donald M. Jones/Minden Pictures)
 
 ![](images/2025-09/20250926_AutumnChipmunk_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250918 Serpentine stairs of Dunquin Pier, County Kerry, Ireland (© Hugh O'Connor/Getty Images)
 
 ![](images/2025-09/20250918_DunquinIreland_1920x1080.jpg)
-
-#### 20250917 Young bull moose in Denali National Park, Alaska (© Grant Ordelheide/TANDEM Stills + Motion)
-
-![](images/2025-09/20250917_YoungMoose_1920x1080.jpg)
 
 
 

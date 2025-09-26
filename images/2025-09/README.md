@@ -1,3 +1,7 @@
+#### 20250927 坦克湖 (Tank Lakes), 高山湖泊荒野区, 华盛顿州, 美国 (© Austin Trigg/TANDEM Stills + Motion)
+
+![](20250927_TankLakes_1920x1080.jpg)
+
 #### 20250926 Least chipmunk, Kootenai National Forest, Montana (© Donald M. Jones/Minden Pictures)
 
 ![](20250926_AutumnChipmunk_1920x1080.jpg)
