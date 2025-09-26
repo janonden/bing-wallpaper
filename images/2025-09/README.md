@@ -1,4 +1,4 @@
-#### 20250926 最小花栗鼠, 库特奈国家公园, 蒙大拿州, 美国 (© Donald M. Jones/Minden Pictures)
+#### 20250926 Least chipmunk, Kootenai National Forest, Montana (© Donald M. Jones/Minden Pictures)
 
 ![](20250926_AutumnChipmunk_1920x1080.jpg)
 
