@@ -1,4 +1,4 @@
-#### 20250927 坦克湖 (Tank Lakes), 高山湖泊荒野区, 华盛顿州, 美国 (© Austin Trigg/TANDEM Stills + Motion)
+#### 20250927 Tank Lakes, Alpine Lakes Wilderness, Washington (© Austin Trigg/TANDEM Stills + Motion)
 
 ![](20250927_TankLakes_1920x1080.jpg)
 
