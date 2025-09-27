@@ -2,6 +2,10 @@
 
 ![](images/2025-09/20250927_TankLakes_1920x1080.jpg)
 
+#### 20250927 Red maple in fall, Canada (© LiuSol/Getty Images)
+
+![](images/2025-09/20250927_RedMapleleaf_1920x1080.jpg)
+
 #### 20250927 Herbstliche Farben in Berlin (© Sergio Saavedra Ruiz/Getty Images)
 
 ![](images/2025-09/20250927_BerlinAutumn_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250919 Thousand Islands region, St. Lawrence River, US-Canada border (© benedek/Getty Images)
 
 ![](images/2025-09/20250919_ThousandIslands_1920x1080.jpg)
-
-#### 20250919 Vue aérienne du circuit Paul Ricard, Le Castellet (© Sami Sarkis/Getty Images)
-
-![](images/2025-09/20250919_BolDor_1920x1080.jpg)
 
 
 

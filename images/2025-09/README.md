@@ -2,6 +2,10 @@
 
 ![](20250927_TankLakes_1920x1080.jpg)
 
+#### 20250927 Red maple in fall, Canada (© LiuSol/Getty Images)
+
+![](20250927_RedMapleleaf_1920x1080.jpg)
+
 #### 20250927 Herbstliche Farben in Berlin (© Sergio Saavedra Ruiz/Getty Images)
 
 ![](20250927_BerlinAutumn_1920x1080.jpg)
