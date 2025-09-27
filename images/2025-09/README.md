@@ -1,3 +1,7 @@
+#### 20250928 托斯卡纳的皮恩扎镇, 意大利 (© zpagistock/Getty Images)
+
+![](20250928_PienzaItaly_1920x1080.jpg)
+
 #### 20250927 Tank Lakes, Alpine Lakes Wilderness, Washington (© Austin Trigg/TANDEM Stills + Motion)
 
 ![](20250927_TankLakes_1920x1080.jpg)

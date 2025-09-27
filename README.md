@@ -1,3 +1,7 @@
+#### 20250928 托斯卡纳的皮恩扎镇, 意大利 (© zpagistock/Getty Images)
+
+![](images/2025-09/20250928_PienzaItaly_1920x1080.jpg)
+
 #### 20250927 Tank Lakes, Alpine Lakes Wilderness, Washington (© Austin Trigg/TANDEM Stills + Motion)
 
 ![](images/2025-09/20250927_TankLakes_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250920 Hacker-Festzelt auf dem Oktoberfest, München, Bayern (© Westend61/Getty Images Plus)
 
 ![](images/2025-09/20250920_OktoberfestHackerFestzelt_1920x1080.jpg)
-
-#### 20250919 Thousand Islands region, St. Lawrence River, US-Canada border (© benedek/Getty Images)
-
-![](images/2025-09/20250919_ThousandIslands_1920x1080.jpg)
 
 
 
