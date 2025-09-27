@@ -2,6 +2,10 @@
 
 ![](20250927_TankLakes_1920x1080.jpg)
 
+#### 20250927 Herbstliche Farben in Berlin (© Sergio Saavedra Ruiz/Getty Images)
+
+![](20250927_BerlinAutumn_1920x1080.jpg)
+
 #### 20250926 Least chipmunk, Kootenai National Forest, Montana (© Donald M. Jones/Minden Pictures)
 
 ![](20250926_AutumnChipmunk_1920x1080.jpg)

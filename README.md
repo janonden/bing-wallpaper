@@ -2,6 +2,10 @@
 
 ![](images/2025-09/20250927_TankLakes_1920x1080.jpg)
 
+#### 20250927 Herbstliche Farben in Berlin (© Sergio Saavedra Ruiz/Getty Images)
+
+![](images/2025-09/20250927_BerlinAutumn_1920x1080.jpg)
+
 #### 20250926 Least chipmunk, Kootenai National Forest, Montana (© Donald M. Jones/Minden Pictures)
 
 ![](images/2025-09/20250926_AutumnChipmunk_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250919 Vue aérienne du circuit Paul Ricard, Le Castellet (© Sami Sarkis/Getty Images)
 
 ![](images/2025-09/20250919_BolDor_1920x1080.jpg)
-
-#### 20250918 Serpentine stairs of Dunquin Pier, County Kerry, Ireland (© Hugh O'Connor/Getty Images)
-
-![](images/2025-09/20250918_DunquinIreland_1920x1080.jpg)
 
 
 
