@@ -1,4 +1,4 @@
-#### 20250928 托斯卡纳的皮恩扎镇, 意大利 (© zpagistock/Getty Images)
+#### 20250928 Town of Pienza in Tuscany, Italy (© zpagistock/Getty Images)
 
 ![](20250928_PienzaItaly_1920x1080.jpg)
 
