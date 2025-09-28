@@ -1,3 +1,11 @@
+#### 20250929 豪徳寺の招き猫, 東京都 (© Maria S./Alamy Stock Photo)
+
+![](images/2025-09/20250929_ManekiNeko_1920x1080.jpg)
+
+#### 20250929 豪滕镇的彩虹屋, 荷兰 (© George Pachantouris/Getty Images)
+
+![](images/2025-09/20250929_HoutenHouses_1920x1080.jpg)
+
 #### 20250928 Town of Pienza in Tuscany, Italy (© zpagistock/Getty Images)
 
 ![](images/2025-09/20250928_PienzaItaly_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20250921 L’aiguille et la Porte d’Aval, falaises d’Étretat, Normandie (© Luis Henrique Boucault/Getty Images)
 
 ![](images/2025-09/20250921_EtretatBeach_1920x1080.jpg)
-
-#### 20250920 Swing carousel at Oktoberfest, Munich, Germany (© LOOK-foto/Alamy)
-
-![](images/2025-09/20250920_OktoberfestSwing_1920x1080.jpg)
-
-#### 20250920 Hacker-Festzelt auf dem Oktoberfest, München, Bayern (© Westend61/Getty Images Plus)
-
-![](images/2025-09/20250920_OktoberfestHackerFestzelt_1920x1080.jpg)
 
 
 

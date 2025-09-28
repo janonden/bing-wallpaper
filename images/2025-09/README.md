@@ -1,3 +1,11 @@
+#### 20250929 豪徳寺の招き猫, 東京都 (© Maria S./Alamy Stock Photo)
+
+![](20250929_ManekiNeko_1920x1080.jpg)
+
+#### 20250929 豪滕镇的彩虹屋, 荷兰 (© George Pachantouris/Getty Images)
+
+![](20250929_HoutenHouses_1920x1080.jpg)
+
 #### 20250928 Town of Pienza in Tuscany, Italy (© zpagistock/Getty Images)
 
 ![](20250928_PienzaItaly_1920x1080.jpg)
