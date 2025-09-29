@@ -1,3 +1,7 @@
+#### 20250930 桉树上的考拉, 大奥特维国家公园, 澳大利亚 (© Jamie Lamb - elusive-images.co.uk/Getty Images)
+
+![](20250930_EucalyptusKoala_1920x1080.jpg)
+
 #### 20250929 豪徳寺の招き猫, 東京都 (© Maria S./Alamy Stock Photo)
 
 ![](20250929_ManekiNeko_1920x1080.jpg)

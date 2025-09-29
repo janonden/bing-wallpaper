@@ -1,3 +1,7 @@
+#### 20250930 桉树上的考拉, 大奥特维国家公园, 澳大利亚 (© Jamie Lamb - elusive-images.co.uk/Getty Images)
+
+![](images/2025-09/20250930_EucalyptusKoala_1920x1080.jpg)
+
 #### 20250929 豪徳寺の招き猫, 東京都 (© Maria S./Alamy Stock Photo)
 
 ![](images/2025-09/20250929_ManekiNeko_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250921 Sea otters, Prince William Sound, Alaska (© Gerald Corsi/Getty Images)
 
 ![](images/2025-09/20250921_IceOtters_1920x1080.jpg)
-
-#### 20250921 L’aiguille et la Porte d’Aval, falaises d’Étretat, Normandie (© Luis Henrique Boucault/Getty Images)
-
-![](images/2025-09/20250921_EtretatBeach_1920x1080.jpg)
 
 
 
