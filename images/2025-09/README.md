@@ -2,7 +2,7 @@
 
 ![](20250929_ManekiNeko_1920x1080.jpg)
 
-#### 20250929 豪滕镇的彩虹屋, 荷兰 (© George Pachantouris/Getty Images)
+#### 20250929 The Rainbow Houses of Houten, Netherlands (© George Pachantouris/Getty Images)
 
 ![](20250929_HoutenHouses_1920x1080.jpg)
 
