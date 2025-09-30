@@ -1,4 +1,4 @@
-#### 20250930 桉树上的考拉, 大奥特维国家公园, 澳大利亚 (© Jamie Lamb - elusive-images.co.uk/Getty Images)
+#### 20250930 Koala in a eucalyptus tree, Great Otway National Park, Australia (© Jamie Lamb - elusive-images.co.uk/Getty Images)
 
 ![](20250930_EucalyptusKoala_1920x1080.jpg)
 
