@@ -1,3 +1,7 @@
+#### 20251004 从SpaceX载人龙飞船“奋进号”视角看到的国际空间站主太阳能电池阵列 (© NASA)
+
+![](20251004_DragonEndeavour_1920x1080.jpg)
+
 #### 20251003 Heather growing in Glen Brittle, Isle of Skye, Scotland (© Adam Mowery/TANDEM Stills + Motion)
 
 ![](20251003_SkyeHeather_1920x1080.jpg)
