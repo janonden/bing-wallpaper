@@ -2,6 +2,10 @@
 
 ![](images/2025-10/20251003_SkyeHeather_1920x1080.jpg)
 
+#### 20251003 Brandenburger Tor bei Sonnenuntergang, Berlin (© Craig Hastings/Getty Images)
+
+![](images/2025-10/20251003_BrandenburgGate_1920x1080.jpg)
+
 #### 20251002 Oxbow Bend on the Snake River, Grand Teton National Park, Wyoming (© DanitaDelimont.com/AWL Images/SuperStock)
 
 ![](images/2025-10/20251002_OxbowBend_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250923 航拍中国江苏省常州翠竹公园 (© Xu Changyu/Getty images)
 
 ![](images/2025-09/20250923_AutumnalEquinoxY_1920x1080.jpg)
-
-#### 20250923 秋の七草 ハギ (© kororokerokero/Getty Images)
-
-![](images/2025-09/20250923_AutumnEquinox_1920x1080.jpg)
 
 
 
