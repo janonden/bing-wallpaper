@@ -1,4 +1,4 @@
-#### 20251003 布里特尔峡谷里生长的帚石楠花, 斯凯岛, 苏格兰 (© Adam Mowery/TANDEM Stills + Motion)
+#### 20251003 Heather growing in Glen Brittle, Isle of Skye, Scotland (© Adam Mowery/TANDEM Stills + Motion)
 
 ![](images/2025-10/20251003_SkyeHeather_1920x1080.jpg)
 
