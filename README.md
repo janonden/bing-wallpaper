@@ -2,6 +2,10 @@
 
 ![](images/2025-10/20251004_DragonEndeavour_1920x1080.jpg)
 
+#### 20251004 Chevaux de Camargue, Aigues-Mortes, Occitanie (© Francesco Riccardo Lacomino/Getty Images)
+
+![](images/2025-10/20251004_CamagueHorses_1920x1080.jpg)
+
 #### 20251003 Heather growing in Glen Brittle, Isle of Skye, Scotland (© Adam Mowery/TANDEM Stills + Motion)
 
 ![](images/2025-10/20251003_SkyeHeather_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250925 Chittorgarh Fort, Rajasthan, India (© chetansoni/Shutterstock)
 
 ![](images/2025-09/20250925_FortChittorgarh_1920x1080.jpg)
-
-#### 20250924 Devils Tower National Monument, Wyoming (© Laura Hedien/Getty Images)
-
-![](images/2025-09/20250924_BearLodge_1920x1080.jpg)
 
 
 
