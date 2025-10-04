@@ -1,3 +1,7 @@
+#### 20251005 中欧森林里的鬼鸮 (© Ondrej Prosicky/Alamy)
+
+![](20251005_TeacherOwl_1920x1080.jpg)
+
 #### 20251004 'Inside Out' by JR at the Nathan Phillips Square, Nuit Blanche 2015, Toronto (© Melissa Renwick/Contributor/Getty Images)
 
 ![](20251004_InsideOutNB_1920x1080.jpg)
