@@ -1,3 +1,7 @@
+#### 20251004 'Inside Out' by JR at the Nathan Phillips Square, Nuit Blanche 2015, Toronto (© Melissa Renwick/Contributor/Getty Images)
+
+![](images/2025-10/20251004_InsideOutNB_1920x1080.jpg)
+
 #### 20251004 从SpaceX载人龙飞船“奋进号”视角看到的国际空间站主太阳能电池阵列 (© NASA)
 
 ![](images/2025-10/20251004_DragonEndeavour_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250926 Least chipmunk, Kootenai National Forest, Montana (© Donald M. Jones/Minden Pictures)
 
 ![](images/2025-09/20250926_AutumnChipmunk_1920x1080.jpg)
-
-#### 20250925 Chittorgarh Fort, Rajasthan, India (© chetansoni/Shutterstock)
-
-![](images/2025-09/20250925_FortChittorgarh_1920x1080.jpg)
 
 
 
