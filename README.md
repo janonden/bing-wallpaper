@@ -1,3 +1,7 @@
+#### 20251006 安顺桥中秋灯展，成都，中国 (© Philippe LEJEANVRE/Getty Images)
+
+![](images/2025-10/20251006_AnshunBridge_1920x1080.jpg)
+
 #### 20251005 Boreal owl in a forest in Central Europe (© Ondrej Prosicky/Alamy)
 
 ![](images/2025-10/20251005_TeacherOwl_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250927 Red maple in fall, Canada (© LiuSol/Getty Images)
 
 ![](images/2025-09/20250927_RedMapleleaf_1920x1080.jpg)
-
-#### 20250927 Herbstliche Farben in Berlin (© Sergio Saavedra Ruiz/Getty Images)
-
-![](images/2025-09/20250927_BerlinAutumn_1920x1080.jpg)
 
 
 

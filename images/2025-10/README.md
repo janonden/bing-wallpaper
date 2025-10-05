@@ -1,3 +1,7 @@
+#### 20251006 安顺桥中秋灯展，成都，中国 (© Philippe LEJEANVRE/Getty Images)
+
+![](20251006_AnshunBridge_1920x1080.jpg)
+
 #### 20251005 Boreal owl in a forest in Central Europe (© Ondrej Prosicky/Alamy)
 
 ![](20251005_TeacherOwl_1920x1080.jpg)
