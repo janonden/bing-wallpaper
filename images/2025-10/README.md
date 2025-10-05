@@ -1,4 +1,4 @@
-#### 20251005 中欧森林里的鬼鸮 (© Ondrej Prosicky/Alamy)
+#### 20251005 Boreal owl in a forest in Central Europe (© Ondrej Prosicky/Alamy)
 
 ![](20251005_TeacherOwl_1920x1080.jpg)
 
