@@ -1,3 +1,7 @@
+#### 20251007 里奇韦附近斯内弗尔斯山脚下的秋色, 科罗拉多州, 美国 (© Grant Ordelheide/TANDEM Stills + Motion)
+
+![](20251007_RidgwayAspens_1920x1080.jpg)
+
 #### 20251006 Anshun Bridge illuminated for the Mid-Autumn Festival, Chengdu, China (© Philippe LEJEANVRE/Getty Images)
 
 ![](20251006_AnshunBridge_1920x1080.jpg)

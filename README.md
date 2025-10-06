@@ -1,3 +1,7 @@
+#### 20251007 里奇韦附近斯内弗尔斯山脚下的秋色, 科罗拉多州, 美国 (© Grant Ordelheide/TANDEM Stills + Motion)
+
+![](images/2025-10/20251007_RidgwayAspens_1920x1080.jpg)
+
 #### 20251006 Anshun Bridge illuminated for the Mid-Autumn Festival, Chengdu, China (© Philippe LEJEANVRE/Getty Images)
 
 ![](images/2025-10/20251006_AnshunBridge_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250927 Tank Lakes, Alpine Lakes Wilderness, Washington (© Austin Trigg/TANDEM Stills + Motion)
 
 ![](images/2025-09/20250927_TankLakes_1920x1080.jpg)
-
-#### 20250927 Red maple in fall, Canada (© LiuSol/Getty Images)
-
-![](images/2025-09/20250927_RedMapleleaf_1920x1080.jpg)
 
 
 
