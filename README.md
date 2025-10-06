@@ -1,4 +1,4 @@
-#### 20251006 安顺桥中秋灯展，成都，中国 (© Philippe LEJEANVRE/Getty Images)
+#### 20251006 Anshun Bridge illuminated for the Mid-Autumn Festival, Chengdu, China (© Philippe LEJEANVRE/Getty Images)
 
 ![](images/2025-10/20251006_AnshunBridge_1920x1080.jpg)
 
