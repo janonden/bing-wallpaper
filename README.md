@@ -1,4 +1,4 @@
-#### 20251007 里奇韦附近斯内弗尔斯山脚下的秋色, 科罗拉多州, 美国 (© Grant Ordelheide/TANDEM Stills + Motion)
+#### 20251007 Fall colors below Mount Sneffels near Ridgway, Colorado (© Grant Ordelheide/TANDEM Stills + Motion)
 
 ![](images/2025-10/20251007_RidgwayAspens_1920x1080.jpg)
 
