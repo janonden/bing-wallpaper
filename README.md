@@ -2,6 +2,10 @@
 
 ![](images/2025-10/20251007_RidgwayAspens_1920x1080.jpg)
 
+#### 20251007 Rochers dans la mer au coucher du soleil, au Cap d’Antibes, Provence-Alpes-Côte d’Azur (© Eric Rousset/Getty Images)
+
+![](images/2025-10/20251007_CapAntibes_1920x1080.jpg)
+
 #### 20251006 Anshun Bridge illuminated for the Mid-Autumn Festival, Chengdu, China (© Philippe LEJEANVRE/Getty Images)
 
 ![](images/2025-10/20251006_AnshunBridge_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250928 Town of Pienza in Tuscany, Italy (© zpagistock/Getty Images)
 
 ![](images/2025-09/20250928_PienzaItaly_1920x1080.jpg)
-
-#### 20250927 Tank Lakes, Alpine Lakes Wilderness, Washington (© Austin Trigg/TANDEM Stills + Motion)
-
-![](images/2025-09/20250927_TankLakes_1920x1080.jpg)
 
 
 

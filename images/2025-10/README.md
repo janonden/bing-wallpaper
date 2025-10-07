@@ -2,6 +2,10 @@
 
 ![](20251007_RidgwayAspens_1920x1080.jpg)
 
+#### 20251007 Rochers dans la mer au coucher du soleil, au Cap d’Antibes, Provence-Alpes-Côte d’Azur (© Eric Rousset/Getty Images)
+
+![](20251007_CapAntibes_1920x1080.jpg)
+
 #### 20251006 Anshun Bridge illuminated for the Mid-Autumn Festival, Chengdu, China (© Philippe LEJEANVRE/Getty Images)
 
 ![](20251006_AnshunBridge_1920x1080.jpg)
