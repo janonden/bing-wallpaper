@@ -1,3 +1,11 @@
+#### 20251008 竜頭の滝, 栃木県 日光市 (© kecl/Getty images)
+
+![](20251008_Ryuzufalls_1920x1080.jpg)
+
+#### 20251008 白日章鱼, 毛伊岛, 夏威夷, 美国 (© Dave Fleetham/plainpicture)
+
+![](20251008_OctopusCyanea_1920x1080.jpg)
+
 #### 20251007 Fall colors below Mount Sneffels near Ridgway, Colorado (© Grant Ordelheide/TANDEM Stills + Motion)
 
 ![](20251007_RidgwayAspens_1920x1080.jpg)

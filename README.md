@@ -1,3 +1,11 @@
+#### 20251008 竜頭の滝, 栃木県 日光市 (© kecl/Getty images)
+
+![](images/2025-10/20251008_Ryuzufalls_1920x1080.jpg)
+
+#### 20251008 白日章鱼, 毛伊岛, 夏威夷, 美国 (© Dave Fleetham/plainpicture)
+
+![](images/2025-10/20251008_OctopusCyanea_1920x1080.jpg)
+
 #### 20251007 Fall colors below Mount Sneffels near Ridgway, Colorado (© Grant Ordelheide/TANDEM Stills + Motion)
 
 ![](images/2025-10/20251007_RidgwayAspens_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20250929 豪徳寺の招き猫, 東京都 (© Maria S./Alamy Stock Photo)
 
 ![](images/2025-09/20250929_ManekiNeko_1920x1080.jpg)
-
-#### 20250929 The Rainbow Houses of Houten, Netherlands (© George Pachantouris/Getty Images)
-
-![](images/2025-09/20250929_HoutenHouses_1920x1080.jpg)
-
-#### 20250928 Town of Pienza in Tuscany, Italy (© zpagistock/Getty Images)
-
-![](images/2025-09/20250928_PienzaItaly_1920x1080.jpg)
 
 
 
