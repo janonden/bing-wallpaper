@@ -1,3 +1,7 @@
+#### 20251009 ‌詹姆斯·韦伯太空望远镜观测的创生之柱 (© NASA)
+
+![](images/2025-10/20251009_WebbPillars_1920x1080.jpg)
+
 #### 20251008 竜頭の滝, 栃木県 日光市 (© kecl/Getty images)
 
 ![](images/2025-10/20251008_Ryuzufalls_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20250930 Koala in a eucalyptus tree, Great Otway National Park, Australia (© Jamie Lamb - elusive-images.co.uk/Getty Images)
 
 ![](images/2025-09/20250930_EucalyptusKoala_1920x1080.jpg)
-
-#### 20250929 豪徳寺の招き猫, 東京都 (© Maria S./Alamy Stock Photo)
-
-![](images/2025-09/20250929_ManekiNeko_1920x1080.jpg)
 
 
 
