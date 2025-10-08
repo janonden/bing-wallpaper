@@ -2,7 +2,7 @@
 
 ![](images/2025-10/20251008_Ryuzufalls_1920x1080.jpg)
 
-#### 20251008 白日章鱼, 毛伊岛, 夏威夷, 美国 (© Dave Fleetham/plainpicture)
+#### 20251008 Day octopus in the waters off Maui, Hawaii (© Dave Fleetham/plainpicture)
 
 ![](images/2025-10/20251008_OctopusCyanea_1920x1080.jpg)
 
