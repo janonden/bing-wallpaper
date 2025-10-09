@@ -1,3 +1,7 @@
+#### 20251010 莫努里基岛周边的珊瑚礁，玛玛努卡群岛，斐济 (© David Wall/SuperStock)
+
+![](20251010_MonurikiFiji_1920x1080.jpg)
+
 #### 20251009 The Pillars of Creation viewed by the James Webb Space Telescope (© NASA)
 
 ![](20251009_WebbPillars_1920x1080.jpg)

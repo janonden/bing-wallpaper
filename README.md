@@ -1,3 +1,7 @@
+#### 20251010 莫努里基岛周边的珊瑚礁，玛玛努卡群岛，斐济 (© David Wall/SuperStock)
+
+![](images/2025-10/20251010_MonurikiFiji_1920x1080.jpg)
+
 #### 20251009 The Pillars of Creation viewed by the James Webb Space Telescope (© NASA)
 
 ![](images/2025-10/20251009_WebbPillars_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20251001 Clark Range, Sierra Nevada, Yosemite National Park, California (© Robb Hirsch/TANDEM Stills + Motion)
 
 ![](images/2025-10/20251001_YosemiteClark_1920x1080.jpg)
-
-#### 20250930 Koala in a eucalyptus tree, Great Otway National Park, Australia (© Jamie Lamb - elusive-images.co.uk/Getty Images)
-
-![](images/2025-09/20250930_EucalyptusKoala_1920x1080.jpg)
 
 
 
