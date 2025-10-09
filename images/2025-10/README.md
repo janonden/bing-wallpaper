@@ -1,4 +1,4 @@
-#### 20251009 ‌詹姆斯·韦伯太空望远镜观测的创生之柱 (© NASA)
+#### 20251009 The Pillars of Creation viewed by the James Webb Space Telescope (© NASA)
 
 ![](20251009_WebbPillars_1920x1080.jpg)
 
