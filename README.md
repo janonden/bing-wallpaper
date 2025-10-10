@@ -1,4 +1,4 @@
-#### 20251010 莫努里基岛周边的珊瑚礁，玛玛努卡群岛，斐济 (© David Wall/SuperStock)
+#### 20251010 Coral reef surrounding the island of Monuriki, Mamanuca Islands, Fiji (© David Wall/SuperStock)
 
 ![](images/2025-10/20251010_MonurikiFiji_1920x1080.jpg)
 
