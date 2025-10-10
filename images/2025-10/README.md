@@ -1,3 +1,7 @@
+#### 20251011 林鸳鸯，美国 (© ps50ace/iStock/Getty Images)
+
+![](20251011_WoodDuckHen_1920x1080.jpg)
+
 #### 20251010 Coral reef surrounding the island of Monuriki, Mamanuca Islands, Fiji (© David Wall/SuperStock)
 
 ![](20251010_MonurikiFiji_1920x1080.jpg)

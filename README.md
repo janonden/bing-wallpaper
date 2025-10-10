@@ -1,3 +1,7 @@
+#### 20251011 林鸳鸯，美国 (© ps50ace/iStock/Getty Images)
+
+![](images/2025-10/20251011_WoodDuckHen_1920x1080.jpg)
+
 #### 20251010 Coral reef surrounding the island of Monuriki, Mamanuca Islands, Fiji (© David Wall/SuperStock)
 
 ![](images/2025-10/20251010_MonurikiFiji_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20251002 Oxbow Bend on the Snake River, Grand Teton National Park, Wyoming (© DanitaDelimont.com/AWL Images/SuperStock)
 
 ![](images/2025-10/20251002_OxbowBend_1920x1080.jpg)
-
-#### 20251001 Clark Range, Sierra Nevada, Yosemite National Park, California (© Robb Hirsch/TANDEM Stills + Motion)
-
-![](images/2025-10/20251001_YosemiteClark_1920x1080.jpg)
 
 
 
