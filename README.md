@@ -1,3 +1,7 @@
+#### 20251012 萨拉纳克湖村，阿迪朗达克山脉，纽约州，美国 (© DenisTangneyJr/Getty Images)
+
+![](images/2025-10/20251012_SaranacLake_1920x1080.jpg)
+
 #### 20251011 Wood duck hen (© ps50ace/iStock/Getty Images)
 
 ![](images/2025-10/20251011_WoodDuckHen_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20251003 Brandenburger Tor bei Sonnenuntergang, Berlin (© Craig Hastings/Getty Images)
 
 ![](images/2025-10/20251003_BrandenburgGate_1920x1080.jpg)
-
-#### 20251002 Oxbow Bend on the Snake River, Grand Teton National Park, Wyoming (© DanitaDelimont.com/AWL Images/SuperStock)
-
-![](images/2025-10/20251002_OxbowBend_1920x1080.jpg)
 
 
 
