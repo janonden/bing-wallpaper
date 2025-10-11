@@ -1,4 +1,4 @@
-#### 20251011 林鸳鸯，美国 (© ps50ace/iStock/Getty Images)
+#### 20251011 Wood duck hen (© ps50ace/iStock/Getty Images)
 
 ![](20251011_WoodDuckHen_1920x1080.jpg)
 
