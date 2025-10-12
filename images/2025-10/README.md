@@ -1,4 +1,4 @@
-#### 20251012 萨拉纳克湖村，阿迪朗达克山脉，纽约州，美国 (© DenisTangneyJr/Getty Images)
+#### 20251012 Village of Saranac Lake, Adirondack Mountains, New York (© DenisTangneyJr/Getty Images)
 
 ![](20251012_SaranacLake_1920x1080.jpg)
 
