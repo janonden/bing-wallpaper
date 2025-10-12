@@ -1,3 +1,11 @@
+#### 20251013 イア村, グリース (© f9photos/Getty Images)
+
+![](20251013_OiaSantorini_1920x1080.jpg)
+
+#### 20251013 温巴赫峡谷瀑布，巴伐利亚州，德国 (© EyeEm Mobile GmbH/Getty Images)
+
+![](20251013_HinterseeWaterfall_1920x1080.jpg)
+
 #### 20251012 Village of Saranac Lake, Adirondack Mountains, New York (© DenisTangneyJr/Getty Images)
 
 ![](20251012_SaranacLake_1920x1080.jpg)

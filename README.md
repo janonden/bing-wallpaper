@@ -1,3 +1,11 @@
+#### 20251013 イア村, グリース (© f9photos/Getty Images)
+
+![](images/2025-10/20251013_OiaSantorini_1920x1080.jpg)
+
+#### 20251013 温巴赫峡谷瀑布，巴伐利亚州，德国 (© EyeEm Mobile GmbH/Getty Images)
+
+![](images/2025-10/20251013_HinterseeWaterfall_1920x1080.jpg)
+
 #### 20251012 Village of Saranac Lake, Adirondack Mountains, New York (© DenisTangneyJr/Getty Images)
 
 ![](images/2025-10/20251012_SaranacLake_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20251004 Chevaux de Camargue, Aigues-Mortes, Occitanie (© Francesco Riccardo Lacomino/Getty Images)
 
 ![](images/2025-10/20251004_CamagueHorses_1920x1080.jpg)
-
-#### 20251003 Heather growing in Glen Brittle, Isle of Skye, Scotland (© Adam Mowery/TANDEM Stills + Motion)
-
-![](images/2025-10/20251003_SkyeHeather_1920x1080.jpg)
-
-#### 20251003 Brandenburger Tor bei Sonnenuntergang, Berlin (© Craig Hastings/Getty Images)
-
-![](images/2025-10/20251003_BrandenburgGate_1920x1080.jpg)
 
 
 
