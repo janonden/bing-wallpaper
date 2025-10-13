@@ -1,3 +1,7 @@
+#### 20251014 第一只見川橋梁, 福島県 大沼郡 (© Doctor Egg/Getty Images)
+
+![](images/2025-10/20251014_RailwayDay_1920x1080.jpg)
+
 #### 20251013 イア村, グリース (© f9photos/Getty Images)
 
 ![](images/2025-10/20251013_OiaSantorini_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20251005 Boreal owl in a forest in Central Europe (© Ondrej Prosicky/Alamy)
 
 ![](images/2025-10/20251005_TeacherOwl_1920x1080.jpg)
-
-#### 20251004 'Inside Out' by JR at the Nathan Phillips Square, Nuit Blanche 2015, Toronto (© Melissa Renwick/Contributor/Getty Images)
-
-![](images/2025-10/20251004_InsideOutNB_1920x1080.jpg)
 
 
 
