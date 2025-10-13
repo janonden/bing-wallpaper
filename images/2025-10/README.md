@@ -2,6 +2,10 @@
 
 ![](20251013_OiaSantorini_1920x1080.jpg)
 
+#### 20251013 House on Fire Ruin in Mule Canyon, Cedar Mesa, Utah (© Pete Lomchid/Getty Images)
+
+![](20251013_MuleCanyon_1920x1080.jpg)
+
 #### 20251013 温巴赫峡谷瀑布，巴伐利亚州，德国 (© EyeEm Mobile GmbH/Getty Images)
 
 ![](20251013_HinterseeWaterfall_1920x1080.jpg)

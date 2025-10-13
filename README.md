@@ -2,6 +2,10 @@
 
 ![](images/2025-10/20251013_OiaSantorini_1920x1080.jpg)
 
+#### 20251013 House on Fire Ruin in Mule Canyon, Cedar Mesa, Utah (© Pete Lomchid/Getty Images)
+
+![](images/2025-10/20251013_MuleCanyon_1920x1080.jpg)
+
 #### 20251013 温巴赫峡谷瀑布，巴伐利亚州，德国 (© EyeEm Mobile GmbH/Getty Images)
 
 ![](images/2025-10/20251013_HinterseeWaterfall_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20251004 'Inside Out' by JR at the Nathan Phillips Square, Nuit Blanche 2015, Toronto (© Melissa Renwick/Contributor/Getty Images)
 
 ![](images/2025-10/20251004_InsideOutNB_1920x1080.jpg)
-
-#### 20251004 ISS main solar arrays seen from SpaceX Crew Dragon Endeavour (© NASA)
-
-![](images/2025-10/20251004_DragonEndeavour_1920x1080.jpg)
 
 
 
