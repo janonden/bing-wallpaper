@@ -6,6 +6,10 @@
 
 ![](images/2025-10/20251013_HinterseeWaterfall_1920x1080.jpg)
 
+#### 20251013 River rapids in Algonquin Provincial Park, Ontario (© Pgiam/Getty Images)
+
+![](images/2025-10/20251013_AlgonParkOnt_1920x1080.jpg)
+
 #### 20251012 Village of Saranac Lake, Adirondack Mountains, New York (© DenisTangneyJr/Getty Images)
 
 ![](images/2025-10/20251012_SaranacLake_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20251004 ISS main solar arrays seen from SpaceX Crew Dragon Endeavour (© NASA)
 
 ![](images/2025-10/20251004_DragonEndeavour_1920x1080.jpg)
-
-#### 20251004 Chevaux de Camargue, Aigues-Mortes, Occitanie (© Francesco Riccardo Lacomino/Getty Images)
-
-![](images/2025-10/20251004_CamagueHorses_1920x1080.jpg)
 
 
 

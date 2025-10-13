@@ -6,6 +6,10 @@
 
 ![](20251013_HinterseeWaterfall_1920x1080.jpg)
 
+#### 20251013 River rapids in Algonquin Provincial Park, Ontario (© Pgiam/Getty Images)
+
+![](20251013_AlgonParkOnt_1920x1080.jpg)
+
 #### 20251012 Village of Saranac Lake, Adirondack Mountains, New York (© DenisTangneyJr/Getty Images)
 
 ![](20251012_SaranacLake_1920x1080.jpg)
