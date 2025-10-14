@@ -2,7 +2,7 @@
 
 ![](20251014_RailwayDay_1920x1080.jpg)
 
-#### 20251013 イア村, グリース (© f9photos/Getty Images)
+#### 20251013 Village of Oia, Santorini, Greece (© f9photos/Getty Images)
 
 ![](20251013_OiaSantorini_1920x1080.jpg)
 
