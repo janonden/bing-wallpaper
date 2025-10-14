@@ -1,3 +1,11 @@
+#### 20251015 ハウテン町, オランダ (© George Pachantouris/Getty Images)
+
+![](images/2025-10/20251015_HoutenHouses_1920x1080.jpg)
+
+#### 20251015 紫蜡蘑，西贝克，华盛顿州，美国 (© Danita Delimont/Shutterstock)
+
+![](images/2025-10/20251015_AmethystLaccaria_1920x1080.jpg)
+
 #### 20251014 第一只見川橋梁, 福島県 大沼郡 (© Doctor Egg/Getty Images)
 
 ![](images/2025-10/20251014_RailwayDay_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20251007 Rochers dans la mer au coucher du soleil, au Cap d’Antibes, Provence-Alpes-Côte d’Azur (© Eric Rousset/Getty Images)
 
 ![](images/2025-10/20251007_CapAntibes_1920x1080.jpg)
-
-#### 20251006 Anshun Bridge illuminated for the Mid-Autumn Festival, Chengdu, China (© Philippe LEJEANVRE/Getty Images)
-
-![](images/2025-10/20251006_AnshunBridge_1920x1080.jpg)
-
-#### 20251005 Boreal owl in a forest in Central Europe (© Ondrej Prosicky/Alamy)
-
-![](images/2025-10/20251005_TeacherOwl_1920x1080.jpg)
 
 
 

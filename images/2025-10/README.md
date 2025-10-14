@@ -1,3 +1,11 @@
+#### 20251015 ハウテン町, オランダ (© George Pachantouris/Getty Images)
+
+![](20251015_HoutenHouses_1920x1080.jpg)
+
+#### 20251015 紫蜡蘑，西贝克，华盛顿州，美国 (© Danita Delimont/Shutterstock)
+
+![](20251015_AmethystLaccaria_1920x1080.jpg)
+
 #### 20251014 第一只見川橋梁, 福島県 大沼郡 (© Doctor Egg/Getty Images)
 
 ![](20251014_RailwayDay_1920x1080.jpg)
