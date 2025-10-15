@@ -1,3 +1,7 @@
+#### 20251016 欧亚猞猁，西伯利亚 (© Mario Plechaty Photograph/Shutterstock)
+
+![](images/2025-10/20251016_SiberianLynx_1920x1080.jpg)
+
 #### 20251015 ハウテン町, オランダ (© George Pachantouris/Getty Images)
 
 ![](images/2025-10/20251015_HoutenHouses_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20251007 Fall colors below Mount Sneffels near Ridgway, Colorado (© Grant Ordelheide/TANDEM Stills + Motion)
 
 ![](images/2025-10/20251007_RidgwayAspens_1920x1080.jpg)
-
-#### 20251007 Rochers dans la mer au coucher du soleil, au Cap d’Antibes, Provence-Alpes-Côte d’Azur (© Eric Rousset/Getty Images)
-
-![](images/2025-10/20251007_CapAntibes_1920x1080.jpg)
 
 
 
