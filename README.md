@@ -2,7 +2,7 @@
 
 ![](images/2025-10/20251015_HoutenHouses_1920x1080.jpg)
 
-#### 20251015 紫蜡蘑，西贝克，华盛顿州，美国 (© Danita Delimont/Shutterstock)
+#### 20251015 Amethyst laccaria mushrooms, Seabeck, Washington (© Danita Delimont/Shutterstock)
 
 ![](images/2025-10/20251015_AmethystLaccaria_1920x1080.jpg)
 
