@@ -1,4 +1,4 @@
-#### 20251016 欧亚猞猁，西伯利亚 (© Mario Plechaty Photograph/Shutterstock)
+#### 20251016 Eurasian lynx in Siberia (© Mario Plechaty Photograph/Shutterstock)
 
 ![](images/2025-10/20251016_SiberianLynx_1920x1080.jpg)
 
