@@ -1,3 +1,7 @@
+#### 20251017 罗克河瀑布，上半岛，密歇根州，美国 (© Matt Anderson Photography/Getty Images)
+
+![](images/2025-10/20251017_RockRiverFalls_1920x1080.jpg)
+
 #### 20251016 Eurasian lynx in Siberia (© Mario Plechaty Photograph/Shutterstock)
 
 ![](images/2025-10/20251016_SiberianLynx_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20251008 Day octopus in the waters off Maui, Hawaii (© Dave Fleetham/plainpicture)
 
 ![](images/2025-10/20251008_OctopusCyanea_1920x1080.jpg)
-
-#### 20251007 Fall colors below Mount Sneffels near Ridgway, Colorado (© Grant Ordelheide/TANDEM Stills + Motion)
-
-![](images/2025-10/20251007_RidgwayAspens_1920x1080.jpg)
 
 
 
