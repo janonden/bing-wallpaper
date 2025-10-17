@@ -1,4 +1,4 @@
-#### 20251017 罗克河瀑布，上半岛，密歇根州，美国 (© Matt Anderson Photography/Getty Images)
+#### 20251017 Rock River Falls, Upper Peninsula, Michigan (© Matt Anderson Photography/Getty Images)
 
 ![](20251017_RockRiverFalls_1920x1080.jpg)
 
