@@ -2,6 +2,14 @@
 
 ![](images/2025-10/20251017_RockRiverFalls_1920x1080.jpg)
 
+#### 20251017 Blick auf die Saar im Herbst, Saarschleife, Mettlach, Saarland (© Sus Bogaerts/Getty Images)
+
+![](images/2025-10/20251017_MettlachAutumn_1920x1080.jpg)
+
+#### 20251017 Lumière du soir sur le village de Speloncato, Corse (© joningall/Getty Images)
+
+![](images/2025-10/20251017_CorsicaSunshine_1920x1080.jpg)
+
 #### 20251016 Eurasian lynx in Siberia (© Mario Plechaty Photograph/Shutterstock)
 
 ![](images/2025-10/20251016_SiberianLynx_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20251009 The Pillars of Creation viewed by the James Webb Space Telescope (© NASA)
 
 ![](images/2025-10/20251009_WebbPillars_1920x1080.jpg)
-
-#### 20251008 竜頭の滝, 栃木県 日光市 (© kecl/Getty images)
-
-![](images/2025-10/20251008_Ryuzufalls_1920x1080.jpg)
-
-#### 20251008 Day octopus in the waters off Maui, Hawaii (© Dave Fleetham/plainpicture)
-
-![](images/2025-10/20251008_OctopusCyanea_1920x1080.jpg)
 
 
 

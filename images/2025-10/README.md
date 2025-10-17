@@ -2,6 +2,14 @@
 
 ![](20251017_RockRiverFalls_1920x1080.jpg)
 
+#### 20251017 Blick auf die Saar im Herbst, Saarschleife, Mettlach, Saarland (© Sus Bogaerts/Getty Images)
+
+![](20251017_MettlachAutumn_1920x1080.jpg)
+
+#### 20251017 Lumière du soir sur le village de Speloncato, Corse (© joningall/Getty Images)
+
+![](20251017_CorsicaSunshine_1920x1080.jpg)
+
 #### 20251016 Eurasian lynx in Siberia (© Mario Plechaty Photograph/Shutterstock)
 
 ![](20251016_SiberianLynx_1920x1080.jpg)
