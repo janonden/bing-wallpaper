@@ -6,6 +6,10 @@
 
 ![](images/2025-10/20251017_MettlachAutumn_1920x1080.jpg)
 
+#### 20251017 Northern lights over Patricia Lake in Jasper National Park, Alberta (© Daniel Viñé Garcia/Getty Images)
+
+![](images/2025-10/20251017_JasperFestival_1920x1080.jpg)
+
 #### 20251017 Lumière du soir sur le village de Speloncato, Corse (© joningall/Getty Images)
 
 ![](images/2025-10/20251017_CorsicaSunshine_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20251010 Coral reef surrounding the island of Monuriki, Mamanuca Islands, Fiji (© David Wall/SuperStock)
 
 ![](images/2025-10/20251010_MonurikiFiji_1920x1080.jpg)
-
-#### 20251009 The Pillars of Creation viewed by the James Webb Space Telescope (© NASA)
-
-![](images/2025-10/20251009_WebbPillars_1920x1080.jpg)
 
 
 

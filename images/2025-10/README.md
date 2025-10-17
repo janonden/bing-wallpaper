@@ -6,6 +6,10 @@
 
 ![](20251017_MettlachAutumn_1920x1080.jpg)
 
+#### 20251017 Northern lights over Patricia Lake in Jasper National Park, Alberta (© Daniel Viñé Garcia/Getty Images)
+
+![](20251017_JasperFestival_1920x1080.jpg)
+
 #### 20251017 Lumière du soir sur le village de Speloncato, Corse (© joningall/Getty Images)
 
 ![](20251017_CorsicaSunshine_1920x1080.jpg)
