@@ -1,4 +1,4 @@
-#### 20251018 西尔布利山的新石器时代遗址，蒂尔斯黑德，威尔特郡，英国 (© dbstockphotoa/Getty Images)
+#### 20251018 Neolithic site of Silbury Hill, Tilshead, Wiltshire, England (© dbstockphoto/Getty Images)
 
 ![](20251018_SilburyHill_1920x1080.jpg)
 
