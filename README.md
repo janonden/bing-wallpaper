@@ -1,3 +1,7 @@
+#### 20251019 即将收获的苹果，明尼苏达州，美国 (© Tammi Mild/Getty Images)
+
+![](images/2025-10/20251019_AppleHarvest_1920x1080.jpg)
+
 #### 20251018 Neolithic site of Silbury Hill, Tilshead, Wiltshire, England (© dbstockphoto/Getty Images)
 
 ![](images/2025-10/20251018_SilburyHill_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20251012 Village of Saranac Lake, Adirondack Mountains, New York (© DenisTangneyJr/Getty Images)
 
 ![](images/2025-10/20251012_SaranacLake_1920x1080.jpg)
-
-#### 20251011 Wood duck hen (© ps50ace/iStock/Getty Images)
-
-![](images/2025-10/20251011_WoodDuckHen_1920x1080.jpg)
 
 
 
