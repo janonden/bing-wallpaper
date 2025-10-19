@@ -1,4 +1,4 @@
-#### 20251019 即将收获的苹果，明尼苏达州，美国 (© Tammi Mild/Getty Images)
+#### 20251019 Apples ready for harvest, Minnesota (© Tammi Mild/Getty Images)
 
 ![](20251019_AppleHarvest_1920x1080.jpg)
 
