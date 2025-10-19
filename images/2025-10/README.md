@@ -1,3 +1,7 @@
+#### 20251020 霍氏树懒，厄瓜多尔 (© Murray Cooper/Minden Pictures)
+
+![](20251020_HoffmansSloth_1920x1080.jpg)
+
 #### 20251019 Apples ready for harvest, Minnesota (© Tammi Mild/Getty Images)
 
 ![](20251019_AppleHarvest_1920x1080.jpg)

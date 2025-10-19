@@ -1,3 +1,7 @@
+#### 20251020 霍氏树懒，厄瓜多尔 (© Murray Cooper/Minden Pictures)
+
+![](images/2025-10/20251020_HoffmansSloth_1920x1080.jpg)
+
 #### 20251019 Apples ready for harvest, Minnesota (© Tammi Mild/Getty Images)
 
 ![](images/2025-10/20251019_AppleHarvest_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20251013 River rapids in Algonquin Provincial Park, Ontario (© Pgiam/Getty Images)
 
 ![](images/2025-10/20251013_AlgonParkOnt_1920x1080.jpg)
-
-#### 20251012 Village of Saranac Lake, Adirondack Mountains, New York (© DenisTangneyJr/Getty Images)
-
-![](images/2025-10/20251012_SaranacLake_1920x1080.jpg)
 
 
 
