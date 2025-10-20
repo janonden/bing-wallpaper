@@ -1,4 +1,4 @@
-#### 20251020 霍氏树懒，厄瓜多尔 (© Murray Cooper/Minden Pictures)
+#### 20251020 A Hoffmann's two-toed sloth in Ecuador (© Murray Cooper/Minden Pictures)
 
 ![](20251020_HoffmansSloth_1920x1080.jpg)
 
