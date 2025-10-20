@@ -1,3 +1,11 @@
+#### 20251021 哥斯达黎加的厚嘴巨嘴鸟 (© Juan Carlos Vindas/Getty Images)
+
+![](images/2025-10/20251021_ToucanForest_1920x1080.jpg)
+
+#### 20251021 ハリマンディル・サーヒブ, インド (© EyeEm Mobile GmbH/Getty Images)
+
+![](images/2025-10/20251021_DiyaDiwali_1920x1080.jpg)
+
 #### 20251020 A Hoffmann's two-toed sloth in Ecuador (© Murray Cooper/Minden Pictures)
 
 ![](images/2025-10/20251020_HoffmansSloth_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20251013 House on Fire Ruin in Mule Canyon, Cedar Mesa, Utah (© Pete Lomchid/Getty Images)
 
 ![](images/2025-10/20251013_MuleCanyon_1920x1080.jpg)
-
-#### 20251013 温巴赫峡谷瀑布，巴伐利亚州，德国 (© EyeEm Mobile GmbH/Getty Images)
-
-![](images/2025-10/20251013_HinterseeWaterfall_1920x1080.jpg)
-
-#### 20251013 River rapids in Algonquin Provincial Park, Ontario (© Pgiam/Getty Images)
-
-![](images/2025-10/20251013_AlgonParkOnt_1920x1080.jpg)
 
 
 

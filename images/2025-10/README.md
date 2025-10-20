@@ -1,3 +1,11 @@
+#### 20251021 哥斯达黎加的厚嘴巨嘴鸟 (© Juan Carlos Vindas/Getty Images)
+
+![](20251021_ToucanForest_1920x1080.jpg)
+
+#### 20251021 ハリマンディル・サーヒブ, インド (© EyeEm Mobile GmbH/Getty Images)
+
+![](20251021_DiyaDiwali_1920x1080.jpg)
+
 #### 20251020 A Hoffmann's two-toed sloth in Ecuador (© Murray Cooper/Minden Pictures)
 
 ![](20251020_HoffmansSloth_1920x1080.jpg)
