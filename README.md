@@ -1,8 +1,12 @@
+#### 20251022 Cap d'Antibes, Provence-Alpes-Côte d'Azur, France (© Eric Rousset/Getty Images)
+
+![](images/2025-10/20251022_CapAntibes_1920x1080.jpg)
+
 #### 20251021 哥斯达黎加的厚嘴巨嘴鸟 (© Juan Carlos Vindas/Getty Images)
 
 ![](images/2025-10/20251021_ToucanForest_1920x1080.jpg)
 
-#### 20251021 ハリマンディル・サーヒブ, インド (© EyeEm Mobile GmbH/Getty Images)
+#### 20251021 A diya at the Golden Temple during Diwali, Amritsar, India (© EyeEm Mobile GmbH/Getty Images)
 
 ![](images/2025-10/20251021_DiyaDiwali_1920x1080.jpg)
 
@@ -53,10 +57,6 @@
 #### 20251013 Village of Oia, Santorini, Greece (© f9photos/Getty Images)
 
 ![](images/2025-10/20251013_OiaSantorini_1920x1080.jpg)
-
-#### 20251013 House on Fire Ruin in Mule Canyon, Cedar Mesa, Utah (© Pete Lomchid/Getty Images)
-
-![](images/2025-10/20251013_MuleCanyon_1920x1080.jpg)
 
 
 

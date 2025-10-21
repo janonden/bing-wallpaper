@@ -1,8 +1,12 @@
+#### 20251022 Cap d'Antibes, Provence-Alpes-Côte d'Azur, France (© Eric Rousset/Getty Images)
+
+![](20251022_CapAntibes_1920x1080.jpg)
+
 #### 20251021 哥斯达黎加的厚嘴巨嘴鸟 (© Juan Carlos Vindas/Getty Images)
 
 ![](20251021_ToucanForest_1920x1080.jpg)
 
-#### 20251021 ハリマンディル・サーヒブ, インド (© EyeEm Mobile GmbH/Getty Images)
+#### 20251021 A diya at the Golden Temple during Diwali, Amritsar, India (© EyeEm Mobile GmbH/Getty Images)
 
 ![](20251021_DiyaDiwali_1920x1080.jpg)
 
