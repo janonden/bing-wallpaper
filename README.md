@@ -1,6 +1,14 @@
+#### 20251022 平安神宮の泰平閣, 京都府 京都市 (© Trevor Chriss/Alamy)
+
+![](images/2025-10/20251022_HeianDay_1920x1080.jpg)
+
 #### 20251022 Cap d'Antibes, Provence-Alpes-Côte d'Azur, France (© Eric Rousset/Getty Images)
 
 ![](images/2025-10/20251022_CapAntibes_1920x1080.jpg)
+
+#### 20251022 贝洛格拉齐克石林，保加利亚 (© EvaL Miko/Shutterstock)
+
+![](images/2025-10/20251022_BulgariaRocks_1920x1080.jpg)
 
 #### 20251021 哥斯达黎加的厚嘴巨嘴鸟 (© Juan Carlos Vindas/Getty Images)
 
@@ -49,14 +57,6 @@
 #### 20251015 Amethyst laccaria mushrooms, Seabeck, Washington (© Danita Delimont/Shutterstock)
 
 ![](images/2025-10/20251015_AmethystLaccaria_1920x1080.jpg)
-
-#### 20251014 第一只見川橋梁, 福島県 大沼郡 (© Doctor Egg/Getty Images)
-
-![](images/2025-10/20251014_RailwayDay_1920x1080.jpg)
-
-#### 20251013 Village of Oia, Santorini, Greece (© f9photos/Getty Images)
-
-![](images/2025-10/20251013_OiaSantorini_1920x1080.jpg)
 
 
 
