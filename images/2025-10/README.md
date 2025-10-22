@@ -1,3 +1,11 @@
+#### 20251023 雪豹和她的幼崽, 斯皮提谷, 寒冷沙漠生物圈保护区, 印度 (© Oriol Alamany/naturepl.com)
+
+![](20251023_SnowLeopard_1920x1080.jpg)
+
+#### 20251023 八甲田山の紅葉, 青森県青森市 (© Mekdet/Getty images)
+
+![](20251023_AomoriAutumn_1920x1080.jpg)
+
 #### 20251022 平安神宮の泰平閣, 京都府 京都市 (© Trevor Chriss/Alamy)
 
 ![](20251022_HeianDay_1920x1080.jpg)
