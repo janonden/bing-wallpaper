@@ -6,7 +6,7 @@
 
 ![](20251022_CapAntibes_1920x1080.jpg)
 
-#### 20251022 贝洛格拉齐克石林，保加利亚 (© EvaL Miko/Shutterstock)
+#### 20251022 Belogradchik Rocks, Bulgaria (© EvaL Miko/Shutterstock)
 
 ![](20251022_BulgariaRocks_1920x1080.jpg)
 
