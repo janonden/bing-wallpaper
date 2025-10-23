@@ -1,4 +1,4 @@
-#### 20251023 雪豹和她的幼崽, 斯皮提谷, 寒冷沙漠生物圈保护区, 印度 (© Oriol Alamany/naturepl.com)
+#### 20251023 Snow leopard with her cubs, Spiti Valley, Cold Desert Biosphere Reserve, India (© Oriol Alamany/naturepl.com)
 
 ![](20251023_SnowLeopard_1920x1080.jpg)
 
