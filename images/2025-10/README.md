@@ -1,3 +1,7 @@
+#### 20251024 玛丽皇后号邮轮的夜景, 长滩, 加利福尼亚州, 美国 (© Kit Leong/Shutterstock)
+
+![](20251024_QueenMary_1920x1080.jpg)
+
 #### 20251023 Snow leopard with her cubs, Spiti Valley, Cold Desert Biosphere Reserve, India (© Oriol Alamany/naturepl.com)
 
 ![](20251023_SnowLeopard_1920x1080.jpg)

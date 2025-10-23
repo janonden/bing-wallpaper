@@ -1,3 +1,7 @@
+#### 20251024 玛丽皇后号邮轮的夜景, 长滩, 加利福尼亚州, 美国 (© Kit Leong/Shutterstock)
+
+![](images/2025-10/20251024_QueenMary_1920x1080.jpg)
+
 #### 20251023 Snow leopard with her cubs, Spiti Valley, Cold Desert Biosphere Reserve, India (© Oriol Alamany/naturepl.com)
 
 ![](images/2025-10/20251023_SnowLeopard_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20251017 Lumière du soir sur le village de Speloncato, Corse (© joningall/Getty Images)
 
 ![](images/2025-10/20251017_CorsicaSunshine_1920x1080.jpg)
-
-#### 20251016 Eurasian lynx in Siberia (© Mario Plechaty Photograph/Shutterstock)
-
-![](images/2025-10/20251016_SiberianLynx_1920x1080.jpg)
 
 
 
