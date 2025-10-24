@@ -1,3 +1,7 @@
+#### 20251025 马蒂莫阿帕沼泽保护区泥炭地鸟瞰图, 芬兰 (© romikatarina/Shutterstock)
+
+![](images/2025-10/20251025_MartimoaapaFinland_1920x1080.jpg)
+
 #### 20251024 Alte Bibliothek, Kloster Sankt Mang, Füssen, Bayern (© marcobriviophoto/Shutterstock)
 
 ![](images/2025-10/20251024_StMangLibrary_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20251017 Blick auf die Saar im Herbst, Saarschleife, Mettlach, Saarland (© Sus Bogaerts/Getty Images)
 
 ![](images/2025-10/20251017_MettlachAutumn_1920x1080.jpg)
-
-#### 20251017 Northern lights over Patricia Lake in Jasper National Park, Alberta (© Daniel Viñé Garcia/Getty Images)
-
-![](images/2025-10/20251017_JasperFestival_1920x1080.jpg)
 
 
 
