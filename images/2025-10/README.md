@@ -1,4 +1,4 @@
-#### 20251025 马蒂莫阿帕沼泽保护区泥炭地鸟瞰图, 芬兰 (© romikatarina/Shutterstock)
+#### 20251025 Aerial view of peatland in Martimoaapa Mire Reserve, Finland (© romikatarina/Shutterstock)
 
 ![](20251025_MartimoaapaFinland_1920x1080.jpg)
 
