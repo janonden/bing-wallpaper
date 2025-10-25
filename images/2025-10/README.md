@@ -1,3 +1,7 @@
+#### 20251026 北卡罗来纳州的南瓜农场, 美国 (© Matthew H Irvin/Getty Images)
+
+![](20251026_PumpkinFarm_1920x1080.jpg)
+
 #### 20251025 Aerial view of peatland in Martimoaapa Mire Reserve, Finland (© romikatarina/Shutterstock)
 
 ![](20251025_MartimoaapaFinland_1920x1080.jpg)

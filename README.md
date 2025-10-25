@@ -1,3 +1,7 @@
+#### 20251026 北卡罗来纳州的南瓜农场, 美国 (© Matthew H Irvin/Getty Images)
+
+![](images/2025-10/20251026_PumpkinFarm_1920x1080.jpg)
+
 #### 20251025 Aerial view of peatland in Martimoaapa Mire Reserve, Finland (© romikatarina/Shutterstock)
 
 ![](images/2025-10/20251025_MartimoaapaFinland_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20251017 Rock River Falls, Upper Peninsula, Michigan (© Matt Anderson Photography/Getty Images)
 
 ![](images/2025-10/20251017_RockRiverFalls_1920x1080.jpg)
-
-#### 20251017 Blick auf die Saar im Herbst, Saarschleife, Mettlach, Saarland (© Sus Bogaerts/Getty Images)
-
-![](images/2025-10/20251017_MettlachAutumn_1920x1080.jpg)
 
 
 
