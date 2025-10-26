@@ -1,4 +1,4 @@
-#### 20251026 北卡罗来纳州的南瓜农场, 美国 (© Matthew H Irvin/Getty Images)
+#### 20251026 Pumpkin farm in North Carolina (© Matthew H Irvin/Getty Images)
 
 ![](images/2025-10/20251026_PumpkinFarm_1920x1080.jpg)
 
