@@ -1,3 +1,11 @@
+#### 20251027 被胡杨树围绕着的湖, 金塔县, 酒泉, 甘肃, 中国 (© Feng Wei Photography/Getty images)
+
+![](images/2025-10/20251027_AutumnColorY_1920x1080.jpg)
+
+#### 20251027 オオハシガラス, エチオピア (© Ignacio Yufera/FLPA/Minden Pictures)
+
+![](images/2025-10/20251027_AfricanRaven_1920x1080.jpg)
+
 #### 20251026 Pumpkin farm in North Carolina (© Matthew H Irvin/Getty Images)
 
 ![](images/2025-10/20251026_PumpkinFarm_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20251019 Apples ready for harvest, Minnesota (© Tammi Mild/Getty Images)
 
 ![](images/2025-10/20251019_AppleHarvest_1920x1080.jpg)
-
-#### 20251018 Neolithic site of Silbury Hill, Tilshead, Wiltshire, England (© dbstockphoto/Getty Images)
-
-![](images/2025-10/20251018_SilburyHill_1920x1080.jpg)
-
-#### 20251017 Rock River Falls, Upper Peninsula, Michigan (© Matt Anderson Photography/Getty Images)
-
-![](images/2025-10/20251017_RockRiverFalls_1920x1080.jpg)
 
 
 

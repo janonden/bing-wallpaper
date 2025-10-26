@@ -1,3 +1,11 @@
+#### 20251027 被胡杨树围绕着的湖, 金塔县, 酒泉, 甘肃, 中国 (© Feng Wei Photography/Getty images)
+
+![](20251027_AutumnColorY_1920x1080.jpg)
+
+#### 20251027 オオハシガラス, エチオピア (© Ignacio Yufera/FLPA/Minden Pictures)
+
+![](20251027_AfricanRaven_1920x1080.jpg)
+
 #### 20251026 Pumpkin farm in North Carolina (© Matthew H Irvin/Getty Images)
 
 ![](20251026_PumpkinFarm_1920x1080.jpg)
