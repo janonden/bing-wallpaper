@@ -1,3 +1,7 @@
+#### 20251027 Grappe de raisins noirs, vignoble de Champagne (© Daniele SCHNEIDER/Photononstop/Alamy Stock Photo)
+
+![](20251027_ChampagneDay_1920x1080.jpg)
+
 #### 20251027 被胡杨树围绕着的湖, 金塔县, 酒泉, 甘肃, 中国 (© Feng Wei Photography/Getty images)
 
 ![](20251027_AutumnColorY_1920x1080.jpg)

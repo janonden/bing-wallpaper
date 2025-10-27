@@ -1,3 +1,7 @@
+#### 20251027 Grappe de raisins noirs, vignoble de Champagne (© Daniele SCHNEIDER/Photononstop/Alamy Stock Photo)
+
+![](images/2025-10/20251027_ChampagneDay_1920x1080.jpg)
+
 #### 20251027 被胡杨树围绕着的湖, 金塔县, 酒泉, 甘肃, 中国 (© Feng Wei Photography/Getty images)
 
 ![](images/2025-10/20251027_AutumnColorY_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20251020 A Hoffmann's two-toed sloth in Ecuador (© Murray Cooper/Minden Pictures)
 
 ![](images/2025-10/20251020_HoffmansSloth_1920x1080.jpg)
-
-#### 20251019 Apples ready for harvest, Minnesota (© Tammi Mild/Getty Images)
-
-![](images/2025-10/20251019_AppleHarvest_1920x1080.jpg)
 
 
 
