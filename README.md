@@ -1,3 +1,7 @@
+#### 20251028 安德尔施帕赫-特普利采岩石林的哥特式拱门, 捷克 (© Kseniya_Milner/Getty Images)
+
+![](images/2025-10/20251028_TepliceRocks_1920x1080.jpg)
+
 #### 20251027 Grappe de raisins noirs, vignoble de Champagne (© Daniele SCHNEIDER/Photononstop/Alamy Stock Photo)
 
 ![](images/2025-10/20251027_ChampagneDay_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20251021 A diya at the Golden Temple during Diwali, Amritsar, India (© EyeEm Mobile GmbH/Getty Images)
 
 ![](images/2025-10/20251021_DiyaDiwali_1920x1080.jpg)
-
-#### 20251020 A Hoffmann's two-toed sloth in Ecuador (© Murray Cooper/Minden Pictures)
-
-![](images/2025-10/20251020_HoffmansSloth_1920x1080.jpg)
 
 
 

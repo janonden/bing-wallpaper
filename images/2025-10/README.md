@@ -1,3 +1,7 @@
+#### 20251028 安德尔施帕赫-特普利采岩石林的哥特式拱门, 捷克 (© Kseniya_Milner/Getty Images)
+
+![](20251028_TepliceRocks_1920x1080.jpg)
+
 #### 20251027 Grappe de raisins noirs, vignoble de Champagne (© Daniele SCHNEIDER/Photononstop/Alamy Stock Photo)
 
 ![](20251027_ChampagneDay_1920x1080.jpg)
