@@ -6,7 +6,7 @@
 
 ![](images/2025-10/20251027_AutumnColorY_1920x1080.jpg)
 
-#### 20251027 オオハシガラス, エチオピア (© Ignacio Yufera/FLPA/Minden Pictures)
+#### 20251027 Thick-billed raven, Simien Mountains, Ethiopia (© Ignacio Yufera/FLPA/Minden Pictures)
 
 ![](images/2025-10/20251027_AfricanRaven_1920x1080.jpg)
 
