@@ -1,3 +1,7 @@
+#### 20251029 法纳尔森林里的古老月桂树，马德拉群岛，葡萄牙 (© Lukas Jonaitis/Shutterstock)
+
+![](images/2025-10/20251029_FanalForest_1920x1080.jpg)
+
 #### 20251028 The Gothic Gate in the Adršpach-Teplice Rocks, Czechia (© Kseniya_Milner/Getty Images)
 
 ![](images/2025-10/20251028_TepliceRocks_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20251021 哥斯达黎加的厚嘴巨嘴鸟 (© Juan Carlos Vindas/Getty Images)
 
 ![](images/2025-10/20251021_ToucanForest_1920x1080.jpg)
-
-#### 20251021 A diya at the Golden Temple during Diwali, Amritsar, India (© EyeEm Mobile GmbH/Getty Images)
-
-![](images/2025-10/20251021_DiyaDiwali_1920x1080.jpg)
 
 
 

@@ -1,3 +1,7 @@
+#### 20251029 法纳尔森林里的古老月桂树，马德拉群岛，葡萄牙 (© Lukas Jonaitis/Shutterstock)
+
+![](20251029_FanalForest_1920x1080.jpg)
+
 #### 20251028 The Gothic Gate in the Adršpach-Teplice Rocks, Czechia (© Kseniya_Milner/Getty Images)
 
 ![](20251028_TepliceRocks_1920x1080.jpg)
