@@ -1,4 +1,4 @@
-#### 20251028 安德尔施帕赫-特普利采岩石林的哥特式拱门, 捷克 (© Kseniya_Milner/Getty Images)
+#### 20251028 The Gothic Gate in the Adršpach-Teplice Rocks, Czechia (© Kseniya_Milner/Getty Images)
 
 ![](images/2025-10/20251028_TepliceRocks_1920x1080.jpg)
 
