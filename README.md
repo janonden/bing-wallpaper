@@ -1,3 +1,7 @@
+#### 20251030 杰伊瑟尔梅尔的骆驼, 拉贾斯坦邦, 印度 (© f9photos/Getty Images)
+
+![](images/2025-10/20251030_PushkarFair_1920x1080.jpg)
+
 #### 20251029 Ancient til trees in Fanal Forest, island of Madeira, Portugal (© Lukas Jonaitis/Shutterstock)
 
 ![](images/2025-10/20251029_FanalForest_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20251022 Belogradchik Rocks, Bulgaria (© EvaL Miko/Shutterstock)
 
 ![](images/2025-10/20251022_BulgariaRocks_1920x1080.jpg)
-
-#### 20251021 哥斯达黎加的厚嘴巨嘴鸟 (© Juan Carlos Vindas/Getty Images)
-
-![](images/2025-10/20251021_ToucanForest_1920x1080.jpg)
 
 
 

@@ -1,3 +1,7 @@
+#### 20251030 杰伊瑟尔梅尔的骆驼, 拉贾斯坦邦, 印度 (© f9photos/Getty Images)
+
+![](20251030_PushkarFair_1920x1080.jpg)
+
 #### 20251029 Ancient til trees in Fanal Forest, island of Madeira, Portugal (© Lukas Jonaitis/Shutterstock)
 
 ![](20251029_FanalForest_1920x1080.jpg)
