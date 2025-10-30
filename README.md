@@ -1,4 +1,4 @@
-#### 20251030 杰伊瑟尔梅尔的骆驼, 拉贾斯坦邦, 印度 (© f9photos/Getty Images)
+#### 20251030 Camels at Jaisalmer, Rajasthan, India (© f9photos/Getty Images)
 
 ![](images/2025-10/20251030_PushkarFair_1920x1080.jpg)
 
