@@ -1,3 +1,7 @@
+#### 20251031 布兰城堡入口, 布拉索夫, 罗马尼亚 (© blue sky in my pocket/Getty Images)
+
+![](images/2025-10/20251031_BranCastle_1920x1080.jpg)
+
 #### 20251030 Camels at Jaisalmer, Rajasthan, India (© f9photos/Getty Images)
 
 ![](images/2025-10/20251030_PushkarFair_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20251022 Cap d'Antibes, Provence-Alpes-Côte d'Azur, France (© Eric Rousset/Getty Images)
 
 ![](images/2025-10/20251022_CapAntibes_1920x1080.jpg)
-
-#### 20251022 Belogradchik Rocks, Bulgaria (© EvaL Miko/Shutterstock)
-
-![](images/2025-10/20251022_BulgariaRocks_1920x1080.jpg)
 
 
 
