@@ -1,3 +1,7 @@
+#### 20251031 Different kinds of pumpkins and gourds (© davidfillion/Getty Images)
+
+![](images/2025-10/20251031_PumpkinHalloween_1920x1080.jpg)
+
 #### 20251031 布兰城堡入口, 布拉索夫, 罗马尼亚 (© blue sky in my pocket/Getty Images)
 
 ![](images/2025-10/20251031_BranCastle_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20251022 平安神宮の泰平閣, 京都府 京都市 (© Trevor Chriss/Alamy)
 
 ![](images/2025-10/20251022_HeianDay_1920x1080.jpg)
-
-#### 20251022 Cap d'Antibes, Provence-Alpes-Côte d'Azur, France (© Eric Rousset/Getty Images)
-
-![](images/2025-10/20251022_CapAntibes_1920x1080.jpg)
 
 
 

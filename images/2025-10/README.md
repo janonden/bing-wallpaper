@@ -1,3 +1,7 @@
+#### 20251031 Different kinds of pumpkins and gourds (© davidfillion/Getty Images)
+
+![](20251031_PumpkinHalloween_1920x1080.jpg)
+
 #### 20251031 布兰城堡入口, 布拉索夫, 罗马尼亚 (© blue sky in my pocket/Getty Images)
 
 ![](20251031_BranCastle_1920x1080.jpg)
