@@ -1,3 +1,7 @@
+#### 20251101 野牛在温泉边吃草,  黄石国家公园, 怀俄明州, 美国 (© Cheryl Ramalho/Getty Images)
+
+![](images/2025-11/20251101_BisonSprings_1920x1080.jpg)
+
 #### 20251031 Different kinds of pumpkins and gourds (© davidfillion/Getty Images)
 
 ![](images/2025-10/20251031_PumpkinHalloween_1920x1080.jpg)
@@ -54,10 +58,6 @@
 
 ![](images/2025-10/20251023_AomoriAutumn_1920x1080.jpg)
 
-#### 20251022 平安神宮の泰平閣, 京都府 京都市 (© Trevor Chriss/Alamy)
-
-![](images/2025-10/20251022_HeianDay_1920x1080.jpg)
-
 
 
 
@@ -66,7 +66,7 @@
 
 
 
-- 2025&emsp;&emsp;[10](images/2025-10/README.md) &emsp;&emsp;[09](images/2025-09/README.md) &emsp;&emsp;[08](images/2025-08/README.md) &emsp;&emsp;[07](images/2025-07/README.md) &emsp;&emsp;[06](images/2025-06/README.md) &emsp;&emsp;[05](images/2025-05/README.md) &emsp;&emsp;[04](images/2025-04/README.md) &emsp;&emsp;[03](images/2025-03/README.md) &emsp;&emsp;[02](images/2025-02/README.md) &emsp;&emsp;[01](images/2025-01/README.md) 
+- 2025&emsp;&emsp;[11](images/2025-11/README.md) &emsp;&emsp;[10](images/2025-10/README.md) &emsp;&emsp;[09](images/2025-09/README.md) &emsp;&emsp;[08](images/2025-08/README.md) &emsp;&emsp;[07](images/2025-07/README.md) &emsp;&emsp;[06](images/2025-06/README.md) &emsp;&emsp;[05](images/2025-05/README.md) &emsp;&emsp;[04](images/2025-04/README.md) &emsp;&emsp;[03](images/2025-03/README.md) &emsp;&emsp;[02](images/2025-02/README.md) &emsp;&emsp;[01](images/2025-01/README.md) 
 
 - 2024&emsp;&emsp;[12](https://github.com/janonden/bing-wallpaper/blob/2024/images/2024-12/README.md) &emsp;&emsp;[11](https://github.com/janonden/bing-wallpaper/blob/2024/images/2024-11/README.md) &emsp;&emsp;[10](https://github.com/janonden/bing-wallpaper/blob/2024/images/2024-10/README.md) &emsp;&emsp;[09](https://github.com/janonden/bing-wallpaper/blob/2024/images/2024-09/README.md) &emsp;&emsp;[08](https://github.com/janonden/bing-wallpaper/blob/2024/images/2024-08/README.md) &emsp;&emsp;[07](https://github.com/janonden/bing-wallpaper/blob/2024/images/2024-07/README.md) &emsp;&emsp;[06](https://github.com/janonden/bing-wallpaper/blob/2024/images/2024-06/README.md) &emsp;&emsp;[05](https://github.com/janonden/bing-wallpaper/blob/2024/images/2024-05/README.md) &emsp;&emsp;[04](https://github.com/janonden/bing-wallpaper/blob/2024/images/2024-04/README.md) &emsp;&emsp;[03](https://github.com/janonden/bing-wallpaper/blob/2024/images/2024-03/README.md) &emsp;&emsp;[02](https://github.com/janonden/bing-wallpaper/blob/2024/images/2024-02/README.md) &emsp;&emsp;[01](https://github.com/janonden/bing-wallpaper/blob/2024/images/2024-01/README.md) 
 
