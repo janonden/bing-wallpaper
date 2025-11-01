@@ -1,3 +1,7 @@
+#### 20251102 岚山缤纷的枫叶与竹林, 京都, 日本 (© DoctorEgg/Getty Images)
+
+![](images/2025-11/20251102_KyotoMaple_1920x1080.jpg)
+
 #### 20251101 Bison grazing at thermal hot springs, Yellowstone National Park, Wyoming (© Cheryl Ramalho/Getty Images)
 
 ![](images/2025-11/20251101_BisonSprings_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20251023 Snow leopard with her cubs, Spiti Valley, Cold Desert Biosphere Reserve, India (© Oriol Alamany/naturepl.com)
 
 ![](images/2025-10/20251023_SnowLeopard_1920x1080.jpg)
-
-#### 20251023 八甲田山の紅葉, 青森県青森市 (© Mekdet/Getty images)
-
-![](images/2025-10/20251023_AomoriAutumn_1920x1080.jpg)
 
 
 
