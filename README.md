@@ -1,4 +1,4 @@
-#### 20251102 岚山缤纷的枫叶与竹林, 京都, 日本 (© DoctorEgg/Getty Images)
+#### 20251102 Colorful maple leaves and bamboo forest in Arashiyama, Kyoto, Japan (© DoctorEgg/Getty Images)
 
 ![](images/2025-11/20251102_KyotoMaple_1920x1080.jpg)
 
