@@ -1,3 +1,11 @@
+#### 20251103 在太平洋中游泳的水母, 格雷罗, 墨西哥 (© Christian Vizl/TANDEM Stills + Motion)
+
+![](images/2025-11/20251103_MexicoJelly_1920x1080.jpg)
+
+#### 20251103 ウィンバッハ峡谷, ドイツ (© EyeEm Mobile GmbH/Getty Images)
+
+![](images/2025-11/20251103_HinterseeWaterfall_1920x1080.jpg)
+
 #### 20251102 Colorful maple leaves and bamboo forest in Arashiyama, Kyoto, Japan (© DoctorEgg/Getty Images)
 
 ![](images/2025-11/20251102_KyotoMaple_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20251024 Alte Bibliothek, Kloster Sankt Mang, Füssen, Bayern (© marcobriviophoto/Shutterstock)
 
 ![](images/2025-10/20251024_StMangLibrary_1920x1080.jpg)
-
-#### 20251024 Night view of the RMS Queen Mary, Long Beach, California (© Kit Leong/Shutterstock)
-
-![](images/2025-10/20251024_QueenMary_1920x1080.jpg)
-
-#### 20251023 Snow leopard with her cubs, Spiti Valley, Cold Desert Biosphere Reserve, India (© Oriol Alamany/naturepl.com)
-
-![](images/2025-10/20251023_SnowLeopard_1920x1080.jpg)
 
 
 
