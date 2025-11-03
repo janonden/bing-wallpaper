@@ -1,3 +1,7 @@
+#### 20251104 塔桥, 伦敦, 英格兰 (© Nick Brundle Photography/Getty Images)
+
+![](images/2025-11/20251104_TowerBridgeUK_1920x1080.jpg)
+
 #### 20251103 Jellyfish swimming in the Pacific, Guerrero, Mexico (© Christian Vizl/TANDEM Stills + Motion)
 
 ![](images/2025-11/20251103_MexicoJelly_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20251025 Aerial view of peatland in Martimoaapa Mire Reserve, Finland (© romikatarina/Shutterstock)
 
 ![](images/2025-10/20251025_MartimoaapaFinland_1920x1080.jpg)
-
-#### 20251024 Alte Bibliothek, Kloster Sankt Mang, Füssen, Bayern (© marcobriviophoto/Shutterstock)
-
-![](images/2025-10/20251024_StMangLibrary_1920x1080.jpg)
 
 
 

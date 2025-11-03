@@ -1,3 +1,7 @@
+#### 20251104 塔桥, 伦敦, 英格兰 (© Nick Brundle Photography/Getty Images)
+
+![](20251104_TowerBridgeUK_1920x1080.jpg)
+
 #### 20251103 Jellyfish swimming in the Pacific, Guerrero, Mexico (© Christian Vizl/TANDEM Stills + Motion)
 
 ![](20251103_MexicoJelly_1920x1080.jpg)
