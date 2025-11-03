@@ -1,4 +1,4 @@
-#### 20251103 在太平洋中游泳的水母, 格雷罗, 墨西哥 (© Christian Vizl/TANDEM Stills + Motion)
+#### 20251103 Jellyfish swimming in the Pacific, Guerrero, Mexico (© Christian Vizl/TANDEM Stills + Motion)
 
 ![](20251103_MexicoJelly_1920x1080.jpg)
 
