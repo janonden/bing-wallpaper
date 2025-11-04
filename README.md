@@ -1,4 +1,4 @@
-#### 20251104 塔桥, 伦敦, 英格兰 (© Nick Brundle Photography/Getty Images)
+#### 20251104 Tower Bridge, London, England (© Nick Brundle Photography/Getty Images)
 
 ![](images/2025-11/20251104_TowerBridgeUK_1920x1080.jpg)
 
