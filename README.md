@@ -1,4 +1,4 @@
-#### 20251105 佩尼亚罗亚山毛榉森林, 蒙卡约自然公园, 萨拉戈萨, 阿拉贡, 西班牙 (© David Santiago Garcia/DEEPOL by plainpicture)
+#### 20251105 Peña Roya beech forest, Moncayo Natural Park, Zaragoza, Aragon, Spain (© David Santiago Garcia/DEEPOL by plainpicture)
 
 ![](images/2025-11/20251105_MoncayoAutumn_1920x1080.jpg)
 
