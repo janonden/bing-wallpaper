@@ -1,3 +1,7 @@
+#### 20251106 哈里朋柴佛塔寺的彩色灯笼, 南奔府, 泰国 (© MR. ANUJAK JAIMOOK/Getty Images)
+
+![](images/2025-11/20251106_LanternsThailand_1920x1080.jpg)
+
 #### 20251105 Peña Roya beech forest, Moncayo Natural Park, Zaragoza, Aragon, Spain (© David Santiago Garcia/DEEPOL by plainpicture)
 
 ![](images/2025-11/20251105_MoncayoAutumn_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20251027 Thick-billed raven, Simien Mountains, Ethiopia (© Ignacio Yufera/FLPA/Minden Pictures)
 
 ![](images/2025-10/20251027_AfricanRaven_1920x1080.jpg)
-
-#### 20251026 Pumpkin farm in North Carolina (© Matthew H Irvin/Getty Images)
-
-![](images/2025-10/20251026_PumpkinFarm_1920x1080.jpg)
 
 
 

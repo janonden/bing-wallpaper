@@ -1,3 +1,7 @@
+#### 20251106 哈里朋柴佛塔寺的彩色灯笼, 南奔府, 泰国 (© MR. ANUJAK JAIMOOK/Getty Images)
+
+![](20251106_LanternsThailand_1920x1080.jpg)
+
 #### 20251105 Peña Roya beech forest, Moncayo Natural Park, Zaragoza, Aragon, Spain (© David Santiago Garcia/DEEPOL by plainpicture)
 
 ![](20251105_MoncayoAutumn_1920x1080.jpg)
