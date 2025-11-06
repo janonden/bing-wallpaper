@@ -1,4 +1,4 @@
-#### 20251106 哈里朋柴佛塔寺的彩色灯笼, 南奔府, 泰国 (© MR. ANUJAK JAIMOOK/Getty Images)
+#### 20251106 Colorful lanterns at the temple of Wat Phra That Hariphunchai, Lamphun, Thailand (© MR. ANUJAK JAIMOOK/Getty Images)
 
 ![](images/2025-11/20251106_LanternsThailand_1920x1080.jpg)
 
