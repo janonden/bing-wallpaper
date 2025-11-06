@@ -1,3 +1,11 @@
+#### 20251107 丘吉尔的北极熊，曼尼托巴省，加拿大 (© karen crewe/Getty Images)
+
+![](20251107_WillowBear_1920x1080.jpg)
+
+#### 20251107 エナガ, 日本 (© feathercollector/Shutterstock)
+
+![](20251107_Lidong_1920x1080.jpg)
+
 #### 20251106 Colorful lanterns at the temple of Wat Phra That Hariphunchai, Lamphun, Thailand (© MR. ANUJAK JAIMOOK/Getty Images)
 
 ![](20251106_LanternsThailand_1920x1080.jpg)

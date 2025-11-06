@@ -1,3 +1,11 @@
+#### 20251107 丘吉尔的北极熊，曼尼托巴省，加拿大 (© karen crewe/Getty Images)
+
+![](images/2025-11/20251107_WillowBear_1920x1080.jpg)
+
+#### 20251107 エナガ, 日本 (© feathercollector/Shutterstock)
+
+![](images/2025-11/20251107_Lidong_1920x1080.jpg)
+
 #### 20251106 Colorful lanterns at the temple of Wat Phra That Hariphunchai, Lamphun, Thailand (© MR. ANUJAK JAIMOOK/Getty Images)
 
 ![](images/2025-11/20251106_LanternsThailand_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20251027 Grappe de raisins noirs, vignoble de Champagne (© Daniele SCHNEIDER/Photononstop/Alamy Stock Photo)
 
 ![](images/2025-10/20251027_ChampagneDay_1920x1080.jpg)
-
-#### 20251027 被胡杨树围绕着的湖, 金塔县, 酒泉, 甘肃, 中国 (© Feng Wei Photography/Getty images)
-
-![](images/2025-10/20251027_AutumnColorY_1920x1080.jpg)
-
-#### 20251027 Thick-billed raven, Simien Mountains, Ethiopia (© Ignacio Yufera/FLPA/Minden Pictures)
-
-![](images/2025-10/20251027_AfricanRaven_1920x1080.jpg)
 
 
 
