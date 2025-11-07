@@ -1,3 +1,7 @@
+#### 20251108 班登海滩的海蚀柱，俄勒冈州，美国 (© Grant Ordelheide/TANDEM Stills + Motion)
+
+![](images/2025-11/20251108_BandonBeach_1920x1080.jpg)
+
 #### 20251107 Polar bear in Churchill, Manitoba, Canada (© karen crewe/Getty Images)
 
 ![](images/2025-11/20251107_WillowBear_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20251028 The Gothic Gate in the Adršpach-Teplice Rocks, Czechia (© Kseniya_Milner/Getty Images)
 
 ![](images/2025-10/20251028_TepliceRocks_1920x1080.jpg)
-
-#### 20251027 Grappe de raisins noirs, vignoble de Champagne (© Daniele SCHNEIDER/Photononstop/Alamy Stock Photo)
-
-![](images/2025-10/20251027_ChampagneDay_1920x1080.jpg)
 
 
 

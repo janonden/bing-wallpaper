@@ -1,3 +1,7 @@
+#### 20251108 班登海滩的海蚀柱，俄勒冈州，美国 (© Grant Ordelheide/TANDEM Stills + Motion)
+
+![](20251108_BandonBeach_1920x1080.jpg)
+
 #### 20251107 Polar bear in Churchill, Manitoba, Canada (© karen crewe/Getty Images)
 
 ![](20251107_WillowBear_1920x1080.jpg)
