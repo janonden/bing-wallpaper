@@ -1,4 +1,4 @@
-#### 20251107 丘吉尔的北极熊，曼尼托巴省，加拿大 (© karen crewe/Getty Images)
+#### 20251107 Polar bear in Churchill, Manitoba, Canada (© karen crewe/Getty Images)
 
 ![](20251107_WillowBear_1920x1080.jpg)
 
