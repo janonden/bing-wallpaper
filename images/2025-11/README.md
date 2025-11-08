@@ -1,4 +1,4 @@
-#### 20251108 班登海滩的海蚀柱，俄勒冈州，美国 (© Grant Ordelheide/TANDEM Stills + Motion)
+#### 20251108 Sea stacks of Bandon Beach in Bandon, Oregon (© Grant Ordelheide/TANDEM Stills + Motion)
 
 ![](20251108_BandonBeach_1920x1080.jpg)
 
