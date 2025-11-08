@@ -1,3 +1,7 @@
+#### 20251109 礁湖星云中的星际云，由哈勃太空望远镜拍摄 (© ESA/NASA)
+
+![](images/2025-11/20251109_LagoonNebula_1920x1080.jpg)
+
 #### 20251108 Sea stacks of Bandon Beach in Bandon, Oregon (© Grant Ordelheide/TANDEM Stills + Motion)
 
 ![](images/2025-11/20251108_BandonBeach_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20251029 Ancient til trees in Fanal Forest, island of Madeira, Portugal (© Lukas Jonaitis/Shutterstock)
 
 ![](images/2025-10/20251029_FanalForest_1920x1080.jpg)
-
-#### 20251028 The Gothic Gate in the Adršpach-Teplice Rocks, Czechia (© Kseniya_Milner/Getty Images)
-
-![](images/2025-10/20251028_TepliceRocks_1920x1080.jpg)
 
 
 

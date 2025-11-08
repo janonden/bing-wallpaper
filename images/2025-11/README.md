@@ -1,3 +1,7 @@
+#### 20251109 礁湖星云中的星际云，由哈勃太空望远镜拍摄 (© ESA/NASA)
+
+![](20251109_LagoonNebula_1920x1080.jpg)
+
 #### 20251108 Sea stacks of Bandon Beach in Bandon, Oregon (© Grant Ordelheide/TANDEM Stills + Motion)
 
 ![](20251108_BandonBeach_1920x1080.jpg)
