@@ -1,3 +1,11 @@
+#### 20251110 土拨鼠镇的黑尾土拨鼠，劣地国家公园，南达科他州，美国 (© Greg Vaughn/Getty Images)
+
+![](images/2025-11/20251110_PrairieDogTown_1920x1080.jpg)
+
+#### 20251110 松本城, 長野県 松本市 (© Sangchai Olanrittinunt/Shutterstock)
+
+![](images/2025-11/20251110_MatsumotoCastleDay_1920x1080.jpg)
+
 #### 20251109 Interstellar clouds in the Lagoon Nebula, captured by the Hubble Space Telescope (© ESA/NASA)
 
 ![](images/2025-11/20251109_LagoonNebula_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20251031 Different kinds of pumpkins and gourds (© davidfillion/Getty Images)
 
 ![](images/2025-10/20251031_PumpkinHalloween_1920x1080.jpg)
-
-#### 20251031 Entrance of Bran Castle in Bran, Brașov, Romania (© blue sky in my pocket/Getty Images)
-
-![](images/2025-10/20251031_BranCastle_1920x1080.jpg)
-
-#### 20251030 Camels at Jaisalmer, Rajasthan, India (© f9photos/Getty Images)
-
-![](images/2025-10/20251030_PushkarFair_1920x1080.jpg)
 
 
 

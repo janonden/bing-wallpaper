@@ -1,3 +1,11 @@
+#### 20251110 土拨鼠镇的黑尾土拨鼠，劣地国家公园，南达科他州，美国 (© Greg Vaughn/Getty Images)
+
+![](20251110_PrairieDogTown_1920x1080.jpg)
+
+#### 20251110 松本城, 長野県 松本市 (© Sangchai Olanrittinunt/Shutterstock)
+
+![](20251110_MatsumotoCastleDay_1920x1080.jpg)
+
 #### 20251109 Interstellar clouds in the Lagoon Nebula, captured by the Hubble Space Telescope (© ESA/NASA)
 
 ![](20251109_LagoonNebula_1920x1080.jpg)
