@@ -2,6 +2,10 @@
 
 ![](images/2025-11/20251109_LagoonNebula_1920x1080.jpg)
 
+#### 20251109 Herzen auf den Türmen der Oberbaumbrücke, Berlin (© fhm/Getty Images)
+
+![](images/2025-11/20251109_BerlinOberbaumbruecke_1920x1080.jpg)
+
 #### 20251108 Sea stacks of Bandon Beach in Bandon, Oregon (© Grant Ordelheide/TANDEM Stills + Motion)
 
 ![](images/2025-11/20251108_BandonBeach_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20251030 Camels at Jaisalmer, Rajasthan, India (© f9photos/Getty Images)
 
 ![](images/2025-10/20251030_PushkarFair_1920x1080.jpg)
-
-#### 20251029 Ancient til trees in Fanal Forest, island of Madeira, Portugal (© Lukas Jonaitis/Shutterstock)
-
-![](images/2025-10/20251029_FanalForest_1920x1080.jpg)
 
 
 

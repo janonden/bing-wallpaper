@@ -2,6 +2,10 @@
 
 ![](20251109_LagoonNebula_1920x1080.jpg)
 
+#### 20251109 Herzen auf den Türmen der Oberbaumbrücke, Berlin (© fhm/Getty Images)
+
+![](20251109_BerlinOberbaumbruecke_1920x1080.jpg)
+
 #### 20251108 Sea stacks of Bandon Beach in Bandon, Oregon (© Grant Ordelheide/TANDEM Stills + Motion)
 
 ![](20251108_BandonBeach_1920x1080.jpg)
