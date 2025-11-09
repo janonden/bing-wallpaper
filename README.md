@@ -1,4 +1,4 @@
-#### 20251109 礁湖星云中的星际云，由哈勃太空望远镜拍摄 (© ESA/NASA)
+#### 20251109 Interstellar clouds in the Lagoon Nebula, captured by the Hubble Space Telescope (© ESA/NASA)
 
 ![](images/2025-11/20251109_LagoonNebula_1920x1080.jpg)
 
