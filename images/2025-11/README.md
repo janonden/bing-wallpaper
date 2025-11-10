@@ -1,3 +1,11 @@
+#### 20251111 条顿堡森林的伊克斯坦岩石层，德国 (© Michael Sroka/Getty Images)
+
+![](20251111_ExternsteineSunset_1920x1080.jpg)
+
+#### 20251111 ベログラトチク岩, ブルガリア (© EvaL Miko/Shutterstock)
+
+![](20251111_BulgariaRocks_1920x1080.jpg)
+
 #### 20251110 Black-tailed prairie dogs at Roberts Prairie Dog Town, Badlands National Park, South Dakota (© Greg Vaughn/Getty Images)
 
 ![](20251110_PrairieDogTown_1920x1080.jpg)

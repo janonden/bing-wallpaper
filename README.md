@@ -1,3 +1,11 @@
+#### 20251111 条顿堡森林的伊克斯坦岩石层，德国 (© Michael Sroka/Getty Images)
+
+![](images/2025-11/20251111_ExternsteineSunset_1920x1080.jpg)
+
+#### 20251111 ベログラトチク岩, ブルガリア (© EvaL Miko/Shutterstock)
+
+![](images/2025-11/20251111_BulgariaRocks_1920x1080.jpg)
+
 #### 20251110 Black-tailed prairie dogs at Roberts Prairie Dog Town, Badlands National Park, South Dakota (© Greg Vaughn/Getty Images)
 
 ![](images/2025-11/20251110_PrairieDogTown_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20251102 Colorful maple leaves and bamboo forest in Arashiyama, Kyoto, Japan (© DoctorEgg/Getty Images)
 
 ![](images/2025-11/20251102_KyotoMaple_1920x1080.jpg)
-
-#### 20251101 Bison grazing at thermal hot springs, Yellowstone National Park, Wyoming (© Cheryl Ramalho/Getty Images)
-
-![](images/2025-11/20251101_BisonSprings_1920x1080.jpg)
-
-#### 20251031 Different kinds of pumpkins and gourds (© davidfillion/Getty Images)
-
-![](images/2025-10/20251031_PumpkinHalloween_1920x1080.jpg)
 
 
 
