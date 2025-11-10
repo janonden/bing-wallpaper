@@ -1,4 +1,4 @@
-#### 20251110 土拨鼠镇的黑尾土拨鼠，劣地国家公园，南达科他州，美国 (© Greg Vaughn/Getty Images)
+#### 20251110 Black-tailed prairie dogs at Roberts Prairie Dog Town, Badlands National Park, South Dakota (© Greg Vaughn/Getty Images)
 
 ![](20251110_PrairieDogTown_1920x1080.jpg)
 
