@@ -6,6 +6,10 @@
 
 ![](images/2025-11/20251111_BulgariaRocks_1920x1080.jpg)
 
+#### 20251111 Tombe du soldat inconnu sous l’Arc de Triomphe à Paris lors des commémorations du 11 novembre (© Ludovic Marin/Getty Images)
+
+![](images/2025-11/20251111_Armistice_1920x1080.jpg)
+
 #### 20251110 Black-tailed prairie dogs at Roberts Prairie Dog Town, Badlands National Park, South Dakota (© Greg Vaughn/Getty Images)
 
 ![](images/2025-11/20251110_PrairieDogTown_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20251103 ウィンバッハ峡谷, ドイツ (© EyeEm Mobile GmbH/Getty Images)
 
 ![](images/2025-11/20251103_HinterseeWaterfall_1920x1080.jpg)
-
-#### 20251102 Colorful maple leaves and bamboo forest in Arashiyama, Kyoto, Japan (© DoctorEgg/Getty Images)
-
-![](images/2025-11/20251102_KyotoMaple_1920x1080.jpg)
 
 
 

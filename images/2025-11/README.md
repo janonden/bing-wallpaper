@@ -6,6 +6,10 @@
 
 ![](20251111_BulgariaRocks_1920x1080.jpg)
 
+#### 20251111 Tombe du soldat inconnu sous l’Arc de Triomphe à Paris lors des commémorations du 11 novembre (© Ludovic Marin/Getty Images)
+
+![](20251111_Armistice_1920x1080.jpg)
+
 #### 20251110 Black-tailed prairie dogs at Roberts Prairie Dog Town, Badlands National Park, South Dakota (© Greg Vaughn/Getty Images)
 
 ![](20251110_PrairieDogTown_1920x1080.jpg)
