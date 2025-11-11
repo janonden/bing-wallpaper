@@ -1,3 +1,7 @@
+#### 20251111 Marine Corps War Memorial, Arlington, Virginia (© f11photo/Shutterstock)
+
+![](images/2025-11/20251111_MarineMemorial_1920x1080.jpg)
+
 #### 20251111 条顿堡森林的伊克斯坦岩石层，德国 (© Michael Sroka/Getty Images)
 
 ![](images/2025-11/20251111_ExternsteineSunset_1920x1080.jpg)
@@ -9,6 +13,10 @@
 #### 20251111 Tombe du soldat inconnu sous l’Arc de Triomphe à Paris lors des commémorations du 11 novembre (© Ludovic Marin/Getty Images)
 
 ![](images/2025-11/20251111_Armistice_1920x1080.jpg)
+
+#### 20251111 Quiver trees at night with the Milky Way, Keetmanshoop, Namibia (© Wim van den Heever/naturepl.com)
+
+![](images/2025-11/20251111_AloeDichotoma_1920x1080.jpg)
 
 #### 20251110 Black-tailed prairie dogs at Roberts Prairie Dog Town, Badlands National Park, South Dakota (© Greg Vaughn/Getty Images)
 
@@ -49,14 +57,6 @@
 #### 20251104 Tower Bridge, London, England (© Nick Brundle Photography/Getty Images)
 
 ![](images/2025-11/20251104_TowerBridgeUK_1920x1080.jpg)
-
-#### 20251103 Jellyfish swimming in the Pacific, Guerrero, Mexico (© Christian Vizl/TANDEM Stills + Motion)
-
-![](images/2025-11/20251103_MexicoJelly_1920x1080.jpg)
-
-#### 20251103 ウィンバッハ峡谷, ドイツ (© EyeEm Mobile GmbH/Getty Images)
-
-![](images/2025-11/20251103_HinterseeWaterfall_1920x1080.jpg)
 
 
 
