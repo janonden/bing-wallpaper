@@ -1,3 +1,7 @@
+#### 20251112 斗兽场鸟瞰图，罗马，意大利 (© Nico De Pasquale Photography/Getty Images)
+
+![](images/2025-11/20251112_ColosseumRome_1920x1080.jpg)
+
 #### 20251111 Marine Corps War Memorial, Arlington, Virginia (© f11photo/Shutterstock)
 
 ![](images/2025-11/20251111_MarineMemorial_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20251105 Peña Roya beech forest, Moncayo Natural Park, Zaragoza, Aragon, Spain (© David Santiago Garcia/DEEPOL by plainpicture)
 
 ![](images/2025-11/20251105_MoncayoAutumn_1920x1080.jpg)
-
-#### 20251104 Tower Bridge, London, England (© Nick Brundle Photography/Getty Images)
-
-![](images/2025-11/20251104_TowerBridgeUK_1920x1080.jpg)
 
 
 

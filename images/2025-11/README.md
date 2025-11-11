@@ -1,3 +1,7 @@
+#### 20251112 斗兽场鸟瞰图，罗马，意大利 (© Nico De Pasquale Photography/Getty Images)
+
+![](20251112_ColosseumRome_1920x1080.jpg)
+
 #### 20251111 Marine Corps War Memorial, Arlington, Virginia (© f11photo/Shutterstock)
 
 ![](20251111_MarineMemorial_1920x1080.jpg)
