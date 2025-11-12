@@ -1,4 +1,4 @@
-#### 20251112 斗兽场鸟瞰图，罗马，意大利 (© Nico De Pasquale Photography/Getty Images)
+#### 20251112 Aerial view of the Colosseum, Rome, Italy (© Nico De Pasquale Photography/Getty Images)
 
 ![](images/2025-11/20251112_ColosseumRome_1920x1080.jpg)
 
