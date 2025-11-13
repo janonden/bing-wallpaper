@@ -1,3 +1,7 @@
+#### 20251114 海牛妈妈和幼崽，水晶河，佛罗里达州，美国 (© Gregory Sweeney/Getty Images)
+
+![](images/2025-11/20251114_ManateeBaby_1920x1080.jpg)
+
 #### 20251113 The 2020 Distillery Winter Village, Toronto (© Steve Russell/Toronto Star via Getty Images)
 
 ![](images/2025-11/20251113_TntChrisMkt_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20251107 Polar bear in Churchill, Manitoba, Canada (© karen crewe/Getty Images)
 
 ![](images/2025-11/20251107_WillowBear_1920x1080.jpg)
-
-#### 20251107 エナガ, 日本 (© feathercollector/Shutterstock)
-
-![](images/2025-11/20251107_Lidong_1920x1080.jpg)
 
 
 
