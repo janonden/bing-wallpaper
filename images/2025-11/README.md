@@ -1,3 +1,7 @@
+#### 20251113 Mémorial éphémère en hommage aux victimes des attentats de Paris, Vieux-Port, Marseille (© Anne-Christine Poujoulat/Getty Images)
+
+![](20251113_ParisAnniversary_1920x1080.jpg)
+
 #### 20251112 Aerial view of the Colosseum, Rome, Italy (© Nico De Pasquale Photography/Getty Images)
 
 ![](20251112_ColosseumRome_1920x1080.jpg)

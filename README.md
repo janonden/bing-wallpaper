@@ -1,3 +1,7 @@
+#### 20251113 Mémorial éphémère en hommage aux victimes des attentats de Paris, Vieux-Port, Marseille (© Anne-Christine Poujoulat/Getty Images)
+
+![](images/2025-11/20251113_ParisAnniversary_1920x1080.jpg)
+
 #### 20251112 Aerial view of the Colosseum, Rome, Italy (© Nico De Pasquale Photography/Getty Images)
 
 ![](images/2025-11/20251112_ColosseumRome_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20251106 Colorful lanterns at the temple of Wat Phra That Hariphunchai, Lamphun, Thailand (© MR. ANUJAK JAIMOOK/Getty Images)
 
 ![](images/2025-11/20251106_LanternsThailand_1920x1080.jpg)
-
-#### 20251105 Peña Roya beech forest, Moncayo Natural Park, Zaragoza, Aragon, Spain (© David Santiago Garcia/DEEPOL by plainpicture)
-
-![](images/2025-11/20251105_MoncayoAutumn_1920x1080.jpg)
 
 
 
