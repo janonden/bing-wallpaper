@@ -1,3 +1,7 @@
+#### 20251113 The 2020 Distillery Winter Village, Toronto (© Steve Russell/Toronto Star via Getty Images)
+
+![](20251113_TntChrisMkt_1920x1080.jpg)
+
 #### 20251113 Mémorial éphémère en hommage aux victimes des attentats de Paris, Vieux-Port, Marseille (© Anne-Christine Poujoulat/Getty Images)
 
 ![](20251113_ParisAnniversary_1920x1080.jpg)
@@ -22,7 +26,7 @@
 
 ![](20251111_Armistice_1920x1080.jpg)
 
-#### 20251111 Quiver trees at night with the Milky Way, Keetmanshoop, Namibia (© Wim van den Heever/naturepl.com)
+#### 20251111 Quiver trees under the Milky Way, Keetmanshoop, Namibia (© Wim van den Heever/naturepl.com)
 
 ![](20251111_AloeDichotoma_1920x1080.jpg)
 
