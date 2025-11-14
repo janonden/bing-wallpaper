@@ -1,4 +1,4 @@
-#### 20251114 海牛妈妈和幼崽，水晶河，佛罗里达州，美国 (© Gregory Sweeney/Getty Images)
+#### 20251114 Mother manatee and calf, Crystal River, Florida (© Gregory Sweeney/Getty Images)
 
 ![](images/2025-11/20251114_ManateeBaby_1920x1080.jpg)
 
