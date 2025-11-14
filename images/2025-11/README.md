@@ -1,3 +1,7 @@
+#### 20251115 秋天的伊吕波坂，日光市，栃木县，日本 (© oneinchpunch/Shutterstock)
+
+![](20251115_IrohazakaAutumn_1920x1080.jpg)
+
 #### 20251114 Mother manatee and calf, Crystal River, Florida (© Gregory Sweeney/Getty Images)
 
 ![](20251114_ManateeBaby_1920x1080.jpg)
