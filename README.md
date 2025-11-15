@@ -1,3 +1,7 @@
+#### 20251116 里昂的一条穿廊，法国 (© TPopova/Getty Images) 法国
+
+![](images/2025-11/20251116_LyonTraboules_1920x1080.jpg)
+
 #### 20251115 Irohazaka Road in fall, Nikko, Tochigi, Japan (© oneinchpunch/Shutterstock)
 
 ![](images/2025-11/20251115_IrohazakaAutumn_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20251109 Herzen auf den Türmen der Oberbaumbrücke, Berlin (© fhm/Getty Images)
 
 ![](images/2025-11/20251109_BerlinOberbaumbruecke_1920x1080.jpg)
-
-#### 20251108 Sea stacks of Bandon Beach in Bandon, Oregon (© Grant Ordelheide/TANDEM Stills + Motion)
-
-![](images/2025-11/20251108_BandonBeach_1920x1080.jpg)
 
 
 

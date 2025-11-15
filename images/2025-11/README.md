@@ -1,3 +1,7 @@
+#### 20251116 里昂的一条穿廊，法国 (© TPopova/Getty Images) 法国
+
+![](20251116_LyonTraboules_1920x1080.jpg)
+
 #### 20251115 Irohazaka Road in fall, Nikko, Tochigi, Japan (© oneinchpunch/Shutterstock)
 
 ![](20251115_IrohazakaAutumn_1920x1080.jpg)
