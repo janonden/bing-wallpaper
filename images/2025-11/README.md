@@ -1,4 +1,4 @@
-#### 20251115 秋天的伊吕波坂，日光市，栃木县，日本 (© oneinchpunch/Shutterstock)
+#### 20251115 Irohazaka Road in fall, Nikko, Tochigi, Japan (© oneinchpunch/Shutterstock)
 
 ![](20251115_IrohazakaAutumn_1920x1080.jpg)
 
