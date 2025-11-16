@@ -1,3 +1,7 @@
+#### 20251117 谢南多厄国家公园的秋色，弗吉尼亚州，美国 (© Michael Ver Sprill/Getty Images)
+
+![](images/2025-11/20251117_ShenandoahTrail_1920x1080.jpg)
+
 #### 20251116 A traboule in Lyon, France (© TPopova/Getty Images)
 
 ![](images/2025-11/20251116_LyonTraboules_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20251109 Interstellar clouds in the Lagoon Nebula, captured by the Hubble Space Telescope (© ESA/NASA)
 
 ![](images/2025-11/20251109_LagoonNebula_1920x1080.jpg)
-
-#### 20251109 Herzen auf den Türmen der Oberbaumbrücke, Berlin (© fhm/Getty Images)
-
-![](images/2025-11/20251109_BerlinOberbaumbruecke_1920x1080.jpg)
 
 
 
