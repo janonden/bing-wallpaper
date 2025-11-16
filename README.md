@@ -1,4 +1,4 @@
-#### 20251116 里昂的一条穿廊，法国 (© TPopova/Getty Images) 法国
+#### 20251116 A traboule in Lyon, France (© TPopova/Getty Images)
 
 ![](images/2025-11/20251116_LyonTraboules_1920x1080.jpg)
 
