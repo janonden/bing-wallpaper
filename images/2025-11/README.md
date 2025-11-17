@@ -1,6 +1,10 @@
-#### 20251117 谢南多厄国家公园的秋色，弗吉尼亚州，美国 (© Michael Ver Sprill/Getty Images)
+#### 20251117 Fall colors in Shenandoah National Park, Virginia (© Michael Ver Sprill/Getty Images)
 
 ![](20251117_ShenandoahTrail_1920x1080.jpg)
+
+#### 20251117 Red fox, Canada (© RT-Images/Getty Images)
+
+![](20251117_RedFoxVulpes_1920x1080.jpg)
 
 #### 20251117 Europäischer Uhu auf einem herbstlichen Baumstamm, Deutschland (© Ondrej Prosicky/Shutterstock)
 
