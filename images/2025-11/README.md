@@ -2,6 +2,14 @@
 
 ![](20251117_ShenandoahTrail_1920x1080.jpg)
 
+#### 20251117 Europäischer Uhu auf einem herbstlichen Baumstamm, Deutschland (© Ondrej Prosicky/Shutterstock)
+
+![](20251117_GermanyOwl_1920x1080.jpg)
+
+#### 20251117 Forêt de mélèzes dorés, Alpes (© Jose Manuel Perez/Getty Images)
+
+![](20251117_AlpesAutumn_1920x1080.jpg)
+
 #### 20251116 A traboule in Lyon, France (© TPopova/Getty Images)
 
 ![](20251116_LyonTraboules_1920x1080.jpg)

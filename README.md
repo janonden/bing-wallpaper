@@ -2,6 +2,14 @@
 
 ![](images/2025-11/20251117_ShenandoahTrail_1920x1080.jpg)
 
+#### 20251117 Europäischer Uhu auf einem herbstlichen Baumstamm, Deutschland (© Ondrej Prosicky/Shutterstock)
+
+![](images/2025-11/20251117_GermanyOwl_1920x1080.jpg)
+
+#### 20251117 Forêt de mélèzes dorés, Alpes (© Jose Manuel Perez/Getty Images)
+
+![](images/2025-11/20251117_AlpesAutumn_1920x1080.jpg)
+
 #### 20251116 A traboule in Lyon, France (© TPopova/Getty Images)
 
 ![](images/2025-11/20251116_LyonTraboules_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20251110 Black-tailed prairie dogs at Roberts Prairie Dog Town, Badlands National Park, South Dakota (© Greg Vaughn/Getty Images)
 
 ![](images/2025-11/20251110_PrairieDogTown_1920x1080.jpg)
-
-#### 20251110 松本城, 長野県 松本市 (© Sangchai Olanrittinunt/Shutterstock)
-
-![](images/2025-11/20251110_MatsumotoCastleDay_1920x1080.jpg)
-
-#### 20251109 Interstellar clouds in the Lagoon Nebula, captured by the Hubble Space Telescope (© ESA/NASA)
-
-![](images/2025-11/20251109_LagoonNebula_1920x1080.jpg)
 
 
 
