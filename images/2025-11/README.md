@@ -1,3 +1,7 @@
+#### 20251118 雄性棕胁秋沙鸭，俄勒冈州，美国 (© Eric Vogt/TANDEM Stills + Motion)
+
+![](20251118_AutumnMerganser_1920x1080.jpg)
+
 #### 20251117 Fall colors in Shenandoah National Park, Virginia (© Michael Ver Sprill/Getty Images)
 
 ![](20251117_ShenandoahTrail_1920x1080.jpg)

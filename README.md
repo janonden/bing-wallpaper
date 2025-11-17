@@ -1,3 +1,7 @@
+#### 20251118 雄性棕胁秋沙鸭，俄勒冈州，美国 (© Eric Vogt/TANDEM Stills + Motion)
+
+![](images/2025-11/20251118_AutumnMerganser_1920x1080.jpg)
+
 #### 20251117 Fall colors in Shenandoah National Park, Virginia (© Michael Ver Sprill/Getty Images)
 
 ![](images/2025-11/20251117_ShenandoahTrail_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20251111 Tombe du soldat inconnu sous l’Arc de Triomphe à Paris lors des commémorations du 11 novembre (© Ludovic Marin/Getty Images)
 
 ![](images/2025-11/20251111_Armistice_1920x1080.jpg)
-
-#### 20251111 Quiver trees under the Milky Way, Keetmanshoop, Namibia (© Wim van den Heever/naturepl.com)
-
-![](images/2025-11/20251111_AloeDichotoma_1920x1080.jpg)
 
 
 
