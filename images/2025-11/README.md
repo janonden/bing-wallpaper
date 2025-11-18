@@ -1,4 +1,4 @@
-#### 20251118 雄性棕胁秋沙鸭，俄勒冈州，美国 (© Eric Vogt/TANDEM Stills + Motion)
+#### 20251118 Male hooded merganser, Oregon (© Eric Vogt/TANDEM Stills + Motion)
 
 ![](20251118_AutumnMerganser_1920x1080.jpg)
 
