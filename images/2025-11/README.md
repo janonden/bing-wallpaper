@@ -1,3 +1,7 @@
+#### 20251119 匈牙利国会大厦，布达佩斯，匈牙利 (© Alexander Spatari/Getty Images)
+
+![](20251119_BudapestParliament_1920x1080.jpg)
+
 #### 20251118 Male hooded merganser, Oregon (© Eric Vogt/TANDEM Stills + Motion)
 
 ![](20251118_AutumnMerganser_1920x1080.jpg)

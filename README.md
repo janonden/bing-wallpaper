@@ -1,3 +1,7 @@
+#### 20251119 匈牙利国会大厦，布达佩斯，匈牙利 (© Alexander Spatari/Getty Images)
+
+![](images/2025-11/20251119_BudapestParliament_1920x1080.jpg)
+
 #### 20251118 Male hooded merganser, Oregon (© Eric Vogt/TANDEM Stills + Motion)
 
 ![](images/2025-11/20251118_AutumnMerganser_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20251111 ベログラトチク岩, ブルガリア (© EvaL Miko/Shutterstock)
 
 ![](images/2025-11/20251111_BulgariaRocks_1920x1080.jpg)
-
-#### 20251111 Tombe du soldat inconnu sous l’Arc de Triomphe à Paris lors des commémorations du 11 novembre (© Ludovic Marin/Getty Images)
-
-![](images/2025-11/20251111_Armistice_1920x1080.jpg)
 
 
 
