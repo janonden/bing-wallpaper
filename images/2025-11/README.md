@@ -1,3 +1,11 @@
+#### 20251120 Saype によるランドアート「World in progress」, スイス (© Valentin Flauraud/EPA-EFE/Shutterstock)
+
+![](20251120_SaypeGeneva_1920x1080.jpg)
+
+#### 20251120 查帕达迪亚曼蒂纳国家公园，巴伊亚州，巴西 (© Marcio Dufranc/Getty Images)
+
+![](20251120_PondCave_1920x1080.jpg)
+
 #### 20251119 Hungarian Parliament Building, Budapest, Hungary (© Alexander Spatari/Getty Images)
 
 ![](20251119_BudapestParliament_1920x1080.jpg)

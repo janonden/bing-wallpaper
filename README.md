@@ -1,3 +1,11 @@
+#### 20251120 Saype によるランドアート「World in progress」, スイス (© Valentin Flauraud/EPA-EFE/Shutterstock)
+
+![](images/2025-11/20251120_SaypeGeneva_1920x1080.jpg)
+
+#### 20251120 查帕达迪亚曼蒂纳国家公园，巴伊亚州，巴西 (© Marcio Dufranc/Getty Images)
+
+![](images/2025-11/20251120_PondCave_1920x1080.jpg)
+
 #### 20251119 Hungarian Parliament Building, Budapest, Hungary (© Alexander Spatari/Getty Images)
 
 ![](images/2025-11/20251119_BudapestParliament_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20251111 Marine Corps War Memorial, Arlington, Virginia (© f11photo/Shutterstock)
 
 ![](images/2025-11/20251111_MarineMemorial_1920x1080.jpg)
-
-#### 20251111 条顿堡森林的伊克斯坦岩石层，德国 (© Michael Sroka/Getty Images)
-
-![](images/2025-11/20251111_ExternsteineSunset_1920x1080.jpg)
-
-#### 20251111 ベログラトチク岩, ブルガリア (© EvaL Miko/Shutterstock)
-
-![](images/2025-11/20251111_BulgariaRocks_1920x1080.jpg)
 
 
 
