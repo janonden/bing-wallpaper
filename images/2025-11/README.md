@@ -1,4 +1,4 @@
-#### 20251119 匈牙利国会大厦，布达佩斯，匈牙利 (© Alexander Spatari/Getty Images)
+#### 20251119 Hungarian Parliament Building, Budapest, Hungary (© Alexander Spatari/Getty Images)
 
 ![](20251119_BudapestParliament_1920x1080.jpg)
 
