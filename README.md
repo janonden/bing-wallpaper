@@ -1,4 +1,4 @@
-#### 20251120 Saype によるランドアート「World in progress」, スイス (© Valentin Flauraud/EPA-EFE/Shutterstock)
+#### 20251120 Artist Saype poses with his land art painting at UN Headquarters, Geneva, Switzerland (© Valentin Flauraud/EPA-EFE/Shutterstock)
 
 ![](images/2025-11/20251120_SaypeGeneva_1920x1080.jpg)
 
