@@ -1,3 +1,7 @@
+#### 20251121 罗伯特·摩西州立公园的港海豹, 长岛, 纽约, 美国 (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)
+
+![](20251121_SealWaving_1920x1080.jpg)
+
 #### 20251120 Artist Saype poses with his land art painting at UN Headquarters, Geneva, Switzerland (© Valentin Flauraud/EPA-EFE/Shutterstock)
 
 ![](20251120_SaypeGeneva_1920x1080.jpg)

@@ -1,3 +1,7 @@
+#### 20251121 罗伯特·摩西州立公园的港海豹, 长岛, 纽约, 美国 (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)
+
+![](images/2025-11/20251121_SealWaving_1920x1080.jpg)
+
 #### 20251120 Artist Saype poses with his land art painting at UN Headquarters, Geneva, Switzerland (© Valentin Flauraud/EPA-EFE/Shutterstock)
 
 ![](images/2025-11/20251120_SaypeGeneva_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20251112 Aerial view of the Colosseum, Rome, Italy (© Nico De Pasquale Photography/Getty Images)
 
 ![](images/2025-11/20251112_ColosseumRome_1920x1080.jpg)
-
-#### 20251111 Marine Corps War Memorial, Arlington, Virginia (© f11photo/Shutterstock)
-
-![](images/2025-11/20251111_MarineMemorial_1920x1080.jpg)
 
 
 
