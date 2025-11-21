@@ -1,4 +1,4 @@
-#### 20251121 罗伯特·摩西州立公园的港海豹, 长岛, 纽约, 美国 (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)
+#### 20251121 Harbor seals at Robert Moses State Park, Long Island, New York (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)
 
 ![](20251121_SealWaving_1920x1080.jpg)
 
