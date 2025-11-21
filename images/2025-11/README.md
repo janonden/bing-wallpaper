@@ -1,3 +1,11 @@
+#### 20251122 乐山大佛, 四川, 中国 (© www.anotherdayattheoffice.org/Getty Images)
+
+![](20251122_LeshanBuddha_1920x1080.jpg)
+
+#### 20251122 兼六園, 石川県 金沢市 (© Darby Sawchuk/Alamy)
+
+![](20251122_Kenrokuen_1920x1080.jpg)
+
 #### 20251121 Harbor seals at Robert Moses State Park, Long Island, New York (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)
 
 ![](20251121_SealWaving_1920x1080.jpg)

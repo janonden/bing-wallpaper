@@ -1,3 +1,11 @@
+#### 20251122 乐山大佛, 四川, 中国 (© www.anotherdayattheoffice.org/Getty Images)
+
+![](images/2025-11/20251122_LeshanBuddha_1920x1080.jpg)
+
+#### 20251122 兼六園, 石川県 金沢市 (© Darby Sawchuk/Alamy)
+
+![](images/2025-11/20251122_Kenrokuen_1920x1080.jpg)
+
 #### 20251121 Harbor seals at Robert Moses State Park, Long Island, New York (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)
 
 ![](images/2025-11/20251121_SealWaving_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20251113 The 2020 Distillery Winter Village, Toronto (© Steve Russell/Toronto Star via Getty Images)
 
 ![](images/2025-11/20251113_TntChrisMkt_1920x1080.jpg)
-
-#### 20251113 Mémorial éphémère en hommage aux victimes des attentats de Paris, Vieux-Port, Marseille (© Anne-Christine Poujoulat/Getty Images)
-
-![](images/2025-11/20251113_ParisAnniversary_1920x1080.jpg)
-
-#### 20251112 Aerial view of the Colosseum, Rome, Italy (© Nico De Pasquale Photography/Getty Images)
-
-![](images/2025-11/20251112_ColosseumRome_1920x1080.jpg)
 
 
 
