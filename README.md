@@ -2,6 +2,10 @@
 
 ![](images/2025-11/20251123_MonteVelino_1920x1080.jpg)
 
+#### 20251123 马达加斯加菊石化石 (© ThomasLENNE/Shutterstock)
+
+![](images/2025-11/20251123_MadgascarAmmonite_1920x1080.jpg)
+
 #### 20251122 Leshan Giant Buddha, Sichuan, China (© www.anotherdayattheoffice.org/Getty Images)
 
 ![](images/2025-11/20251122_LeshanBuddha_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20251115 Irohazaka Road in fall, Nikko, Tochigi, Japan (© oneinchpunch/Shutterstock)
 
 ![](images/2025-11/20251115_IrohazakaAutumn_1920x1080.jpg)
-
-#### 20251114 Mother manatee and calf, Crystal River, Florida (© Gregory Sweeney/Getty Images)
-
-![](images/2025-11/20251114_ManateeBaby_1920x1080.jpg)
 
 
 

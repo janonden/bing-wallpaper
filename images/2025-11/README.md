@@ -2,6 +2,10 @@
 
 ![](20251123_MonteVelino_1920x1080.jpg)
 
+#### 20251123 马达加斯加菊石化石 (© ThomasLENNE/Shutterstock)
+
+![](20251123_MadgascarAmmonite_1920x1080.jpg)
+
 #### 20251122 Leshan Giant Buddha, Sichuan, China (© www.anotherdayattheoffice.org/Getty Images)
 
 ![](20251122_LeshanBuddha_1920x1080.jpg)
