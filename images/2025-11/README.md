@@ -1,4 +1,8 @@
-#### 20251122 乐山大佛, 四川, 中国 (© www.anotherdayattheoffice.org/Getty Images)
+#### 20251123 Monte Sirente, Abruzzo, Italy (© ValerioMei/Getty Images)
+
+![](20251123_MonteVelino_1920x1080.jpg)
+
+#### 20251122 Leshan Giant Buddha, Sichuan, China (© www.anotherdayattheoffice.org/Getty Images)
 
 ![](20251122_LeshanBuddha_1920x1080.jpg)
 

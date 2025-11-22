@@ -1,4 +1,8 @@
-#### 20251122 乐山大佛, 四川, 中国 (© www.anotherdayattheoffice.org/Getty Images)
+#### 20251123 Monte Sirente, Abruzzo, Italy (© ValerioMei/Getty Images)
+
+![](images/2025-11/20251123_MonteVelino_1920x1080.jpg)
+
+#### 20251122 Leshan Giant Buddha, Sichuan, China (© www.anotherdayattheoffice.org/Getty Images)
 
 ![](images/2025-11/20251122_LeshanBuddha_1920x1080.jpg)
 
@@ -53,10 +57,6 @@
 #### 20251114 Mother manatee and calf, Crystal River, Florida (© Gregory Sweeney/Getty Images)
 
 ![](images/2025-11/20251114_ManateeBaby_1920x1080.jpg)
-
-#### 20251113 The 2020 Distillery Winter Village, Toronto (© Steve Russell/Toronto Star via Getty Images)
-
-![](images/2025-11/20251113_TntChrisMkt_1920x1080.jpg)
 
 
 
