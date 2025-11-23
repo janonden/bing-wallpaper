@@ -2,7 +2,7 @@
 
 ![](images/2025-11/20251123_MonteVelino_1920x1080.jpg)
 
-#### 20251123 马达加斯加菊石化石 (© ThomasLENNE/Shutterstock)
+#### 20251123 Ammonite fossil from Madagascar (© ThomasLENNE/Shutterstock)
 
 ![](images/2025-11/20251123_MadgascarAmmonite_1920x1080.jpg)
 
