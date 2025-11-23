@@ -1,3 +1,7 @@
+#### 20251124 瓜廖尔堡, ‌中央邦, 印度 (© ImagesofIndia/Shutterstock)
+
+![](20251124_GwailorFort_1920x1080.jpg)
+
 #### 20251123 Monte Sirente, Abruzzo, Italy (© ValerioMei/Getty Images)
 
 ![](20251123_MonteVelino_1920x1080.jpg)

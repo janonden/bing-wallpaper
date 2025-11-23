@@ -1,3 +1,7 @@
+#### 20251124 瓜廖尔堡, ‌中央邦, 印度 (© ImagesofIndia/Shutterstock)
+
+![](images/2025-11/20251124_GwailorFort_1920x1080.jpg)
+
 #### 20251123 Monte Sirente, Abruzzo, Italy (© ValerioMei/Getty Images)
 
 ![](images/2025-11/20251123_MonteVelino_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20251116 A traboule in Lyon, France (© TPopova/Getty Images)
 
 ![](images/2025-11/20251116_LyonTraboules_1920x1080.jpg)
-
-#### 20251115 Irohazaka Road in fall, Nikko, Tochigi, Japan (© oneinchpunch/Shutterstock)
-
-![](images/2025-11/20251115_IrohazakaAutumn_1920x1080.jpg)
 
 
 
