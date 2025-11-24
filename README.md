@@ -1,4 +1,4 @@
-#### 20251124 瓜廖尔堡, ‌中央邦, 印度 (© ImagesofIndia/Shutterstock)
+#### 20251124 Gwalior Fort, Madhya Pradesh, India (© ImagesofIndia/Shutterstock)
 
 ![](images/2025-11/20251124_GwailorFort_1920x1080.jpg)
 
