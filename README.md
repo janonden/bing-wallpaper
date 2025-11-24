@@ -1,3 +1,7 @@
+#### 20251125 罗马的特雷维喷泉, 意大利 (© Nico De Pasquale Photography/Getty Images)
+
+![](images/2025-11/20251125_TreviFountain_1920x1080.jpg)
+
 #### 20251124 Gwalior Fort, Madhya Pradesh, India (© ImagesofIndia/Shutterstock)
 
 ![](images/2025-11/20251124_GwailorFort_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20251117 Forêt de mélèzes dorés, Alpes (© Jose Manuel Perez/Getty Images)
 
 ![](images/2025-11/20251117_AlpesAutumn_1920x1080.jpg)
-
-#### 20251116 A traboule in Lyon, France (© TPopova/Getty Images)
-
-![](images/2025-11/20251116_LyonTraboules_1920x1080.jpg)
 
 
 

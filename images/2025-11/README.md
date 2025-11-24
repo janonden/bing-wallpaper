@@ -1,3 +1,7 @@
+#### 20251125 罗马的特雷维喷泉, 意大利 (© Nico De Pasquale Photography/Getty Images)
+
+![](20251125_TreviFountain_1920x1080.jpg)
+
 #### 20251124 Gwalior Fort, Madhya Pradesh, India (© ImagesofIndia/Shutterstock)
 
 ![](20251124_GwailorFort_1920x1080.jpg)
