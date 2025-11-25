@@ -2,6 +2,10 @@
 
 ![](images/2025-11/20251125_TreviFountain_1920x1080.jpg)
 
+#### 20251125 Weihnachtsmarkt Erfurt, Thüringen (© Jareck/Getty Images)
+
+![](images/2025-11/20251125_ErfurtChristmas_1920x1080.jpg)
+
 #### 20251124 Gwalior Fort, Madhya Pradesh, India (© ImagesofIndia/Shutterstock)
 
 ![](images/2025-11/20251124_GwailorFort_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20251117 Europäischer Uhu auf einem herbstlichen Baumstamm, Deutschland (© Ondrej Prosicky/Shutterstock)
 
 ![](images/2025-11/20251117_GermanyOwl_1920x1080.jpg)
-
-#### 20251117 Forêt de mélèzes dorés, Alpes (© Jose Manuel Perez/Getty Images)
-
-![](images/2025-11/20251117_AlpesAutumn_1920x1080.jpg)
 
 
 
