@@ -1,3 +1,11 @@
+#### 20251126 玉川温泉, 秋田県 仙北市 (© jiraphoto/Shutterstock)
+
+![](20251126_TamagawaHotspring_1920x1080.jpg)
+
+#### 20251126 特拉蒙塔纳山脉的橄榄园, 马略卡岛, 巴利阿里群岛, 西班牙 (© cinoby/Getty Images)
+
+![](20251126_OliveGrove_1920x1080.jpg)
+
 #### 20251125 The Trevi Fountain in Rome, Italy (© Nico De Pasquale Photography/Getty Images)
 
 ![](20251125_TreviFountain_1920x1080.jpg)

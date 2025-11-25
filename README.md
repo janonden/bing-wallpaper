@@ -1,3 +1,11 @@
+#### 20251126 玉川温泉, 秋田県 仙北市 (© jiraphoto/Shutterstock)
+
+![](images/2025-11/20251126_TamagawaHotspring_1920x1080.jpg)
+
+#### 20251126 特拉蒙塔纳山脉的橄榄园, 马略卡岛, 巴利阿里群岛, 西班牙 (© cinoby/Getty Images)
+
+![](images/2025-11/20251126_OliveGrove_1920x1080.jpg)
+
 #### 20251125 The Trevi Fountain in Rome, Italy (© Nico De Pasquale Photography/Getty Images)
 
 ![](images/2025-11/20251125_TreviFountain_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20251117 Fall colors in Shenandoah National Park, Virginia (© Michael Ver Sprill/Getty Images)
 
 ![](images/2025-11/20251117_ShenandoahTrail_1920x1080.jpg)
-
-#### 20251117 Red fox, Canada (© RT-Images/Getty Images)
-
-![](images/2025-11/20251117_RedFoxVulpes_1920x1080.jpg)
-
-#### 20251117 Europäischer Uhu auf einem herbstlichen Baumstamm, Deutschland (© Ondrej Prosicky/Shutterstock)
-
-![](images/2025-11/20251117_GermanyOwl_1920x1080.jpg)
 
 
 
