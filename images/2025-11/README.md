@@ -1,4 +1,4 @@
-#### 20251125 罗马的特雷维喷泉, 意大利 (© Nico De Pasquale Photography/Getty Images)
+#### 20251125 The Trevi Fountain in Rome, Italy (© Nico De Pasquale Photography/Getty Images)
 
 ![](20251125_TreviFountain_1920x1080.jpg)
 
