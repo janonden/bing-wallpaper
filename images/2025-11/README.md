@@ -1,3 +1,7 @@
+#### 20251127 伊斯特本码头, 东萨塞克斯郡, 英格兰 (© Tolga_TEZCAN/Getty Images)
+
+![](20251127_PierOfEastbourne_1920x1080.jpg)
+
 #### 20251126 玉川温泉, 秋田県 仙北市 (© jiraphoto/Shutterstock)
 
 ![](20251126_TamagawaHotspring_1920x1080.jpg)

@@ -1,3 +1,7 @@
+#### 20251127 伊斯特本码头, 东萨塞克斯郡, 英格兰 (© Tolga_TEZCAN/Getty Images)
+
+![](images/2025-11/20251127_PierOfEastbourne_1920x1080.jpg)
+
 #### 20251126 玉川温泉, 秋田県 仙北市 (© jiraphoto/Shutterstock)
 
 ![](images/2025-11/20251126_TamagawaHotspring_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20251119 Hungarian Parliament Building, Budapest, Hungary (© Alexander Spatari/Getty Images)
 
 ![](images/2025-11/20251119_BudapestParliament_1920x1080.jpg)
-
-#### 20251118 Male hooded merganser, Oregon (© Eric Vogt/TANDEM Stills + Motion)
-
-![](images/2025-11/20251118_AutumnMerganser_1920x1080.jpg)
 
 
 
