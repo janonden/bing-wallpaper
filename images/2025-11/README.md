@@ -2,7 +2,7 @@
 
 ![](20251126_TamagawaHotspring_1920x1080.jpg)
 
-#### 20251126 特拉蒙塔纳山脉的橄榄园, 马略卡岛, 巴利阿里群岛, 西班牙 (© cinoby/Getty Images)
+#### 20251126 Olive orchard in the Serra de Tramuntana, Mallorca, Balearic Islands, Spain (© cinoby/Getty Images)
 
 ![](20251126_OliveGrove_1920x1080.jpg)
 
