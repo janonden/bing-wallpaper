@@ -6,6 +6,10 @@
 
 ![](20251126_OliveGrove_1920x1080.jpg)
 
+#### 20251126 Décorations artisanales d’un marché de Noël (© 31etc/Adobe Stock)
+
+![](20251126_HandmadeMarket_1920x1080.jpg)
+
 #### 20251125 The Trevi Fountain in Rome, Italy (© Nico De Pasquale Photography/Getty Images)
 
 ![](20251125_TreviFountain_1920x1080.jpg)

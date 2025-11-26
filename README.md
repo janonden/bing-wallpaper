@@ -6,6 +6,10 @@
 
 ![](images/2025-11/20251126_OliveGrove_1920x1080.jpg)
 
+#### 20251126 Décorations artisanales d’un marché de Noël (© 31etc/Adobe Stock)
+
+![](images/2025-11/20251126_HandmadeMarket_1920x1080.jpg)
+
 #### 20251125 The Trevi Fountain in Rome, Italy (© Nico De Pasquale Photography/Getty Images)
 
 ![](images/2025-11/20251125_TreviFountain_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20251118 Male hooded merganser, Oregon (© Eric Vogt/TANDEM Stills + Motion)
 
 ![](images/2025-11/20251118_AutumnMerganser_1920x1080.jpg)
-
-#### 20251117 Fall colors in Shenandoah National Park, Virginia (© Michael Ver Sprill/Getty Images)
-
-![](images/2025-11/20251117_ShenandoahTrail_1920x1080.jpg)
 
 
 
