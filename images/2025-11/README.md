@@ -1,3 +1,7 @@
+#### 20251128 瓦尔·布兰德特, 布雷西亚, 伦巴第大区, 意大利 (© ClickAlps/Alamy)
+
+![](20251128_InvernoItalia_1920x1080.jpg)
+
 #### 20251127 Male wild turkey plumage, Aransas Natural Wildlife Refuge, Texas (© George McCarthy/Minden Pictures)
 
 ![](20251127_TurkeyDetail_1920x1080.jpg)

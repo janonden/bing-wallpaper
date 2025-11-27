@@ -1,3 +1,7 @@
+#### 20251128 瓦尔·布兰德特, 布雷西亚, 伦巴第大区, 意大利 (© ClickAlps/Alamy)
+
+![](images/2025-11/20251128_InvernoItalia_1920x1080.jpg)
+
 #### 20251127 Male wild turkey plumage, Aransas Natural Wildlife Refuge, Texas (© George McCarthy/Minden Pictures)
 
 ![](images/2025-11/20251127_TurkeyDetail_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20251120 Artist Saype poses with his land art painting at UN Headquarters, Geneva, Switzerland (© Valentin Flauraud/EPA-EFE/Shutterstock)
 
 ![](images/2025-11/20251120_SaypeGeneva_1920x1080.jpg)
-
-#### 20251120 查帕达迪亚曼蒂纳国家公园，巴伊亚州，巴西 (© Marcio Dufranc/Getty Images)
-
-![](images/2025-11/20251120_PondCave_1920x1080.jpg)
 
 
 
