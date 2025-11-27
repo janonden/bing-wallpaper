@@ -1,3 +1,7 @@
+#### 20251127 Male wild turkey plumage, Aransas Natural Wildlife Refuge, Texas (© George McCarthy/Minden Pictures)
+
+![](images/2025-11/20251127_TurkeyDetail_1920x1080.jpg)
+
 #### 20251127 伊斯特本码头, 东萨塞克斯郡, 英格兰 (© Tolga_TEZCAN/Getty Images)
 
 ![](images/2025-11/20251127_PierOfEastbourne_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20251120 查帕达迪亚曼蒂纳国家公园，巴伊亚州，巴西 (© Marcio Dufranc/Getty Images)
 
 ![](images/2025-11/20251120_PondCave_1920x1080.jpg)
-
-#### 20251119 Hungarian Parliament Building, Budapest, Hungary (© Alexander Spatari/Getty Images)
-
-![](images/2025-11/20251119_BudapestParliament_1920x1080.jpg)
 
 
 
