@@ -2,6 +2,10 @@
 
 ![](20251128_InvernoItalia_1920x1080.jpg)
 
+#### 20251128 Collection of silver Native American concho belts, Santa Fe, New Mexico (© julien mcroberts/Shutterstock)
+
+![](20251128_ConchaBelt_1920x1080.jpg)
+
 #### 20251127 Male wild turkey plumage, Aransas Natural Wildlife Refuge, Texas (© George McCarthy/Minden Pictures)
 
 ![](20251127_TurkeyDetail_1920x1080.jpg)

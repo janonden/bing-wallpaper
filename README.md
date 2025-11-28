@@ -2,6 +2,10 @@
 
 ![](images/2025-11/20251128_InvernoItalia_1920x1080.jpg)
 
+#### 20251128 Collection of silver Native American concho belts, Santa Fe, New Mexico (© julien mcroberts/Shutterstock)
+
+![](images/2025-11/20251128_ConchaBelt_1920x1080.jpg)
+
 #### 20251127 Male wild turkey plumage, Aransas Natural Wildlife Refuge, Texas (© George McCarthy/Minden Pictures)
 
 ![](images/2025-11/20251127_TurkeyDetail_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20251121 Harbor seals at Robert Moses State Park, Long Island, New York (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)
 
 ![](images/2025-11/20251121_SealWaving_1920x1080.jpg)
-
-#### 20251120 Artist Saype poses with his land art painting at UN Headquarters, Geneva, Switzerland (© Valentin Flauraud/EPA-EFE/Shutterstock)
-
-![](images/2025-11/20251120_SaypeGeneva_1920x1080.jpg)
 
 
 
