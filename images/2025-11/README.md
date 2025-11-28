@@ -1,3 +1,7 @@
+#### 20251129 荷兰梵高国家森林公园的马鹿雄鹿, 荷兰 (© CreativeNature_nl/Getty Images)
+
+![](20251129_DeerVeluwe_1920x1080.jpg)
+
 #### 20251128 瓦尔·布兰德特, 布雷西亚, 伦巴第大区, 意大利 (© ClickAlps/Alamy)
 
 ![](20251128_InvernoItalia_1920x1080.jpg)
