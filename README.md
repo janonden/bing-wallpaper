@@ -1,3 +1,7 @@
+#### 20251130 莱比锡圣诞集市, 德国 (© Krzysztof Baranowski/Getty Images)
+
+![](images/2025-11/20251130_LeipzigMarket_1920x1080.jpg)
+
 #### 20251129 Red deer stag in De Hoge Veluwe National Park, Netherlands (© CreativeNature_nl/Getty Images)
 
 ![](images/2025-11/20251129_DeerVeluwe_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20251122 Leshan Giant Buddha, Sichuan, China (© www.anotherdayattheoffice.org/Getty Images)
 
 ![](images/2025-11/20251122_LeshanBuddha_1920x1080.jpg)
-
-#### 20251122 兼六園, 石川県 金沢市 (© Darby Sawchuk/Alamy)
-
-![](images/2025-11/20251122_Kenrokuen_1920x1080.jpg)
 
 
 

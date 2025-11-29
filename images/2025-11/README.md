@@ -1,3 +1,7 @@
+#### 20251130 莱比锡圣诞集市, 德国 (© Krzysztof Baranowski/Getty Images)
+
+![](20251130_LeipzigMarket_1920x1080.jpg)
+
 #### 20251129 Red deer stag in De Hoge Veluwe National Park, Netherlands (© CreativeNature_nl/Getty Images)
 
 ![](20251129_DeerVeluwe_1920x1080.jpg)
