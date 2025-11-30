@@ -1,3 +1,7 @@
+#### 20251201 冰山上天然形成的拱门, 南极洲 (© Gabrielle/Adobe Stock)
+
+![](images/2025-12/20251201_AntarcticArch_1920x1080.jpg)
+
 #### 20251130 Christmas market in Leipzig, Germany (© Krzysztof Baranowski/Getty Images)
 
 ![](images/2025-11/20251130_LeipzigMarket_1920x1080.jpg)
@@ -54,10 +58,6 @@
 
 ![](images/2025-11/20251123_MadgascarAmmonite_1920x1080.jpg)
 
-#### 20251122 Leshan Giant Buddha, Sichuan, China (© www.anotherdayattheoffice.org/Getty Images)
-
-![](images/2025-11/20251122_LeshanBuddha_1920x1080.jpg)
-
 
 
 
@@ -66,7 +66,7 @@
 
 
 
-- 2025&emsp;&emsp;[11](images/2025-11/README.md) &emsp;&emsp;[10](images/2025-10/README.md) &emsp;&emsp;[09](images/2025-09/README.md) &emsp;&emsp;[08](images/2025-08/README.md) &emsp;&emsp;[07](images/2025-07/README.md) &emsp;&emsp;[06](images/2025-06/README.md) &emsp;&emsp;[05](images/2025-05/README.md) &emsp;&emsp;[04](images/2025-04/README.md) &emsp;&emsp;[03](images/2025-03/README.md) &emsp;&emsp;[02](images/2025-02/README.md) &emsp;&emsp;[01](images/2025-01/README.md) 
+- 2025&emsp;&emsp;[12](images/2025-12/README.md) &emsp;&emsp;[11](images/2025-11/README.md) &emsp;&emsp;[10](images/2025-10/README.md) &emsp;&emsp;[09](images/2025-09/README.md) &emsp;&emsp;[08](images/2025-08/README.md) &emsp;&emsp;[07](images/2025-07/README.md) &emsp;&emsp;[06](images/2025-06/README.md) &emsp;&emsp;[05](images/2025-05/README.md) &emsp;&emsp;[04](images/2025-04/README.md) &emsp;&emsp;[03](images/2025-03/README.md) &emsp;&emsp;[02](images/2025-02/README.md) &emsp;&emsp;[01](images/2025-01/README.md) 
 
 - 2024&emsp;&emsp;[12](https://github.com/janonden/bing-wallpaper/blob/2024/images/2024-12/README.md) &emsp;&emsp;[11](https://github.com/janonden/bing-wallpaper/blob/2024/images/2024-11/README.md) &emsp;&emsp;[10](https://github.com/janonden/bing-wallpaper/blob/2024/images/2024-10/README.md) &emsp;&emsp;[09](https://github.com/janonden/bing-wallpaper/blob/2024/images/2024-09/README.md) &emsp;&emsp;[08](https://github.com/janonden/bing-wallpaper/blob/2024/images/2024-08/README.md) &emsp;&emsp;[07](https://github.com/janonden/bing-wallpaper/blob/2024/images/2024-07/README.md) &emsp;&emsp;[06](https://github.com/janonden/bing-wallpaper/blob/2024/images/2024-06/README.md) &emsp;&emsp;[05](https://github.com/janonden/bing-wallpaper/blob/2024/images/2024-05/README.md) &emsp;&emsp;[04](https://github.com/janonden/bing-wallpaper/blob/2024/images/2024-04/README.md) &emsp;&emsp;[03](https://github.com/janonden/bing-wallpaper/blob/2024/images/2024-03/README.md) &emsp;&emsp;[02](https://github.com/janonden/bing-wallpaper/blob/2024/images/2024-02/README.md) &emsp;&emsp;[01](https://github.com/janonden/bing-wallpaper/blob/2024/images/2024-01/README.md) 
 
