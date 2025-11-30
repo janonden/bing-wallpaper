@@ -1,4 +1,4 @@
-#### 20251130 莱比锡圣诞集市, 德国 (© Krzysztof Baranowski/Getty Images)
+#### 20251130 Christmas market in Leipzig, Germany (© Krzysztof Baranowski/Getty Images)
 
 ![](20251130_LeipzigMarket_1920x1080.jpg)
 
