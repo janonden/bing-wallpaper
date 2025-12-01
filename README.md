@@ -1,3 +1,7 @@
+#### 20251202 柳树湖与布莱克本山, 兰格尔－圣伊利亚斯国家公园暨保护区, 阿拉斯加州, 美国 (© Patrick J. Endres/Getty Images)
+
+![](images/2025-12/20251202_WillowLake_1920x1080.jpg)
+
 #### 20251201 Natural arch carved in an iceberg, Antarctica (© Gabrielle/Adobe Stock)
 
 ![](images/2025-12/20251201_AntarcticArch_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20251124 Gwalior Fort, Madhya Pradesh, India (© ImagesofIndia/Shutterstock)
 
 ![](images/2025-11/20251124_GwailorFort_1920x1080.jpg)
-
-#### 20251123 Monte Sirente, Abruzzo, Italy (© ValerioMei/Getty Images)
-
-![](images/2025-11/20251123_MonteVelino_1920x1080.jpg)
 
 
 
