@@ -2,6 +2,10 @@
 
 ![](images/2025-12/20251201_AntarcticArch_1920x1080.jpg)
 
+#### 20251201 Adventskalendersäckchen mit süßen Überraschungen (© wideonet/Getty Images)
+
+![](images/2025-12/20251201_AdventcalendarGermany_1920x1080.jpg)
+
 #### 20251130 Christmas market in Leipzig, Germany (© Krzysztof Baranowski/Getty Images)
 
 ![](images/2025-11/20251130_LeipzigMarket_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20251123 Monte Sirente, Abruzzo, Italy (© ValerioMei/Getty Images)
 
 ![](images/2025-11/20251123_MonteVelino_1920x1080.jpg)
-
-#### 20251123 Ammonite fossil from Madagascar (© ThomasLENNE/Shutterstock)
-
-![](images/2025-11/20251123_MadgascarAmmonite_1920x1080.jpg)
 
 
 
