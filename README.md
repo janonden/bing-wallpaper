@@ -1,3 +1,11 @@
+#### 20251203 秩父夜祭の屋台, 埼玉県 秩父市 (© Joshua Hawley/Alamy)
+
+![](images/2025-12/20251203_ChichibuNightFestival_1920x1080.jpg)
+
+#### 20251203 日出时的沙丘鹤, ‌阿帕奇森林国家野生动物保护区, 新墨西哥州, 美国 (© Jack Dykinga/Minden Pictures)
+
+![](images/2025-12/20251203_BosqueCranes_1920x1080.jpg)
+
 #### 20251202 Willow Lake and Mount Blackburn, Wrangell-St. Elias National Park and Preserve, Alaska (© Patrick J. Endres/Getty Images)
 
 ![](images/2025-12/20251202_WillowLake_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20251126 Décorations artisanales d’un marché de Noël (© 31etc/Adobe Stock)
 
 ![](images/2025-11/20251126_HandmadeMarket_1920x1080.jpg)
-
-#### 20251125 The Trevi Fountain in Rome, Italy (© Nico De Pasquale Photography/Getty Images)
-
-![](images/2025-11/20251125_TreviFountain_1920x1080.jpg)
-
-#### 20251125 Weihnachtsmarkt Erfurt, Thüringen (© Jareck/Getty Images)
-
-![](images/2025-11/20251125_ErfurtChristmas_1920x1080.jpg)
 
 
 
