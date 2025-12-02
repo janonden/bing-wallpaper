@@ -46,6 +46,10 @@
 
 ![](images/2025-11/20251127_PierOfEastbourne_1920x1080.jpg)
 
+#### 20251127 楽山大仏, 中国 四川省 (© www.anotherdayattheoffice.org/Getty Images)
+
+![](images/2025-11/20251127_LeshanBuddha_1920x1080.jpg)
+
 #### 20251126 玉川温泉, 秋田県 仙北市 (© jiraphoto/Shutterstock)
 
 ![](images/2025-11/20251126_TamagawaHotspring_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20251126 Olive orchard in the Serra de Tramuntana, Mallorca, Balearic Islands, Spain (© cinoby/Getty Images)
 
 ![](images/2025-11/20251126_OliveGrove_1920x1080.jpg)
-
-#### 20251126 Décorations artisanales d’un marché de Noël (© 31etc/Adobe Stock)
-
-![](images/2025-11/20251126_HandmadeMarket_1920x1080.jpg)
 
 
 

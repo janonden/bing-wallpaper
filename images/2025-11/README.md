@@ -22,6 +22,10 @@
 
 ![](20251127_PierOfEastbourne_1920x1080.jpg)
 
+#### 20251127 楽山大仏, 中国 四川省 (© www.anotherdayattheoffice.org/Getty Images)
+
+![](20251127_LeshanBuddha_1920x1080.jpg)
+
 #### 20251126 玉川温泉, 秋田県 仙北市 (© jiraphoto/Shutterstock)
 
 ![](20251126_TamagawaHotspring_1920x1080.jpg)
