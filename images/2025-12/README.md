@@ -1,3 +1,7 @@
+#### 20251204 马赛马拉国家保护区的猎豹, 纳罗克, 肯尼亚 (© Andy Rouse/naturepl.com)
+
+![](20251204_CheetahMound_1920x1080.jpg)
+
 #### 20251203 秩父夜祭の屋台, 埼玉県 秩父市 (© Joshua Hawley/Alamy)
 
 ![](20251203_ChichibuNightFestival_1920x1080.jpg)

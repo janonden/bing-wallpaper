@@ -1,3 +1,7 @@
+#### 20251204 马赛马拉国家保护区的猎豹, 纳罗克, 肯尼亚 (© Andy Rouse/naturepl.com)
+
+![](images/2025-12/20251204_CheetahMound_1920x1080.jpg)
+
 #### 20251203 秩父夜祭の屋台, 埼玉県 秩父市 (© Joshua Hawley/Alamy)
 
 ![](images/2025-12/20251203_ChichibuNightFestival_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20251126 玉川温泉, 秋田県 仙北市 (© jiraphoto/Shutterstock)
 
 ![](images/2025-11/20251126_TamagawaHotspring_1920x1080.jpg)
-
-#### 20251126 Olive orchard in the Serra de Tramuntana, Mallorca, Balearic Islands, Spain (© cinoby/Getty Images)
-
-![](images/2025-11/20251126_OliveGrove_1920x1080.jpg)
 
 
 
