@@ -2,7 +2,7 @@
 
 ![](images/2025-12/20251203_ChichibuNightFestival_1920x1080.jpg)
 
-#### 20251203 日出时的沙丘鹤, ‌阿帕奇森林国家野生动物保护区, 新墨西哥州, 美国 (© Jack Dykinga/Minden Pictures)
+#### 20251203 Sandhill cranes at sunrise, Bosque del Apache National Wildlife Refuge, New Mexico (© Jack Dykinga/Minden Pictures)
 
 ![](images/2025-12/20251203_BosqueCranes_1920x1080.jpg)
 
