@@ -1,3 +1,7 @@
+#### 20251205 科潘的玛雅遗址，洪都拉斯 (© diegograndi/Getty Images)
+
+![](20251205_CopanRuins_1920x1080.jpg)
+
 #### 20251204 Cheetah in Maasai Mara National Reserve, Narok, Kenya (© Andy Rouse/naturepl.com)
 
 ![](20251204_CheetahMound_1920x1080.jpg)

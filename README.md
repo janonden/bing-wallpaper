@@ -1,3 +1,7 @@
+#### 20251205 科潘的玛雅遗址，洪都拉斯 (© diegograndi/Getty Images)
+
+![](images/2025-12/20251205_CopanRuins_1920x1080.jpg)
+
 #### 20251204 Cheetah in Maasai Mara National Reserve, Narok, Kenya (© Andy Rouse/naturepl.com)
 
 ![](images/2025-12/20251204_CheetahMound_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20251127 楽山大仏, 中国 四川省 (© www.anotherdayattheoffice.org/Getty Images)
 
 ![](images/2025-11/20251127_LeshanBuddha_1920x1080.jpg)
-
-#### 20251126 玉川温泉, 秋田県 仙北市 (© jiraphoto/Shutterstock)
-
-![](images/2025-11/20251126_TamagawaHotspring_1920x1080.jpg)
 
 
 
