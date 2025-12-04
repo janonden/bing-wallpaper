@@ -1,4 +1,4 @@
-#### 20251204 马赛马拉国家保护区的猎豹, 纳罗克, 肯尼亚 (© Andy Rouse/naturepl.com)
+#### 20251204 Cheetah in Maasai Mara National Reserve, Narok, Kenya (© Andy Rouse/naturepl.com)
 
 ![](20251204_CheetahMound_1920x1080.jpg)
 
