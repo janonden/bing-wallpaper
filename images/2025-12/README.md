@@ -1,4 +1,4 @@
-#### 20251205 科潘的玛雅遗址，洪都拉斯 (© diegograndi/Getty Images)
+#### 20251205 Maya site of Copán, Honduras (© diegograndi/Getty Images)
 
 ![](20251205_CopanRuins_1920x1080.jpg)
 
