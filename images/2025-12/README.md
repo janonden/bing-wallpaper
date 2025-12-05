@@ -1,3 +1,7 @@
+#### 20251206 大沼泽地国家公园的蜘蛛网，佛罗里达州，美国 (© Troy Harrison/Getty Images)
+
+![](20251206_EvergladesSunrise_1920x1080.jpg)
+
 #### 20251205 Maya site of Copán, Honduras (© diegograndi/Getty Images)
 
 ![](20251205_CopanRuins_1920x1080.jpg)

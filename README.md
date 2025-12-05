@@ -1,3 +1,7 @@
+#### 20251206 大沼泽地国家公园的蜘蛛网，佛罗里达州，美国 (© Troy Harrison/Getty Images)
+
+![](images/2025-12/20251206_EvergladesSunrise_1920x1080.jpg)
+
 #### 20251205 Maya site of Copán, Honduras (© diegograndi/Getty Images)
 
 ![](images/2025-12/20251205_CopanRuins_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20251127 伊斯特本码头, 东萨塞克斯郡, 英格兰 (© Tolga_TEZCAN/Getty Images)
 
 ![](images/2025-11/20251127_PierOfEastbourne_1920x1080.jpg)
-
-#### 20251127 楽山大仏, 中国 四川省 (© www.anotherdayattheoffice.org/Getty Images)
-
-![](images/2025-11/20251127_LeshanBuddha_1920x1080.jpg)
 
 
 
