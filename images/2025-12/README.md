@@ -1,3 +1,11 @@
+#### 20251207 雪中的故宫，中国北京 (© Ian.CuiYi/Getty Images)
+
+![](20251207_TheGreatSnowY_1920x1080.jpg)
+
+#### 20251207 白馬三山の雪景色 (© Thirawatana Phaisalratana/Getty Images)
+
+![](20251207_Daxue_1920x1080.jpg)
+
 #### 20251206 Marché deNoël dans le quartier historique de la Petite France, Strasbourg, Alsace (© Alpineguide/Alamy)
 
 ![](20251206_StrasbourgNicolas_1920x1080.jpg)
