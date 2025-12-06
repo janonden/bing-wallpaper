@@ -1,3 +1,11 @@
+#### 20251206 Marché deNoël dans le quartier historique de la Petite France, Strasbourg, Alsace (© Alpineguide/Alamy)
+
+![](images/2025-12/20251206_StrasbourgNicolas_1920x1080.jpg)
+
+#### 20251206 Schokoladennikoläuse in einem Supermarktregal (© hydebrink/Shutterstock)
+
+![](images/2025-12/20251206_NicholasChocolate_1920x1080.jpg)
+
 #### 20251206 大沼泽地国家公园的蜘蛛网，佛罗里达州，美国 (© Troy Harrison/Getty Images)
 
 ![](images/2025-12/20251206_EvergladesSunrise_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20251128 Collection of silver Native American concho belts, Santa Fe, New Mexico (© julien mcroberts/Shutterstock)
 
 ![](images/2025-11/20251128_ConchaBelt_1920x1080.jpg)
-
-#### 20251127 Male wild turkey plumage, Aransas Natural Wildlife Refuge, Texas (© George McCarthy/Minden Pictures)
-
-![](images/2025-11/20251127_TurkeyDetail_1920x1080.jpg)
-
-#### 20251127 伊斯特本码头, 东萨塞克斯郡, 英格兰 (© Tolga_TEZCAN/Getty Images)
-
-![](images/2025-11/20251127_PierOfEastbourne_1920x1080.jpg)
 
 
 
