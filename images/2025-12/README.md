@@ -2,6 +2,10 @@
 
 ![](20251207_TheGreatSnowY_1920x1080.jpg)
 
+#### 20251207 Ein Kiefernwald im Elsass, Frankreich (© alekseystemmer/Getty Images)
+
+![](20251207_MistyPineForest_1920x1080.jpg)
+
 #### 20251207 白馬三山の雪景色 (© Thirawatana Phaisalratana/Getty Images)
 
 ![](20251207_Daxue_1920x1080.jpg)

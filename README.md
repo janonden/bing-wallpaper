@@ -2,6 +2,10 @@
 
 ![](images/2025-12/20251207_TheGreatSnowY_1920x1080.jpg)
 
+#### 20251207 Ein Kiefernwald im Elsass, Frankreich (© alekseystemmer/Getty Images)
+
+![](images/2025-12/20251207_MistyPineForest_1920x1080.jpg)
+
 #### 20251207 白馬三山の雪景色 (© Thirawatana Phaisalratana/Getty Images)
 
 ![](images/2025-12/20251207_Daxue_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20251130 Christmas market in Leipzig, Germany (© Krzysztof Baranowski/Getty Images)
 
 ![](images/2025-11/20251130_LeipzigMarket_1920x1080.jpg)
-
-#### 20251129 Red deer stag in De Hoge Veluwe National Park, Netherlands (© CreativeNature_nl/Getty Images)
-
-![](images/2025-11/20251129_DeerVeluwe_1920x1080.jpg)
 
 
 
