@@ -2,6 +2,10 @@
 
 ![](20251207_TheGreatSnowY_1920x1080.jpg)
 
+#### 20251207 USS Arizona Memorial, Pearl Harbor, Honolulu, Hawaii (© Jessica O. Blackwell/APFootage/Alamy)
+
+![](20251207_PearlHarborDay_1920x1080.jpg)
+
 #### 20251207 Ein Kiefernwald im Elsass, Frankreich (© alekseystemmer/Getty Images)
 
 ![](20251207_MistyPineForest_1920x1080.jpg)

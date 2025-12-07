@@ -2,6 +2,10 @@
 
 ![](images/2025-12/20251207_TheGreatSnowY_1920x1080.jpg)
 
+#### 20251207 USS Arizona Memorial, Pearl Harbor, Honolulu, Hawaii (© Jessica O. Blackwell/APFootage/Alamy)
+
+![](images/2025-12/20251207_PearlHarborDay_1920x1080.jpg)
+
 #### 20251207 Ein Kiefernwald im Elsass, Frankreich (© alekseystemmer/Getty Images)
 
 ![](images/2025-12/20251207_MistyPineForest_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20251201 Adventskalendersäckchen mit süßen Überraschungen (© wideonet/Getty Images)
 
 ![](images/2025-12/20251201_AdventcalendarGermany_1920x1080.jpg)
-
-#### 20251130 Christmas market in Leipzig, Germany (© Krzysztof Baranowski/Getty Images)
-
-![](images/2025-11/20251130_LeipzigMarket_1920x1080.jpg)
 
 
 
