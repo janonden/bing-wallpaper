@@ -1,3 +1,7 @@
+#### 20251208 多马索的建筑上的圣诞彩灯，科莫湖，意大利 (© Roberto Moiola/Getty Images)
+
+![](20251208_ComoChristmas_1920x1080.jpg)
+
 #### 20251207 雪中的故宫，中国北京 (© Ian.CuiYi/Getty Images)
 
 ![](20251207_TheGreatSnowY_1920x1080.jpg)

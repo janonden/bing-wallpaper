@@ -1,3 +1,7 @@
+#### 20251208 多马索的建筑上的圣诞彩灯，科莫湖，意大利 (© Roberto Moiola/Getty Images)
+
+![](images/2025-12/20251208_ComoChristmas_1920x1080.jpg)
+
 #### 20251207 雪中的故宫，中国北京 (© Ian.CuiYi/Getty Images)
 
 ![](images/2025-12/20251207_TheGreatSnowY_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20251201 Natural arch carved in an iceberg, Antarctica (© Gabrielle/Adobe Stock)
 
 ![](images/2025-12/20251201_AntarcticArch_1920x1080.jpg)
-
-#### 20251201 Adventskalendersäckchen mit süßen Überraschungen (© wideonet/Getty Images)
-
-![](images/2025-12/20251201_AdventcalendarGermany_1920x1080.jpg)
 
 
 
