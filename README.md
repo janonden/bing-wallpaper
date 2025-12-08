@@ -1,4 +1,4 @@
-#### 20251208 多马索的建筑上的圣诞彩灯，科莫湖，意大利 (© Roberto Moiola/Getty Images)
+#### 20251208 Christmas lights in Domaso, Lake Como, Italy (© Roberto Moiola/Getty Images)
 
 ![](images/2025-12/20251208_ComoChristmas_1920x1080.jpg)
 
