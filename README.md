@@ -1,3 +1,7 @@
+#### 20251209 原驼，北角，瓦尔德斯半岛, 阿根廷 (© Sylvain Cordier/naturepl.com)
+
+![](images/2025-12/20251209_LlamaDay_1920x1080.jpg)
+
 #### 20251208 Christmas lights in Domaso, Lake Como, Italy (© Roberto Moiola/Getty Images)
 
 ![](images/2025-12/20251208_ComoChristmas_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20251202 Whistler, British Columbia (© VisualCommunications/Getty Images)
 
 ![](images/2025-12/20251202_WhistlerVillage_1920x1080.jpg)
-
-#### 20251201 Natural arch carved in an iceberg, Antarctica (© Gabrielle/Adobe Stock)
-
-![](images/2025-12/20251201_AntarcticArch_1920x1080.jpg)
 
 
 

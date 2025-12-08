@@ -1,3 +1,7 @@
+#### 20251209 原驼，北角，瓦尔德斯半岛, 阿根廷 (© Sylvain Cordier/naturepl.com)
+
+![](20251209_LlamaDay_1920x1080.jpg)
+
 #### 20251208 Christmas lights in Domaso, Lake Como, Italy (© Roberto Moiola/Getty Images)
 
 ![](20251208_ComoChristmas_1920x1080.jpg)
