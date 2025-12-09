@@ -1,3 +1,7 @@
+#### 20251210 科尔多瓦清真寺大教堂的内部，安达卢西亚，西班牙 (© Elena Zolotova/Getty Images)
+
+![](20251210_CordobaCathedral_1920x1080.jpg)
+
 #### 20251209 Guanaco in Punta Norte, Argentina (© Sylvain Cordier/naturepl.com)
 
 ![](20251209_LlamaDay_1920x1080.jpg)

@@ -1,3 +1,7 @@
+#### 20251210 科尔多瓦清真寺大教堂的内部，安达卢西亚，西班牙 (© Elena Zolotova/Getty Images)
+
+![](images/2025-12/20251210_CordobaCathedral_1920x1080.jpg)
+
 #### 20251209 Guanaco in Punta Norte, Argentina (© Sylvain Cordier/naturepl.com)
 
 ![](images/2025-12/20251209_LlamaDay_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20251202 Willow Lake and Mount Blackburn, Wrangell-St. Elias National Park and Preserve, Alaska (© Patrick J. Endres/Getty Images)
 
 ![](images/2025-12/20251202_WillowLake_1920x1080.jpg)
-
-#### 20251202 Whistler, British Columbia (© VisualCommunications/Getty Images)
-
-![](images/2025-12/20251202_WhistlerVillage_1920x1080.jpg)
 
 
 
