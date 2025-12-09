@@ -1,4 +1,4 @@
-#### 20251209 原驼，北角，瓦尔德斯半岛, 阿根廷 (© Sylvain Cordier/naturepl.com)
+#### 20251209 Guanaco in Punta Norte, Argentina (© Sylvain Cordier/naturepl.com)
 
 ![](images/2025-12/20251209_LlamaDay_1920x1080.jpg)
 
