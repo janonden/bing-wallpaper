@@ -1,3 +1,7 @@
+#### 20251211 从伦佐拉山口眺望珠穆朗玛峰日落时分的峰顶，尼泊尔 (© shoults/Alamy)
+
+![](images/2025-12/20251211_EverestGlow_1920x1080.jpg)
+
 #### 20251211 Castle of Rocca Calascio, Abruzzo, Italy (© carlo alberto conti/Getty Images)
 
 ![](images/2025-12/20251211_CastleAbruzzo_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20251203 秩父夜祭の屋台, 埼玉県 秩父市 (© Joshua Hawley/Alamy)
 
 ![](images/2025-12/20251203_ChichibuNightFestival_1920x1080.jpg)
-
-#### 20251203 Sandhill cranes at sunrise, Bosque del Apache National Wildlife Refuge, New Mexico (© Jack Dykinga/Minden Pictures)
-
-![](images/2025-12/20251203_BosqueCranes_1920x1080.jpg)
 
 
 

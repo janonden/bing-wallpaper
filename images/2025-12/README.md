@@ -1,3 +1,7 @@
+#### 20251211 从伦佐拉山口眺望珠穆朗玛峰日落时分的峰顶，尼泊尔 (© shoults/Alamy)
+
+![](20251211_EverestGlow_1920x1080.jpg)
+
 #### 20251211 Castle of Rocca Calascio, Abruzzo, Italy (© carlo alberto conti/Getty Images)
 
 ![](20251211_CastleAbruzzo_1920x1080.jpg)
