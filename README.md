@@ -1,4 +1,8 @@
-#### 20251210 科尔多瓦清真寺大教堂的内部，安达卢西亚，西班牙 (© Elena Zolotova/Getty Images)
+#### 20251211 Castle of Rocca Calascio, Abruzzo, Italy (© carlo alberto conti/Getty Images)
+
+![](images/2025-12/20251211_CastleAbruzzo_1920x1080.jpg)
+
+#### 20251210 Interior of the Mosque-Cathedral of Córdoba, Andalusia, Spain (© Elena Zolotova/Getty Images)
 
 ![](images/2025-12/20251210_CordobaCathedral_1920x1080.jpg)
 
@@ -53,10 +57,6 @@
 #### 20251203 Sandhill cranes at sunrise, Bosque del Apache National Wildlife Refuge, New Mexico (© Jack Dykinga/Minden Pictures)
 
 ![](images/2025-12/20251203_BosqueCranes_1920x1080.jpg)
-
-#### 20251202 Willow Lake and Mount Blackburn, Wrangell-St. Elias National Park and Preserve, Alaska (© Patrick J. Endres/Getty Images)
-
-![](images/2025-12/20251202_WillowLake_1920x1080.jpg)
 
 
 
