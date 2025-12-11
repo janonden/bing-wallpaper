@@ -1,4 +1,4 @@
-#### 20251211 从伦佐拉山口眺望珠穆朗玛峰日落时分的峰顶，尼泊尔 (© shoults/Alamy)
+#### 20251211 Summit of Mount Everest at sunset, seen from Renjo La, Nepal (© shoults/Alamy)
 
 ![](images/2025-12/20251211_EverestGlow_1920x1080.jpg)
 
