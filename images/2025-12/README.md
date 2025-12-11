@@ -1,3 +1,7 @@
+#### 20251212 有斑点的一品红 (© DigiPub/Getty Images)
+
+![](20251212_SpeckledPoinsettia_1920x1080.jpg)
+
 #### 20251211 Summit of Mount Everest at sunset, seen from Renjo La, Nepal (© shoults/Alamy)
 
 ![](20251211_EverestGlow_1920x1080.jpg)

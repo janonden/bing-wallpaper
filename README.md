@@ -1,3 +1,7 @@
+#### 20251212 有斑点的一品红 (© DigiPub/Getty Images)
+
+![](images/2025-12/20251212_SpeckledPoinsettia_1920x1080.jpg)
+
 #### 20251211 Summit of Mount Everest at sunset, seen from Renjo La, Nepal (© shoults/Alamy)
 
 ![](images/2025-12/20251211_EverestGlow_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20251204 Cheetah in Maasai Mara National Reserve, Narok, Kenya (© Andy Rouse/naturepl.com)
 
 ![](images/2025-12/20251204_CheetahMound_1920x1080.jpg)
-
-#### 20251203 秩父夜祭の屋台, 埼玉県 秩父市 (© Joshua Hawley/Alamy)
-
-![](images/2025-12/20251203_ChichibuNightFestival_1920x1080.jpg)
 
 
 
