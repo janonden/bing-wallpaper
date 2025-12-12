@@ -1,3 +1,7 @@
+#### 20251213 默塞德河, 优胜美地国家公园, 加利福尼亚, 美国 (© Ron and Patty Thomas/Getty Images)
+
+![](images/2025-12/20251213_YosemiteWinter_1920x1080.jpg)
+
 #### 20251212 Illuminated Capilano Suspension Bridge Park, Vancouver, British Columbia (© Brian Caissie/Getty Images)
 
 ![](images/2025-12/20251212_SuspensionLights_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20251206 Spider webs in Everglades National Park, Florida (© Troy Harrison/Getty Images)
 
 ![](images/2025-12/20251206_EvergladesSunrise_1920x1080.jpg)
-
-#### 20251205 Maya site of Copán, Honduras (© diegograndi/Getty Images)
-
-![](images/2025-12/20251205_CopanRuins_1920x1080.jpg)
 
 
 
