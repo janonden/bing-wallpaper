@@ -1,4 +1,8 @@
-#### 20251212 有斑点的一品红 (© DigiPub/Getty Images)
+#### 20251212 Illuminated Capilano Suspension Bridge Park, Vancouver, British Columbia (© Brian Caissie/Getty Images)
+
+![](images/2025-12/20251212_SuspensionLights_1920x1080.jpg)
+
+#### 20251212 Spotted poinsettia (© DigiPub/Getty Images)
 
 ![](images/2025-12/20251212_SpeckledPoinsettia_1920x1080.jpg)
 
@@ -53,10 +57,6 @@
 #### 20251205 Maya site of Copán, Honduras (© diegograndi/Getty Images)
 
 ![](images/2025-12/20251205_CopanRuins_1920x1080.jpg)
-
-#### 20251204 Cheetah in Maasai Mara National Reserve, Narok, Kenya (© Andy Rouse/naturepl.com)
-
-![](images/2025-12/20251204_CheetahMound_1920x1080.jpg)
 
 
 
