@@ -1,4 +1,4 @@
-#### 20251213 默塞德河, 优胜美地国家公园, 加利福尼亚, 美国 (© Ron and Patty Thomas/Getty Images)
+#### 20251213 Merced River, Yosemite National Park, California (© Ron and Patty Thomas/Getty Images)
 
 ![](images/2025-12/20251213_YosemiteWinter_1920x1080.jpg)
 
