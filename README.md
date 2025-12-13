@@ -1,3 +1,7 @@
+#### 20251214 簇山雀栖息在松枝上, 马萨诸塞州, 美国 (© Tim Laman/NPL/Minden Pictures)
+
+![](images/2025-12/20251214_TuftedTitmouse_1920x1080.jpg)
+
 #### 20251213 Merced River, Yosemite National Park, California (© Ron and Patty Thomas/Getty Images)
 
 ![](images/2025-12/20251213_YosemiteWinter_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20251206 Marché deNoël dans le quartier historique de la Petite France, Strasbourg, Alsace (© Alpineguide/Alamy)
 
 ![](images/2025-12/20251206_StrasbourgNicolas_1920x1080.jpg)
-
-#### 20251206 Schokoladennikoläuse in einem Supermarktregal (© hydebrink/Shutterstock)
-
-![](images/2025-12/20251206_NicholasChocolate_1920x1080.jpg)
 
 
 

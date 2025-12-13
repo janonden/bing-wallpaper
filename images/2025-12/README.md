@@ -1,3 +1,7 @@
+#### 20251214 簇山雀栖息在松枝上, 马萨诸塞州, 美国 (© Tim Laman/NPL/Minden Pictures)
+
+![](20251214_TuftedTitmouse_1920x1080.jpg)
+
 #### 20251213 Merced River, Yosemite National Park, California (© Ron and Patty Thomas/Getty Images)
 
 ![](20251213_YosemiteWinter_1920x1080.jpg)
