@@ -2,6 +2,10 @@
 
 ![](20251213_YosemiteWinter_1920x1080.jpg)
 
+#### 20251213 Vue sur un village de montagne illuminé, France (© Dario Berardi/500px)
+
+![](20251213_RacletteDay_1920x1080.jpg)
+
 #### 20251212 Illuminated Capilano Suspension Bridge Park, Vancouver, British Columbia (© Brian Caissie/Getty Images)
 
 ![](20251212_SuspensionLights_1920x1080.jpg)

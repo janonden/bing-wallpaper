@@ -2,6 +2,10 @@
 
 ![](images/2025-12/20251213_YosemiteWinter_1920x1080.jpg)
 
+#### 20251213 Vue sur un village de montagne illuminé, France (© Dario Berardi/500px)
+
+![](images/2025-12/20251213_RacletteDay_1920x1080.jpg)
+
 #### 20251212 Illuminated Capilano Suspension Bridge Park, Vancouver, British Columbia (© Brian Caissie/Getty Images)
 
 ![](images/2025-12/20251212_SuspensionLights_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20251206 Schokoladennikoläuse in einem Supermarktregal (© hydebrink/Shutterstock)
 
 ![](images/2025-12/20251206_NicholasChocolate_1920x1080.jpg)
-
-#### 20251206 Spider webs in Everglades National Park, Florida (© Troy Harrison/Getty Images)
-
-![](images/2025-12/20251206_EvergladesSunrise_1920x1080.jpg)
 
 
 
