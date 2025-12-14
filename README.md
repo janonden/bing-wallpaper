@@ -1,4 +1,4 @@
-#### 20251214 簇山雀栖息在松枝上, 马萨诸塞州, 美国 (© Tim Laman/NPL/Minden Pictures)
+#### 20251214 Tufted titmouse perched on pine boughs, Massachusetts (© Tim Laman/NPL/Minden Pictures)
 
 ![](images/2025-12/20251214_TuftedTitmouse_1920x1080.jpg)
 
