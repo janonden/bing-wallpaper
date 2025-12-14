@@ -1,3 +1,7 @@
+#### 20251215 斯皮格尔运河上的灯光装饰, 阿姆斯特丹, 荷兰 (© Amith Nag Photography/Getty Images)
+
+![](images/2025-12/20251215_AmsterdamLights_1920x1080.jpg)
+
 #### 20251214 Tufted titmouse perched on pine boughs, Massachusetts (© Tim Laman/NPL/Minden Pictures)
 
 ![](images/2025-12/20251214_TuftedTitmouse_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20251207 白馬三山の雪景色 (© Thirawatana Phaisalratana/Getty Images)
 
 ![](images/2025-12/20251207_Daxue_1920x1080.jpg)
-
-#### 20251206 Marché deNoël dans le quartier historique de la Petite France, Strasbourg, Alsace (© Alpineguide/Alamy)
-
-![](images/2025-12/20251206_StrasbourgNicolas_1920x1080.jpg)
 
 
 

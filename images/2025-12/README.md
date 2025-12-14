@@ -1,3 +1,7 @@
+#### 20251215 斯皮格尔运河上的灯光装饰, 阿姆斯特丹, 荷兰 (© Amith Nag Photography/Getty Images)
+
+![](20251215_AmsterdamLights_1920x1080.jpg)
+
 #### 20251214 Tufted titmouse perched on pine boughs, Massachusetts (© Tim Laman/NPL/Minden Pictures)
 
 ![](20251214_TuftedTitmouse_1920x1080.jpg)
