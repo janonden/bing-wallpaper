@@ -1,3 +1,7 @@
+#### 20251216 圣诞市场上的手工小矮人 (© Veronika Seppanen/Shutterstock)
+
+![](20251216_ChristmasGnomes_1920x1080.jpg)
+
 #### 20251215 Lights on Spiegelgracht canal, Amsterdam, Netherlands (© Amith Nag Photography/Getty Images)
 
 ![](20251215_AmsterdamLights_1920x1080.jpg)
