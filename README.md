@@ -1,4 +1,4 @@
-#### 20251215 斯皮格尔运河上的灯光装饰, 阿姆斯特丹, 荷兰 (© Amith Nag Photography/Getty Images)
+#### 20251215 Lights on Spiegelgracht canal, Amsterdam, Netherlands (© Amith Nag Photography/Getty Images)
 
 ![](images/2025-12/20251215_AmsterdamLights_1920x1080.jpg)
 
