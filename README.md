@@ -2,6 +2,10 @@
 
 ![](images/2025-12/20251217_PerugiaStreet_1920x1080.jpg)
 
+#### 20251217 在诺森伯兰郡的欧亚红松鼠, 英格兰 (© Michael_Conrad/Getty Images)
+
+![](images/2025-12/20251217_FrostySquirrel_1920x1080.jpg)
+
 #### 20251216 Handmade gnomes at a Christmas market (© Veronika Seppanen/Shutterstock)
 
 ![](images/2025-12/20251216_ChristmasGnomes_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20251207 雪中的故宫，中国北京 (© Ian.CuiYi/Getty Images)
 
 ![](images/2025-12/20251207_TheGreatSnowY_1920x1080.jpg)
-
-#### 20251207 USS Arizona Memorial, Pearl Harbor, Honolulu, Hawaii (© Jessica O. Blackwell/APFootage/Alamy)
-
-![](images/2025-12/20251207_PearlHarborDay_1920x1080.jpg)
 
 
 
