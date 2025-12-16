@@ -1,4 +1,8 @@
-#### 20251216 圣诞市场上的手工小矮人 (© Veronika Seppanen/Shutterstock)
+#### 20251217 Medieval Aqueduct, Perugia, Italy (© Sean Pavone/Getty Images)
+
+![](20251217_PerugiaStreet_1920x1080.jpg)
+
+#### 20251216 Handmade gnomes at a Christmas market (© Veronika Seppanen/Shutterstock)
 
 ![](20251216_ChristmasGnomes_1920x1080.jpg)
 
