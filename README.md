@@ -1,3 +1,7 @@
+#### 20251218 太阳神庙，圆顶礁国家公园, 犹他州, 美国 (© Austin Cronnelly/TANDEM Stills + Motion)
+
+![](images/2025-12/20251218_CathedralValley_1920x1080.jpg)
+
 #### 20251217 Medieval Aqueduct, Perugia, Italy (© Sean Pavone/Getty Images)
 
 ![](images/2025-12/20251217_PerugiaStreet_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20251208 Christmas lights in Domaso, Lake Como, Italy (© Roberto Moiola/Getty Images)
 
 ![](images/2025-12/20251208_ComoChristmas_1920x1080.jpg)
-
-#### 20251207 雪中的故宫，中国北京 (© Ian.CuiYi/Getty Images)
-
-![](images/2025-12/20251207_TheGreatSnowY_1920x1080.jpg)
 
 
 

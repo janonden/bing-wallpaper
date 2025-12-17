@@ -1,3 +1,7 @@
+#### 20251218 太阳神庙，圆顶礁国家公园, 犹他州, 美国 (© Austin Cronnelly/TANDEM Stills + Motion)
+
+![](20251218_CathedralValley_1920x1080.jpg)
+
 #### 20251217 Medieval Aqueduct, Perugia, Italy (© Sean Pavone/Getty Images)
 
 ![](20251217_PerugiaStreet_1920x1080.jpg)
