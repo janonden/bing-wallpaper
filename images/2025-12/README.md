@@ -2,7 +2,7 @@
 
 ![](20251217_PerugiaStreet_1920x1080.jpg)
 
-#### 20251217 在诺森伯兰郡的欧亚红松鼠, 英格兰 (© Michael_Conrad/Getty Images)
+#### 20251217 Eurasian red squirrel in Northumberland, England (© Michael_Conrad/Getty Images)
 
 ![](20251217_FrostySquirrel_1920x1080.jpg)
 
