@@ -1,3 +1,11 @@
+#### 20251218 Étoiles de Herrnhut, Allemagne (© artas/Getty Images)
+
+![](20251218_StarLanterns_1920x1080.jpg)
+
+#### 20251218 Schneebedecktes Feld bei Sonnenuntergang, Ostfriesland, Niedersachsen (© photo art/500px/Getty Images)
+
+![](20251218_OstfrieslandWinter_1920x1080.jpg)
+
 #### 20251218 太阳神庙，圆顶礁国家公园, 犹他州, 美国 (© Austin Cronnelly/TANDEM Stills + Motion)
 
 ![](20251218_CathedralValley_1920x1080.jpg)

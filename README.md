@@ -1,3 +1,11 @@
+#### 20251218 Étoiles de Herrnhut, Allemagne (© artas/Getty Images)
+
+![](images/2025-12/20251218_StarLanterns_1920x1080.jpg)
+
+#### 20251218 Schneebedecktes Feld bei Sonnenuntergang, Ostfriesland, Niedersachsen (© photo art/500px/Getty Images)
+
+![](images/2025-12/20251218_OstfrieslandWinter_1920x1080.jpg)
+
 #### 20251218 太阳神庙，圆顶礁国家公园, 犹他州, 美国 (© Austin Cronnelly/TANDEM Stills + Motion)
 
 ![](images/2025-12/20251218_CathedralValley_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20251210 Interior of the Mosque-Cathedral of Córdoba, Andalusia, Spain (© Elena Zolotova/Getty Images)
 
 ![](images/2025-12/20251210_CordobaCathedral_1920x1080.jpg)
-
-#### 20251209 Guanaco in Punta Norte, Argentina (© Sylvain Cordier/naturepl.com)
-
-![](images/2025-12/20251209_LlamaDay_1920x1080.jpg)
-
-#### 20251208 Christmas lights in Domaso, Lake Como, Italy (© Roberto Moiola/Getty Images)
-
-![](images/2025-12/20251208_ComoChristmas_1920x1080.jpg)
 
 
 
