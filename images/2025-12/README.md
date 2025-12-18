@@ -1,3 +1,7 @@
+#### 20251219 博尔米奥的雪景，伦巴第大区，意大利 (© Roberto Moiola/Getty Images)
+
+![](20251219_BormioItaly_1920x1080.jpg)
+
 #### 20251218 Étoiles de Herrnhut, Allemagne (© artas/Getty Images)
 
 ![](20251218_StarLanterns_1920x1080.jpg)

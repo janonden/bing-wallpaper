@@ -1,3 +1,7 @@
+#### 20251219 博尔米奥的雪景，伦巴第大区，意大利 (© Roberto Moiola/Getty Images)
+
+![](images/2025-12/20251219_BormioItaly_1920x1080.jpg)
+
 #### 20251218 Étoiles de Herrnhut, Allemagne (© artas/Getty Images)
 
 ![](images/2025-12/20251218_StarLanterns_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20251211 Castle of Rocca Calascio, Abruzzo, Italy (© carlo alberto conti/Getty Images)
 
 ![](images/2025-12/20251211_CastleAbruzzo_1920x1080.jpg)
-
-#### 20251210 Interior of the Mosque-Cathedral of Córdoba, Andalusia, Spain (© Elena Zolotova/Getty Images)
-
-![](images/2025-12/20251210_CordobaCathedral_1920x1080.jpg)
 
 
 
