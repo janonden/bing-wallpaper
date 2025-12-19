@@ -1,4 +1,4 @@
-#### 20251219 博尔米奥的雪景，伦巴第大区，意大利 (© Roberto Moiola/Getty Images)
+#### 20251219 Snow-covered landscape at Bormio, Lombardy, Italy (© Roberto Moiola/Getty Images)
 
 ![](images/2025-12/20251219_BormioItaly_1920x1080.jpg)
 
