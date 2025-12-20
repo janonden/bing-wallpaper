@@ -1,3 +1,7 @@
+#### 20251220 Cirque de Mafate, Dos d'Ane, Île de la Réunion (© Gael Fontaine/Alamy)
+
+![](images/2025-12/20251220_FetNav_1920x1080.jpg)
+
 #### 20251219 Snow-covered landscape at Bormio, Lombardy, Italy (© Roberto Moiola/Getty Images)
 
 ![](images/2025-12/20251219_BormioItaly_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20251211 Summit of Mount Everest at sunset, seen from Renjo La, Nepal (© shoults/Alamy)
 
 ![](images/2025-12/20251211_EverestGlow_1920x1080.jpg)
-
-#### 20251211 Castle of Rocca Calascio, Abruzzo, Italy (© carlo alberto conti/Getty Images)
-
-![](images/2025-12/20251211_CastleAbruzzo_1920x1080.jpg)
 
 
 

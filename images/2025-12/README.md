@@ -1,3 +1,7 @@
+#### 20251220 Cirque de Mafate, Dos d'Ane, Île de la Réunion (© Gael Fontaine/Alamy)
+
+![](20251220_FetNav_1920x1080.jpg)
+
 #### 20251219 Snow-covered landscape at Bormio, Lombardy, Italy (© Roberto Moiola/Getty Images)
 
 ![](20251219_BormioItaly_1920x1080.jpg)
