@@ -1,3 +1,7 @@
+#### 20251221 Red fox, Canada (© RT-Images/Getty Images)
+
+![](images/2025-12/20251221_RedFoxVulpes_1920x1080.jpg)
+
 #### 20251220 Cirque de Mafate, Dos d'Ane, Île de la Réunion (© Gael Fontaine/Alamy)
 
 ![](images/2025-12/20251220_FetNav_1920x1080.jpg)
@@ -6,7 +10,7 @@
 
 ![](images/2025-12/20251219_BormioItaly_1920x1080.jpg)
 
-#### 20251218 Étoiles de Herrnhut, Allemagne (© artas/Getty Images)
+#### 20251218 Christmas star lanterns, Germany (© artas/Getty Images)
 
 ![](images/2025-12/20251218_StarLanterns_1920x1080.jpg)
 
@@ -53,10 +57,6 @@
 #### 20251212 Spotted poinsettia (© DigiPub/Getty Images)
 
 ![](images/2025-12/20251212_SpeckledPoinsettia_1920x1080.jpg)
-
-#### 20251211 Summit of Mount Everest at sunset, seen from Renjo La, Nepal (© shoults/Alamy)
-
-![](images/2025-12/20251211_EverestGlow_1920x1080.jpg)
 
 
 

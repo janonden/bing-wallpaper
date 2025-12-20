@@ -1,3 +1,7 @@
+#### 20251221 Red fox, Canada (© RT-Images/Getty Images)
+
+![](20251221_RedFoxVulpes_1920x1080.jpg)
+
 #### 20251220 Cirque de Mafate, Dos d'Ane, Île de la Réunion (© Gael Fontaine/Alamy)
 
 ![](20251220_FetNav_1920x1080.jpg)
@@ -6,7 +10,7 @@
 
 ![](20251219_BormioItaly_1920x1080.jpg)
 
-#### 20251218 Étoiles de Herrnhut, Allemagne (© artas/Getty Images)
+#### 20251218 Christmas star lanterns, Germany (© artas/Getty Images)
 
 ![](20251218_StarLanterns_1920x1080.jpg)
 
