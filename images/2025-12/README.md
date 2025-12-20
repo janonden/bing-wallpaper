@@ -1,3 +1,11 @@
+#### 20251221 美丽的雾凇景色，大庆市，黑龙江省，中国 (© Dashu Xinganling/shutterstock)
+
+![](20251221_WintersolsticeY_1920x1080.jpg)
+
+#### 20251221 屈斜路湖のオオハクチョウ, 北海道 (© Jan Vermeer/Minden)
+
+![](20251221_WinterSolstice_1920x1080.jpg)
+
 #### 20251221 Red fox, Canada (© RT-Images/Getty Images)
 
 ![](20251221_RedFoxVulpes_1920x1080.jpg)

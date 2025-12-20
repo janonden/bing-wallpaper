@@ -1,3 +1,11 @@
+#### 20251221 美丽的雾凇景色，大庆市，黑龙江省，中国 (© Dashu Xinganling/shutterstock)
+
+![](images/2025-12/20251221_WintersolsticeY_1920x1080.jpg)
+
+#### 20251221 屈斜路湖のオオハクチョウ, 北海道 (© Jan Vermeer/Minden)
+
+![](images/2025-12/20251221_WinterSolstice_1920x1080.jpg)
+
 #### 20251221 Red fox, Canada (© RT-Images/Getty Images)
 
 ![](images/2025-12/20251221_RedFoxVulpes_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20251213 Vue sur un village de montagne illuminé, France (© Dario Berardi/500px)
 
 ![](images/2025-12/20251213_RacletteDay_1920x1080.jpg)
-
-#### 20251212 Illuminated Capilano Suspension Bridge Park, Vancouver, British Columbia (© Brian Caissie/Getty Images)
-
-![](images/2025-12/20251212_SuspensionLights_1920x1080.jpg)
-
-#### 20251212 Spotted poinsettia (© DigiPub/Getty Images)
-
-![](images/2025-12/20251212_SpeckledPoinsettia_1920x1080.jpg)
 
 
 
