@@ -1,3 +1,11 @@
+#### 20251222 雪の中を進むトナカイ, フィンランド (© Roberto Moiola/Getty Images)
+
+![](images/2025-12/20251222_ReindeerFinland_1920x1080.jpg)
+
+#### 20251222 法兰克福老桥，德国 (© diegograndi/Getty Images)
+
+![](images/2025-12/20251222_FrankfurtAlteBruecke_1920x1080.jpg)
+
 #### 20251221 美丽的雾凇景色，大庆市，黑龙江省，中国 (© Dashu Xinganling/shutterstock)
 
 ![](images/2025-12/20251221_WintersolsticeY_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20251215 Lights on Spiegelgracht canal, Amsterdam, Netherlands (© Amith Nag Photography/Getty Images)
 
 ![](images/2025-12/20251215_AmsterdamLights_1920x1080.jpg)
-
-#### 20251214 Tufted titmouse perched on pine boughs, Massachusetts (© Tim Laman/NPL/Minden Pictures)
-
-![](images/2025-12/20251214_TuftedTitmouse_1920x1080.jpg)
-
-#### 20251213 Merced River, Yosemite National Park, California (© Ron and Patty Thomas/Getty Images)
-
-![](images/2025-12/20251213_YosemiteWinter_1920x1080.jpg)
 
 
 
