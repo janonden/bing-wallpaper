@@ -6,7 +6,7 @@
 
 ![](images/2025-12/20251221_WinterSolstice_1920x1080.jpg)
 
-#### 20251221 Morgendämmerung durch frostige Bäume, Schweden (© Schon/Getty Images)
+#### 20251221 Dawn light through frosty trees, Sweden (© Schon/Getty Images)
 
 ![](images/2025-12/20251221_SwedenSolstice_1920x1080.jpg)
 
