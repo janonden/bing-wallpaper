@@ -6,6 +6,10 @@
 
 ![](20251221_WinterSolstice_1920x1080.jpg)
 
+#### 20251221 Morgendämmerung durch frostige Bäume, Schweden (© Schon/Getty Images)
+
+![](20251221_SwedenSolstice_1920x1080.jpg)
+
 #### 20251221 Red fox, Canada (© RT-Images/Getty Images)
 
 ![](20251221_RedFoxVulpes_1920x1080.jpg)
