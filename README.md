@@ -2,7 +2,7 @@
 
 ![](images/2025-12/20251222_ReindeerFinland_1920x1080.jpg)
 
-#### 20251222 „Der Nussknacker“, aufgeführt vom Türkischen Staatsballett und der Türkischen Staatsoper in Ankara, Türkei (© Anadolu/Getty Images)
+#### 20251222 'The Nutcracker' performed by the Turkish State Opera and Ballet in Ankara, Türkiye (© Anadolu/Getty Images)
 
 ![](images/2025-12/20251222_NutcrackerAnkara_1920x1080.jpg)
 
