@@ -1,3 +1,7 @@
+#### 20251223 ライトアップされた夜の東京タワー, 東京 (© Najjsiri Nimyizhune/Getty Images)
+
+![](20251223_TokyoTower_1920x1080.jpg)
+
 #### 20251222 雪の中を進むトナカイ, フィンランド (© Roberto Moiola/Getty Images)
 
 ![](20251222_ReindeerFinland_1920x1080.jpg)
