@@ -2,6 +2,10 @@
 
 ![](images/2025-12/20251222_ReindeerFinland_1920x1080.jpg)
 
+#### 20251222 „Der Nussknacker“, aufgeführt vom Türkischen Staatsballett und der Türkischen Staatsoper in Ankara, Türkei (© Anadolu/Getty Images)
+
+![](images/2025-12/20251222_NutcrackerAnkara_1920x1080.jpg)
+
 #### 20251222 法兰克福老桥，德国 (© diegograndi/Getty Images)
 
 ![](images/2025-12/20251222_FrankfurtAlteBruecke_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20251216 Handmade gnomes at a Christmas market (© Veronika Seppanen/Shutterstock)
 
 ![](images/2025-12/20251216_ChristmasGnomes_1920x1080.jpg)
-
-#### 20251215 Lights on Spiegelgracht canal, Amsterdam, Netherlands (© Amith Nag Photography/Getty Images)
-
-![](images/2025-12/20251215_AmsterdamLights_1920x1080.jpg)
 
 
 
