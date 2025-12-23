@@ -1,8 +1,12 @@
+#### 20251224 Lagazzuolo Lake, Valmalenco, Lombardy, Italy (© Francesco Bergamaschi/Getty Images)
+
+![](images/2025-12/20251224_LagoLagazuolo_1920x1080.jpg)
+
 #### 20251223 ライトアップされた夜の東京タワー, 東京 (© Najjsiri Nimyizhune/Getty Images)
 
 ![](images/2025-12/20251223_TokyoTower_1920x1080.jpg)
 
-#### 20251222 雪の中を進むトナカイ, フィンランド (© Roberto Moiola/Getty Images)
+#### 20251222 Reindeer during winter snowfall, Lapland, Finland (© Roberto Moiola/Getty Images)
 
 ![](images/2025-12/20251222_ReindeerFinland_1920x1080.jpg)
 
@@ -53,10 +57,6 @@
 #### 20251217 Medieval Aqueduct, Perugia, Italy (© Sean Pavone/Getty Images)
 
 ![](images/2025-12/20251217_PerugiaStreet_1920x1080.jpg)
-
-#### 20251217 Eurasian red squirrel in Northumberland, England (© Michael_Conrad/Getty Images)
-
-![](images/2025-12/20251217_FrostySquirrel_1920x1080.jpg)
 
 
 
