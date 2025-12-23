@@ -42,6 +42,10 @@
 
 ![](20251220_FetNav_1920x1080.jpg)
 
+#### 20251219 Rivière Merced, parc national de Yosemite, Californie, États-Unis (© Ron and Patty Thomas/Getty Images)
+
+![](20251219_YosemiteWinter_1920x1080.jpg)
+
 #### 20251219 Snow-covered landscape at Bormio, Lombardy, Italy (© Roberto Moiola/Getty Images)
 
 ![](20251219_BormioItaly_1920x1080.jpg)

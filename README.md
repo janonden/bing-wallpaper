@@ -42,6 +42,10 @@
 
 ![](images/2025-12/20251220_FetNav_1920x1080.jpg)
 
+#### 20251219 Rivière Merced, parc national de Yosemite, Californie, États-Unis (© Ron and Patty Thomas/Getty Images)
+
+![](images/2025-12/20251219_YosemiteWinter_1920x1080.jpg)
+
 #### 20251219 Snow-covered landscape at Bormio, Lombardy, Italy (© Roberto Moiola/Getty Images)
 
 ![](images/2025-12/20251219_BormioItaly_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20251218 Schneebedecktes Feld bei Sonnenuntergang, Ostfriesland, Niedersachsen (© photo art/500px/Getty Images)
 
 ![](images/2025-12/20251218_OstfrieslandWinter_1920x1080.jpg)
-
-#### 20251218 Temple of the Sun, Capitol Reef National Park, Utah (© Austin Cronnelly/TANDEM Stills + Motion)
-
-![](images/2025-12/20251218_CathedralValley_1920x1080.jpg)
 
 
 
