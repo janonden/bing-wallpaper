@@ -2,6 +2,10 @@
 
 ![](images/2025-12/20251224_LagoLagazuolo_1920x1080.jpg)
 
+#### 20251224 巴伐利亚阿尔卑斯山脉的雪中教堂与圣诞树，德国 (© mauritius images GmbH/Alamy)
+
+![](images/2025-12/20251224_ElmauChapel_1920x1080.jpg)
+
 #### 20251223 ライトアップされた夜の東京タワー, 東京 (© Najjsiri Nimyizhune/Getty Images)
 
 ![](images/2025-12/20251223_TokyoTower_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20251218 Temple of the Sun, Capitol Reef National Park, Utah (© Austin Cronnelly/TANDEM Stills + Motion)
 
 ![](images/2025-12/20251218_CathedralValley_1920x1080.jpg)
-
-#### 20251217 Medieval Aqueduct, Perugia, Italy (© Sean Pavone/Getty Images)
-
-![](images/2025-12/20251217_PerugiaStreet_1920x1080.jpg)
 
 
 

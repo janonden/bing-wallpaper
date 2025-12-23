@@ -2,6 +2,10 @@
 
 ![](20251224_LagoLagazuolo_1920x1080.jpg)
 
+#### 20251224 巴伐利亚阿尔卑斯山脉的雪中教堂与圣诞树，德国 (© mauritius images GmbH/Alamy)
+
+![](20251224_ElmauChapel_1920x1080.jpg)
+
 #### 20251223 ライトアップされた夜の東京タワー, 東京 (© Najjsiri Nimyizhune/Getty Images)
 
 ![](20251223_TokyoTower_1920x1080.jpg)
