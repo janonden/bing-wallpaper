@@ -2,6 +2,10 @@
 
 ![](20251225_StarlingBrighton_1920x1080.jpg)
 
+#### 20251225 海德堡圣诞市场上的雪球，德国 (© George Pachantouris/Getty Images)
+
+![](20251225_SantaGlobe_1920x1080.jpg)
+
 #### 20251224 Lagazzuolo Lake, Valmalenco, Lombardy, Italy (© Francesco Bergamaschi/Getty Images)
 
 ![](20251224_LagoLagazuolo_1920x1080.jpg)

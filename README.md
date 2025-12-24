@@ -2,6 +2,10 @@
 
 ![](images/2025-12/20251225_StarlingBrighton_1920x1080.jpg)
 
+#### 20251225 海德堡圣诞市场上的雪球，德国 (© George Pachantouris/Getty Images)
+
+![](images/2025-12/20251225_SantaGlobe_1920x1080.jpg)
+
 #### 20251224 Lagazzuolo Lake, Valmalenco, Lombardy, Italy (© Francesco Bergamaschi/Getty Images)
 
 ![](images/2025-12/20251224_LagoLagazuolo_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20251219 Rivière Merced, parc national de Yosemite, Californie, États-Unis (© Ron and Patty Thomas/Getty Images)
 
 ![](images/2025-12/20251219_YosemiteWinter_1920x1080.jpg)
-
-#### 20251219 Snow-covered landscape at Bormio, Lombardy, Italy (© Roberto Moiola/Getty Images)
-
-![](images/2025-12/20251219_BormioItaly_1920x1080.jpg)
 
 
 
