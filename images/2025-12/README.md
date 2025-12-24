@@ -2,6 +2,10 @@
 
 ![](20251224_LagoLagazuolo_1920x1080.jpg)
 
+#### 20251224 Kapelle und Weihnachtsbaum in winterlicher Landschaft, Elmau, Bayern (© Michael Thaler/Shutterstock)
+
+![](20251224_ElmauSnow_1920x1080.jpg)
+
 #### 20251224 巴伐利亚阿尔卑斯山脉的雪中教堂与圣诞树，德国 (© mauritius images GmbH/Alamy)
 
 ![](20251224_ElmauChapel_1920x1080.jpg)

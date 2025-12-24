@@ -2,6 +2,10 @@
 
 ![](images/2025-12/20251224_LagoLagazuolo_1920x1080.jpg)
 
+#### 20251224 Kapelle und Weihnachtsbaum in winterlicher Landschaft, Elmau, Bayern (© Michael Thaler/Shutterstock)
+
+![](images/2025-12/20251224_ElmauSnow_1920x1080.jpg)
+
 #### 20251224 巴伐利亚阿尔卑斯山脉的雪中教堂与圣诞树，德国 (© mauritius images GmbH/Alamy)
 
 ![](images/2025-12/20251224_ElmauChapel_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20251218 Christmas star lanterns, Germany (© artas/Getty Images)
 
 ![](images/2025-12/20251218_StarLanterns_1920x1080.jpg)
-
-#### 20251218 Schneebedecktes Feld bei Sonnenuntergang, Ostfriesland, Niedersachsen (© photo art/500px/Getty Images)
-
-![](images/2025-12/20251218_OstfrieslandWinter_1920x1080.jpg)
 
 
 
