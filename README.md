@@ -1,3 +1,7 @@
+#### 20251225 Starling murmuration over the ruins of Brighton's West Pier, England (© Philip Reeve/Photodisc/Getty Images)
+
+![](images/2025-12/20251225_StarlingBrighton_1920x1080.jpg)
+
 #### 20251224 Lagazzuolo Lake, Valmalenco, Lombardy, Italy (© Francesco Bergamaschi/Getty Images)
 
 ![](images/2025-12/20251224_LagoLagazuolo_1920x1080.jpg)
@@ -6,7 +10,7 @@
 
 ![](images/2025-12/20251224_ElmauSnow_1920x1080.jpg)
 
-#### 20251224 巴伐利亚阿尔卑斯山脉的雪中教堂与圣诞树，德国 (© mauritius images GmbH/Alamy)
+#### 20251224 Snowy chapel with Christmas tree in the Bavarian Alps, Germany (© mauritius images GmbH/Alamy)
 
 ![](images/2025-12/20251224_ElmauChapel_1920x1080.jpg)
 
@@ -53,10 +57,6 @@
 #### 20251219 Snow-covered landscape at Bormio, Lombardy, Italy (© Roberto Moiola/Getty Images)
 
 ![](images/2025-12/20251219_BormioItaly_1920x1080.jpg)
-
-#### 20251218 Christmas star lanterns, Germany (© artas/Getty Images)
-
-![](images/2025-12/20251218_StarLanterns_1920x1080.jpg)
 
 
 
