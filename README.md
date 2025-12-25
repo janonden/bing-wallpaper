@@ -1,3 +1,7 @@
+#### 20251226 索尔兹伯里大教堂，威尔特郡，英格兰 (© Julian Elliott Photography/Getty Images)
+
+![](images/2025-12/20251226_WiltshireDawn_1920x1080.jpg)
+
 #### 20251225 Christmas trees in Old Quebec (© Jean Surprenant/Getty Images)
 
 ![](images/2025-12/20251225_XmasTree_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20251221 Red fox, Canada (© RT-Images/Getty Images)
 
 ![](images/2025-12/20251221_RedFoxVulpes_1920x1080.jpg)
-
-#### 20251220 Cirque de Mafate, Dos d'Ane, Île de la Réunion (© Gael Fontaine/Alamy)
-
-![](images/2025-12/20251220_FetNav_1920x1080.jpg)
 
 
 

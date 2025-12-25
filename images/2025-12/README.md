@@ -1,3 +1,7 @@
+#### 20251226 索尔兹伯里大教堂，威尔特郡，英格兰 (© Julian Elliott Photography/Getty Images)
+
+![](20251226_WiltshireDawn_1920x1080.jpg)
+
 #### 20251225 Christmas trees in Old Quebec (© Jean Surprenant/Getty Images)
 
 ![](20251225_XmasTree_1920x1080.jpg)
