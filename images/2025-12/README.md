@@ -1,8 +1,12 @@
+#### 20251225 Christmas trees in Old Quebec (© Jean Surprenant/Getty Images)
+
+![](20251225_XmasTree_1920x1080.jpg)
+
 #### 20251225 Starling murmuration over the ruins of Brighton's West Pier, England (© Philip Reeve/Photodisc/Getty Images)
 
 ![](20251225_StarlingBrighton_1920x1080.jpg)
 
-#### 20251225 海德堡圣诞市场上的雪球，德国 (© George Pachantouris/Getty Images)
+#### 20251225 Snow globes at a Christmas market in Heidelberg, Germany (© George Pachantouris/Getty Images)
 
 ![](20251225_SantaGlobe_1920x1080.jpg)
 

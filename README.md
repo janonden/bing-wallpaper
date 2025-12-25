@@ -1,8 +1,12 @@
+#### 20251225 Christmas trees in Old Quebec (© Jean Surprenant/Getty Images)
+
+![](images/2025-12/20251225_XmasTree_1920x1080.jpg)
+
 #### 20251225 Starling murmuration over the ruins of Brighton's West Pier, England (© Philip Reeve/Photodisc/Getty Images)
 
 ![](images/2025-12/20251225_StarlingBrighton_1920x1080.jpg)
 
-#### 20251225 海德堡圣诞市场上的雪球，德国 (© George Pachantouris/Getty Images)
+#### 20251225 Snow globes at a Christmas market in Heidelberg, Germany (© George Pachantouris/Getty Images)
 
 ![](images/2025-12/20251225_SantaGlobe_1920x1080.jpg)
 
@@ -53,10 +57,6 @@
 #### 20251220 Cirque de Mafate, Dos d'Ane, Île de la Réunion (© Gael Fontaine/Alamy)
 
 ![](images/2025-12/20251220_FetNav_1920x1080.jpg)
-
-#### 20251219 Rivière Merced, parc national de Yosemite, Californie, États-Unis (© Ron and Patty Thomas/Getty Images)
-
-![](images/2025-12/20251219_YosemiteWinter_1920x1080.jpg)
 
 
 
