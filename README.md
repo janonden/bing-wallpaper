@@ -2,6 +2,10 @@
 
 ![](images/2025-12/20251227_WinterCovadonga_1920x1080.jpg)
 
+#### 20251227 苏必利尔湖沿岸的冰层，大马雷，明尼苏达州，美国 (© wanderluster/Getty Images)
+
+![](images/2025-12/20251227_SuperiorIceMN_1920x1080.jpg)
+
 #### 20251226 Salisbury Cathedral, Wiltshire, England (© Julian Elliott Photography/Getty Images)
 
 ![](images/2025-12/20251226_WiltshireDawn_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20251221 美丽的雾凇景色，大庆市，黑龙江省，中国 (© Dashu Xinganling/shutterstock)
 
 ![](images/2025-12/20251221_WintersolsticeY_1920x1080.jpg)
-
-#### 20251221 屈斜路湖のオオハクチョウ, 北海道 (© Jan Vermeer/Minden)
-
-![](images/2025-12/20251221_WinterSolstice_1920x1080.jpg)
 
 
 

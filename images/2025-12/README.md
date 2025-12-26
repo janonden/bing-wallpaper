@@ -2,6 +2,10 @@
 
 ![](20251227_WinterCovadonga_1920x1080.jpg)
 
+#### 20251227 苏必利尔湖沿岸的冰层，大马雷，明尼苏达州，美国 (© wanderluster/Getty Images)
+
+![](20251227_SuperiorIceMN_1920x1080.jpg)
+
 #### 20251226 Salisbury Cathedral, Wiltshire, England (© Julian Elliott Photography/Getty Images)
 
 ![](20251226_WiltshireDawn_1920x1080.jpg)
