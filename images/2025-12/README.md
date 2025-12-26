@@ -66,6 +66,10 @@
 
 ![](20251221_RedFoxVulpes_1920x1080.jpg)
 
+#### 20251220 Christmas star lanterns, Germany (© artas/Getty Images)
+
+![](20251220_StarLanterns_1920x1080.jpg)
+
 #### 20251220 Cirque de Mafate, Dos d'Ane, Île de la Réunion (© Gael Fontaine/Alamy)
 
 ![](20251220_FetNav_1920x1080.jpg)
