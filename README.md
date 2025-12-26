@@ -2,6 +2,10 @@
 
 ![](images/2025-12/20251226_WiltshireDawn_1920x1080.jpg)
 
+#### 20251226 Nuuk, Groenland (© nevereverro/Getty Images)
+
+![](images/2025-12/20251226_NuukGreenland_1920x1080.jpg)
+
 #### 20251225 Christmas trees in Old Quebec (© Jean Surprenant/Getty Images)
 
 ![](images/2025-12/20251225_XmasTree_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20251221 Dawn light through frosty trees, Sweden (© Schon/Getty Images)
 
 ![](images/2025-12/20251221_SwedenSolstice_1920x1080.jpg)
-
-#### 20251221 Red fox, Canada (© RT-Images/Getty Images)
-
-![](images/2025-12/20251221_RedFoxVulpes_1920x1080.jpg)
 
 
 
