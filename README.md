@@ -1,4 +1,8 @@
-#### 20251226 索尔兹伯里大教堂，威尔特郡，英格兰 (© Julian Elliott Photography/Getty Images)
+#### 20251227 Lakes of Covadonga, Asturias, Spain (© emiliozv/Getty Images)
+
+![](images/2025-12/20251227_WinterCovadonga_1920x1080.jpg)
+
+#### 20251226 Salisbury Cathedral, Wiltshire, England (© Julian Elliott Photography/Getty Images)
 
 ![](images/2025-12/20251226_WiltshireDawn_1920x1080.jpg)
 
@@ -53,10 +57,6 @@
 #### 20251221 屈斜路湖のオオハクチョウ, 北海道 (© Jan Vermeer/Minden)
 
 ![](images/2025-12/20251221_WinterSolstice_1920x1080.jpg)
-
-#### 20251221 Dawn light through frosty trees, Sweden (© Schon/Getty Images)
-
-![](images/2025-12/20251221_SwedenSolstice_1920x1080.jpg)
 
 
 

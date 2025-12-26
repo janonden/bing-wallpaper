@@ -1,4 +1,8 @@
-#### 20251226 索尔兹伯里大教堂，威尔特郡，英格兰 (© Julian Elliott Photography/Getty Images)
+#### 20251227 Lakes of Covadonga, Asturias, Spain (© emiliozv/Getty Images)
+
+![](20251227_WinterCovadonga_1920x1080.jpg)
+
+#### 20251226 Salisbury Cathedral, Wiltshire, England (© Julian Elliott Photography/Getty Images)
 
 ![](20251226_WiltshireDawn_1920x1080.jpg)
 
