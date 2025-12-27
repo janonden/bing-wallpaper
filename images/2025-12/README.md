@@ -1,3 +1,11 @@
+#### 20251228 马达加斯加的黑白环尾狐猴 (© Cyrielle Beaubois/Getty Images)
+
+![](20251228_RuffedLemur_1920x1080.jpg)
+
+#### 20251228 アルザス地域圏の森, フランス (© alekseystemmer/Getty Images)
+
+![](20251228_MistyPineForest_1920x1080.jpg)
+
 #### 20251227 Lakes of Covadonga, Asturias, Spain (© emiliozv/Getty Images)
 
 ![](20251227_WinterCovadonga_1920x1080.jpg)
