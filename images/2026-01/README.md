@@ -1,3 +1,7 @@
+#### 20260115 雷讷渔村, 挪威 (© Roberto Moiola/Cavan Images/SuperStock)
+
+![](20260115_ReineSunrise_1920x1080.jpg)
+
 #### 20260114 The staircase of the Fortress of Palamidi, Nafplio, Greece (© George Pachantouris/Getty Images)
 
 ![](20260114_PalamidiFortress_1920x1080.jpg)

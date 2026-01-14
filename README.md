@@ -1,3 +1,7 @@
+#### 20260115 雷讷渔村, 挪威 (© Roberto Moiola/Cavan Images/SuperStock)
+
+![](images/2026-01/20260115_ReineSunrise_1920x1080.jpg)
+
 #### 20260114 The staircase of the Fortress of Palamidi, Nafplio, Greece (© George Pachantouris/Getty Images)
 
 ![](images/2026-01/20260114_PalamidiFortress_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260106 Château de Versailles, France (© Mistervlad/Shutterstock)
 
 ![](images/2026-01/20260106_EpiphanyDay_1920x1080.jpg)
-
-#### 20260105 A herd of impalas, Londolozi Game Reserve, South Africa (© Mint Images/Getty Images)
-
-![](images/2026-01/20260105_ImpalaRooibok_1920x1080.jpg)
 
 
 
