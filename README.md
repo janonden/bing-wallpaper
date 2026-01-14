@@ -1,4 +1,4 @@
-#### 20260114 帕拉米蒂要塞的阶梯, 纳夫普利翁, 希腊 (© George Pachantouris/Getty Images)
+#### 20260114 The staircase of the Fortress of Palamidi, Nafplio, Greece (© George Pachantouris/Getty Images)
 
 ![](images/2026-01/20260114_PalamidiFortress_1920x1080.jpg)
 
