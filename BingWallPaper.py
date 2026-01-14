@@ -156,24 +156,9 @@ def archive_last_year(last_year):
     update_main_readme(is_archive=True)
 
 
-def delete_last_year(last_year):
-    if len(last_year) == 0:
-        return
-    print('Delete ' + last_year)
-    month_list = sorted(os.listdir(base_dir), reverse=True)
-    for month_dir in month_list:
-        if month_dir.startswith(last_year):
-            shutil.rmtree(os.path.join(base_dir, month_dir))
-    if len(os.listdir(base_dir)) == 0:
-        return
-    update_main_readme()
-
-
 if __name__ == '__main__':
     if len(sys.argv) >= 3 and 'archive' == sys.argv[1]:
         archive_last_year(sys.argv[2])
-    elif len(sys.argv) >= 3 and 'delete' == sys.argv[1]:
-        delete_last_year(sys.argv[2])
     else:
         newest_images_map = find_newest_images()
         is_update = False
@@ -181,5 +166,6 @@ if __name__ == '__main__':
             is_update = download_from_bing(newest_images_map, cc) or is_update
         if is_update or not os.path.exists('README.md'):
             update_main_readme()
+
 
 
