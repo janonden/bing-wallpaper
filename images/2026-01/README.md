@@ -1,3 +1,7 @@
+#### 20260116 埃托沙国家公园的豹子，纳米比亚 (© Norbert Achtelik/Cavan Images)
+
+![](20260116_EtoshaLeopard_1920x1080.jpg)
+
 #### 20260115 The fishing village of Reine, Norway (© Roberto Moiola/Cavan Images/SuperStock)
 
 ![](20260115_ReineSunrise_1920x1080.jpg)

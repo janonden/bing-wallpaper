@@ -1,3 +1,7 @@
+#### 20260116 埃托沙国家公园的豹子，纳米比亚 (© Norbert Achtelik/Cavan Images)
+
+![](images/2026-01/20260116_EtoshaLeopard_1920x1080.jpg)
+
 #### 20260115 The fishing village of Reine, Norway (© Roberto Moiola/Cavan Images/SuperStock)
 
 ![](images/2026-01/20260115_ReineSunrise_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260106 Nuuk, Greenland (© nevereverro/Getty Images)
 
 ![](images/2026-01/20260106_NuukGreenland_1920x1080.jpg)
-
-#### 20260106 Château de Versailles, France (© Mistervlad/Shutterstock)
-
-![](images/2026-01/20260106_EpiphanyDay_1920x1080.jpg)
 
 
 
