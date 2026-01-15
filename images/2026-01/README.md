@@ -1,4 +1,4 @@
-#### 20260115 雷讷渔村, 挪威 (© Roberto Moiola/Cavan Images/SuperStock)
+#### 20260115 The fishing village of Reine, Norway (© Roberto Moiola/Cavan Images/SuperStock)
 
 ![](20260115_ReineSunrise_1920x1080.jpg)
 
