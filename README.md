@@ -2,6 +2,10 @@
 
 ![](images/2026-01/20260116_EtoshaLeopard_1920x1080.jpg)
 
+#### 20260116 Cerf cachés dans la forêt (© AB Photography/Getty images)
+
+![](images/2026-01/20260116_DeerWinter_1920x1080.jpg)
+
 #### 20260115 The fishing village of Reine, Norway (© Roberto Moiola/Cavan Images/SuperStock)
 
 ![](images/2026-01/20260115_ReineSunrise_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260107 Turret Arch framed by North Window in Arches National Park, Utah (© Jim Patterson/TANDEM Stills + Motion)
 
 ![](images/2026-01/20260107_OldRockArch_1920x1080.jpg)
-
-#### 20260106 Nuuk, Greenland (© nevereverro/Getty Images)
-
-![](images/2026-01/20260106_NuukGreenland_1920x1080.jpg)
 
 
 

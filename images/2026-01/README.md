@@ -2,6 +2,10 @@
 
 ![](20260116_EtoshaLeopard_1920x1080.jpg)
 
+#### 20260116 Cerf cachés dans la forêt (© AB Photography/Getty images)
+
+![](20260116_DeerWinter_1920x1080.jpg)
+
 #### 20260115 The fishing village of Reine, Norway (© Roberto Moiola/Cavan Images/SuperStock)
 
 ![](20260115_ReineSunrise_1920x1080.jpg)
