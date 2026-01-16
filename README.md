@@ -1,3 +1,7 @@
+#### 20260117 保罗圣方济圣殿，那不勒斯，意大利 (© javarman3/Getty Images)
+
+![](images/2026-01/20260117_NaplesBasilica_1920x1080.jpg)
+
 #### 20260116 Leopard at Etosha National Park, Namibia (© Norbert Achtelik/Cavan Images)
 
 ![](images/2026-01/20260116_EtoshaLeopard_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260108 Starling murmuration over the ruins of Brighton's West Pier, England (© Philip Reeve/Photodisc/Getty Images)
 
 ![](images/2026-01/20260108_StarlingBrighton_1920x1080.jpg)
-
-#### 20260107 Turret Arch framed by North Window in Arches National Park, Utah (© Jim Patterson/TANDEM Stills + Motion)
-
-![](images/2026-01/20260107_OldRockArch_1920x1080.jpg)
 
 
 
