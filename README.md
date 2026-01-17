@@ -1,4 +1,8 @@
-#### 20260117 保罗圣方济圣殿，那不勒斯，意大利 (© javarman3/Getty Images)
+#### 20260118 Fernando de Noronha, Pernambuco, Brazil (© Stephanie Kenner/Getty Images)
+
+![](images/2026-01/20260118_NoronhaSunset_1920x1080.jpg)
+
+#### 20260117 Basilica of San Francesco di Paola, Naples, Italy (© javarman3/Getty Images)
 
 ![](images/2026-01/20260117_NaplesBasilica_1920x1080.jpg)
 
@@ -53,10 +57,6 @@
 #### 20260109 Yellow-chevroned parakeets in a mango tree, Pantanal, Brazil (© Uwe-Bergwitz/Getty Images)
 
 ![](images/2026-01/20260109_Chevroned_1920x1080.jpg)
-
-#### 20260108 Starling murmuration over the ruins of Brighton's West Pier, England (© Philip Reeve/Photodisc/Getty Images)
-
-![](images/2026-01/20260108_StarlingBrighton_1920x1080.jpg)
 
 
 

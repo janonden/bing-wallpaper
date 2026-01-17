@@ -1,4 +1,8 @@
-#### 20260117 保罗圣方济圣殿，那不勒斯，意大利 (© javarman3/Getty Images)
+#### 20260118 Fernando de Noronha, Pernambuco, Brazil (© Stephanie Kenner/Getty Images)
+
+![](20260118_NoronhaSunset_1920x1080.jpg)
+
+#### 20260117 Basilica of San Francesco di Paola, Naples, Italy (© javarman3/Getty Images)
 
 ![](20260117_NaplesBasilica_1920x1080.jpg)
 
