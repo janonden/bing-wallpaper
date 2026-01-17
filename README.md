@@ -1,3 +1,7 @@
+#### 20260118 白沙国家公园，新墨西哥州，美国 (© Francesco Carucci/Getty Images)
+
+![](images/2026-01/20260118_WhiteSandsNM_1920x1080.jpg)
+
 #### 20260118 Fernando de Noronha, Pernambuco, Brazil (© Stephanie Kenner/Getty Images)
 
 ![](images/2026-01/20260118_NoronhaSunset_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260109 Coucher de soleil à Bonifacio, Corse, France (© Wirestock/Getty Images)
 
 ![](images/2026-01/20260109_CorsicaDay_1920x1080.jpg)
-
-#### 20260109 Yellow-chevroned parakeets in a mango tree, Pantanal, Brazil (© Uwe-Bergwitz/Getty Images)
-
-![](images/2026-01/20260109_Chevroned_1920x1080.jpg)
 
 
 
