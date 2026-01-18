@@ -1,3 +1,11 @@
+#### 20260119 エクスターンシュタイネ岩塔群, ドイツ (© Michael Sroka/Getty Images)
+
+![](images/2026-01/20260119_ExternsteineSunset_1920x1080.jpg)
+
+#### 20260119 亚伯拉罕湖冰封景象，艾伯塔省，加拿大 (© Luis F Arevalo/Getty Images)
+
+![](images/2026-01/20260119_BubblesAbraham_1920x1080.jpg)
+
 #### 20260118 White Sands National Park, New Mexico (© Francesco Carucci/Getty Images)
 
 ![](images/2026-01/20260118_WhiteSandsNM_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20260109 Giant redwood trees in Muir Woods National Monument, California (© photo by canderson/Getty Images)
 
 ![](images/2026-01/20260109_MuirWoodsMonument_1920x1080.jpg)
-
-#### 20260109 Eurasische Luchse beim Spielen im Schnee im Wald, Bayern (© imagebroker/david & micha sheldon/Getty Images)
-
-![](images/2026-01/20260109_LynxBavariaSnow_1920x1080.jpg)
-
-#### 20260109 Coucher de soleil à Bonifacio, Corse, France (© Wirestock/Getty Images)
-
-![](images/2026-01/20260109_CorsicaDay_1920x1080.jpg)
 
 
 

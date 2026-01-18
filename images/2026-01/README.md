@@ -1,3 +1,11 @@
+#### 20260119 エクスターンシュタイネ岩塔群, ドイツ (© Michael Sroka/Getty Images)
+
+![](20260119_ExternsteineSunset_1920x1080.jpg)
+
+#### 20260119 亚伯拉罕湖冰封景象，艾伯塔省，加拿大 (© Luis F Arevalo/Getty Images)
+
+![](20260119_BubblesAbraham_1920x1080.jpg)
+
 #### 20260118 White Sands National Park, New Mexico (© Francesco Carucci/Getty Images)
 
 ![](20260118_WhiteSandsNM_1920x1080.jpg)
