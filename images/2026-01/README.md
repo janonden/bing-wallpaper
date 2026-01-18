@@ -1,4 +1,4 @@
-#### 20260118 白沙国家公园，新墨西哥州，美国 (© Francesco Carucci/Getty Images)
+#### 20260118 White Sands National Park, New Mexico (© Francesco Carucci/Getty Images)
 
 ![](20260118_WhiteSandsNM_1920x1080.jpg)
 
