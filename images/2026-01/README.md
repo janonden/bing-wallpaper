@@ -1,3 +1,11 @@
+#### 20260120 栖息在树枝上的北长尾山雀，大庆市，中国黑龙江省 (© Visual China Group/Getty Images)
+
+![](20260120_TheGreatColdY_1920x1080.jpg)
+
+#### 20260120 雪に覆われた星峠の棚田, 新潟県 十日町市 (© solakoudai/Shutterstock)
+
+![](20260120_Daikan_1920x1080.jpg)
+
 #### 20260119 Washington Monument seen from Lincoln Memorial, Washington, DC (© RickSause/Getty Images)
 
 ![](20260119_MLKSunrise_1920x1080.jpg)
