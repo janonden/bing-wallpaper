@@ -1,3 +1,7 @@
+#### 20260119 Washington Monument seen from Lincoln Memorial, Washington, DC (© RickSause/Getty Images)
+
+![](images/2026-01/20260119_MLKSunrise_1920x1080.jpg)
+
 #### 20260119 エクスターンシュタイネ岩塔群, ドイツ (© Michael Sroka/Getty Images)
 
 ![](images/2026-01/20260119_ExternsteineSunset_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260110 The Matterhorn reflected in Lake Stellisee at sunrise, Zermatt, Switzerland (© Andy Trowbridge/naturepl.com)
 
 ![](images/2026-01/20260110_MatterhornSunrise_1920x1080.jpg)
-
-#### 20260109 Giant redwood trees in Muir Woods National Monument, California (© photo by canderson/Getty Images)
-
-![](images/2026-01/20260109_MuirWoodsMonument_1920x1080.jpg)
 
 
 
