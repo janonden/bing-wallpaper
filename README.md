@@ -2,6 +2,10 @@
 
 ![](images/2026-01/20260120_TheGreatColdY_1920x1080.jpg)
 
+#### 20260120 Eselspinguin, Petermann-Insel, Antarktis (© Paul Souders/DanitaDelimont.com/Alamy)
+
+![](images/2026-01/20260120_IciclePenguin_1920x1080.jpg)
+
 #### 20260120 雪に覆われた星峠の棚田, 新潟県 十日町市 (© solakoudai/Shutterstock)
 
 ![](images/2026-01/20260120_Daikan_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260112 Eurasian otter and pup, Estonia (© Sven Zacek/naturepl.com)
 
 ![](images/2026-01/20260112_SnowOtters_1920x1080.jpg)
-
-#### 20260112 ガーラ湯沢スキー場, 新潟県 (© Metta Bunkeaw/Alamy)
-
-![](images/2026-01/20260112_SkiDay_1920x1080.jpg)
 
 
 
