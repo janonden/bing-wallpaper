@@ -1,3 +1,7 @@
+#### 20260121 欧亚红松鼠 (© Galina Jacyna/Getty Images)
+
+![](20260121_BerrySquirrel_1920x1080.jpg)
+
 #### 20260120 栖息在树枝上的北长尾山雀，大庆市，中国黑龙江省 (© Visual China Group/Getty Images)
 
 ![](20260120_TheGreatColdY_1920x1080.jpg)

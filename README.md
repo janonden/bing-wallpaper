@@ -1,3 +1,7 @@
+#### 20260121 欧亚红松鼠 (© Galina Jacyna/Getty Images)
+
+![](images/2026-01/20260121_BerrySquirrel_1920x1080.jpg)
+
 #### 20260120 栖息在树枝上的北长尾山雀，大庆市，中国黑龙江省 (© Visual China Group/Getty Images)
 
 ![](images/2026-01/20260120_TheGreatColdY_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260113 Vale of Clwyd, Wales (© Valerie Blencowe/Getty Images)
 
 ![](images/2026-01/20260113_WalesWinter_1920x1080.jpg)
-
-#### 20260112 Eurasian otter and pup, Estonia (© Sven Zacek/naturepl.com)
-
-![](images/2026-01/20260112_SnowOtters_1920x1080.jpg)
 
 
 
