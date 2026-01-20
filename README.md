@@ -2,7 +2,7 @@
 
 ![](images/2026-01/20260120_TheGreatColdY_1920x1080.jpg)
 
-#### 20260120 Eselspinguin, Petermann-Insel, Antarktis (© Paul Souders/DanitaDelimont.com/Alamy)
+#### 20260120 Gentoo penguin, Petermann Island, Antarctica (© Paul Souders/DanitaDelimont.com/Alamy)
 
 ![](images/2026-01/20260120_IciclePenguin_1920x1080.jpg)
 
