@@ -1,3 +1,7 @@
+#### 20260122 卡罗维瓦利，波西米亚，捷克共和国 (© Henryk Sadura/Getty Images)
+
+![](images/2026-01/20260122_KarlovyVary_1920x1080.jpg)
+
 #### 20260121 Eurasian red squirrel (© Galina Jacyna/Getty Images)
 
 ![](images/2026-01/20260121_BerrySquirrel_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260114 The staircase of the Fortress of Palamidi, Nafplio, Greece (© George Pachantouris/Getty Images)
 
 ![](images/2026-01/20260114_PalamidiFortress_1920x1080.jpg)
-
-#### 20260113 Vale of Clwyd, Wales (© Valerie Blencowe/Getty Images)
-
-![](images/2026-01/20260113_WalesWinter_1920x1080.jpg)
 
 
 

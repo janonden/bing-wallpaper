@@ -1,3 +1,7 @@
+#### 20260122 卡罗维瓦利，波西米亚，捷克共和国 (© Henryk Sadura/Getty Images)
+
+![](20260122_KarlovyVary_1920x1080.jpg)
+
 #### 20260121 Eurasian red squirrel (© Galina Jacyna/Getty Images)
 
 ![](20260121_BerrySquirrel_1920x1080.jpg)
