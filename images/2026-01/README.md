@@ -1,4 +1,4 @@
-#### 20260121 欧亚红松鼠 (© Galina Jacyna/Getty Images)
+#### 20260121 Eurasian red squirrel (© Galina Jacyna/Getty Images)
 
 ![](20260121_BerrySquirrel_1920x1080.jpg)
 
