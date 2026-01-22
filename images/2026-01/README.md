@@ -1,3 +1,7 @@
+#### 20260123 绵羊在雪地里吃草，冰岛 (© Christophe Lehenaff/Getty Images)
+
+![](20260123_IcelandSheep_1920x1080.jpg)
+
 #### 20260122 Mimram-Fußgängerbrücke über den Rhein zwischen Frankreich und Deutschland (© Leonid Andronov/Alamy)
 
 ![](20260122_Mimramfootbridge_1920x1080.jpg)

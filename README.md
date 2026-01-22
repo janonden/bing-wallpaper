@@ -1,3 +1,7 @@
+#### 20260123 绵羊在雪地里吃草，冰岛 (© Christophe Lehenaff/Getty Images)
+
+![](images/2026-01/20260123_IcelandSheep_1920x1080.jpg)
+
 #### 20260122 Mimram-Fußgängerbrücke über den Rhein zwischen Frankreich und Deutschland (© Leonid Andronov/Alamy)
 
 ![](images/2026-01/20260122_Mimramfootbridge_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260116 Cerf cachés dans la forêt (© AB Photography/Getty images)
 
 ![](images/2026-01/20260116_DeerWinter_1920x1080.jpg)
-
-#### 20260115 The fishing village of Reine, Norway (© Roberto Moiola/Cavan Images/SuperStock)
-
-![](images/2026-01/20260115_ReineSunrise_1920x1080.jpg)
 
 
 
