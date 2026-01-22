@@ -1,3 +1,7 @@
+#### 20260122 Mimram-Fußgängerbrücke über den Rhein zwischen Frankreich und Deutschland (© Leonid Andronov/Alamy)
+
+![](images/2026-01/20260122_Mimramfootbridge_1920x1080.jpg)
+
 #### 20260122 卡罗维瓦利，波西米亚，捷克共和国 (© Henryk Sadura/Getty Images)
 
 ![](images/2026-01/20260122_KarlovyVary_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260115 The fishing village of Reine, Norway (© Roberto Moiola/Cavan Images/SuperStock)
 
 ![](images/2026-01/20260115_ReineSunrise_1920x1080.jpg)
-
-#### 20260114 The staircase of the Fortress of Palamidi, Nafplio, Greece (© George Pachantouris/Getty Images)
-
-![](images/2026-01/20260114_PalamidiFortress_1920x1080.jpg)
 
 
 

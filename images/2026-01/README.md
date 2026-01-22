@@ -1,3 +1,7 @@
+#### 20260122 Mimram-Fußgängerbrücke über den Rhein zwischen Frankreich und Deutschland (© Leonid Andronov/Alamy)
+
+![](20260122_Mimramfootbridge_1920x1080.jpg)
+
 #### 20260122 卡罗维瓦利，波西米亚，捷克共和国 (© Henryk Sadura/Getty Images)
 
 ![](20260122_KarlovyVary_1920x1080.jpg)
