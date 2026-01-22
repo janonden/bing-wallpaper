@@ -2,7 +2,7 @@
 
 ![](20260122_Mimramfootbridge_1920x1080.jpg)
 
-#### 20260122 卡罗维瓦利，波西米亚，捷克共和国 (© Henryk Sadura/Getty Images)
+#### 20260122 Karlovy Vary, Bohemia, Czechia (© Henryk Sadura/Getty Images)
 
 ![](20260122_KarlovyVary_1920x1080.jpg)
 
