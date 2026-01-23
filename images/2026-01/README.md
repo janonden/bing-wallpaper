@@ -1,3 +1,7 @@
+#### 20260124 阿尔卑斯山脉的安德马特小镇，瑞士 (© Xantana/Getty Images)
+
+![](20260124_AndermattSwiss_1920x1080.jpg)
+
 #### 20260123 Sheep grazing in snow, Iceland (© Christophe Lehenaff/Getty Images)
 
 ![](20260123_IcelandSheep_1920x1080.jpg)

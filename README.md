@@ -1,3 +1,7 @@
+#### 20260124 阿尔卑斯山脉的安德马特小镇，瑞士 (© Xantana/Getty Images)
+
+![](images/2026-01/20260124_AndermattSwiss_1920x1080.jpg)
+
 #### 20260123 Sheep grazing in snow, Iceland (© Christophe Lehenaff/Getty Images)
 
 ![](images/2026-01/20260123_IcelandSheep_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260116 Leopard at Etosha National Park, Namibia (© Norbert Achtelik/Cavan Images)
 
 ![](images/2026-01/20260116_EtoshaLeopard_1920x1080.jpg)
-
-#### 20260116 Cerf cachés dans la forêt (© AB Photography/Getty images)
-
-![](images/2026-01/20260116_DeerWinter_1920x1080.jpg)
 
 
 
