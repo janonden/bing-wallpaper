@@ -1,4 +1,4 @@
-#### 20260123 绵羊在雪地里吃草，冰岛 (© Christophe Lehenaff/Getty Images)
+#### 20260123 Sheep grazing in snow, Iceland (© Christophe Lehenaff/Getty Images)
 
 ![](20260123_IcelandSheep_1920x1080.jpg)
 
