@@ -1,3 +1,7 @@
+#### 20260125 伯恩斯国家遗产公园，艾尔，南艾尔郡，苏格兰 (© Alister Firth/Alamy)
+
+![](20260125_BurnsPark_1920x1080.jpg)
+
 #### 20260124 Andermatt village in the Alps, Switzerland (© Xantana/Getty Images)
 
 ![](20260124_AndermattSwiss_1920x1080.jpg)
