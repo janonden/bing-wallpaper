@@ -1,4 +1,4 @@
-#### 20260125 伯恩斯国家遗产公园，艾尔，南艾尔郡，苏格兰 (© Alister Firth/Alamy)
+#### 20260125 Burns National Heritage Park, Ayr, Ayrshire, Scotland (© Alister Firth/Alamy)
 
 ![](images/2026-01/20260125_BurnsPark_1920x1080.jpg)
 
