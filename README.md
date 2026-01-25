@@ -1,3 +1,7 @@
+#### 20260126 新天鹅堡，巴伐利亚州，德国 (© www.fredconcha.com @ All Rights Reserved/Getty Images)
+
+![](images/2026-01/20260126_NeuschwansteinWinter_1920x1080.jpg)
+
 #### 20260125 Burns National Heritage Park, Ayr, Ayrshire, Scotland (© Alister Firth/Alamy)
 
 ![](images/2026-01/20260125_BurnsPark_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260118 Fernando de Noronha, Pernambuco, Brazil (© Stephanie Kenner/Getty Images)
 
 ![](images/2026-01/20260118_NoronhaSunset_1920x1080.jpg)
-
-#### 20260117 Basilica of San Francesco di Paola, Naples, Italy (© javarman3/Getty Images)
-
-![](images/2026-01/20260117_NaplesBasilica_1920x1080.jpg)
 
 
 

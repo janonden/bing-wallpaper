@@ -1,3 +1,7 @@
+#### 20260126 新天鹅堡，巴伐利亚州，德国 (© www.fredconcha.com @ All Rights Reserved/Getty Images)
+
+![](20260126_NeuschwansteinWinter_1920x1080.jpg)
+
 #### 20260125 Burns National Heritage Park, Ayr, Ayrshire, Scotland (© Alister Firth/Alamy)
 
 ![](20260125_BurnsPark_1920x1080.jpg)
