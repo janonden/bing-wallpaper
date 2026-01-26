@@ -1,4 +1,8 @@
-#### 20260126 新天鹅堡，巴伐利亚州，德国 (© www.fredconcha.com @ All Rights Reserved/Getty Images)
+#### 20260127 Retiro Park, Madrid, Spain (© All rights reserved-Copyright/Getty Images)
+
+![](images/2026-01/20260127_FITUR_1920x1080.jpg)
+
+#### 20260126 Neuschwanstein Castle, Bavaria, Germany (© www.fredconcha.com @ All Rights Reserved/Getty Images)
 
 ![](images/2026-01/20260126_NeuschwansteinWinter_1920x1080.jpg)
 
@@ -53,10 +57,6 @@
 #### 20260119 亚伯拉罕湖冰封景象，艾伯塔省，加拿大 (© Luis F Arevalo/Getty Images)
 
 ![](images/2026-01/20260119_BubblesAbraham_1920x1080.jpg)
-
-#### 20260118 White Sands National Park, New Mexico (© Francesco Carucci/Getty Images)
-
-![](images/2026-01/20260118_WhiteSandsNM_1920x1080.jpg)
 
 
 
