@@ -2,6 +2,10 @@
 
 ![](images/2026-01/20260127_FITUR_1920x1080.jpg)
 
+#### 20260127 卷羽鹈鹕，凯尔基尼湖，希腊 (© Guy Edwardes/naturepl.com)
+
+![](images/2026-01/20260127_DalmationPelicans_1920x1080.jpg)
+
 #### 20260126 Neuschwanstein Castle, Bavaria, Germany (© www.fredconcha.com @ All Rights Reserved/Getty Images)
 
 ![](images/2026-01/20260126_NeuschwansteinWinter_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260119 エクスターンシュタイネ岩塔群, ドイツ (© Michael Sroka/Getty Images)
 
 ![](images/2026-01/20260119_ExternsteineSunset_1920x1080.jpg)
-
-#### 20260119 亚伯拉罕湖冰封景象，艾伯塔省，加拿大 (© Luis F Arevalo/Getty Images)
-
-![](images/2026-01/20260119_BubblesAbraham_1920x1080.jpg)
 
 
 

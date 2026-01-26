@@ -2,6 +2,10 @@
 
 ![](20260127_FITUR_1920x1080.jpg)
 
+#### 20260127 卷羽鹈鹕，凯尔基尼湖，希腊 (© Guy Edwardes/naturepl.com)
+
+![](20260127_DalmationPelicans_1920x1080.jpg)
+
 #### 20260126 Neuschwanstein Castle, Bavaria, Germany (© www.fredconcha.com @ All Rights Reserved/Getty Images)
 
 ![](20260126_NeuschwansteinWinter_1920x1080.jpg)
