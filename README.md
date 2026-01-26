@@ -2,6 +2,10 @@
 
 ![](images/2026-01/20260126_NeuschwansteinWinter_1920x1080.jpg)
 
+#### 20260126 Une mésange bleue en hiver (© Marc Andreu/Getty Images)
+
+![](images/2026-01/20260126_BluetitWinter_1920x1080.jpg)
+
 #### 20260125 Burns National Heritage Park, Ayr, Ayrshire, Scotland (© Alister Firth/Alamy)
 
 ![](images/2026-01/20260125_BurnsPark_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260118 White Sands National Park, New Mexico (© Francesco Carucci/Getty Images)
 
 ![](images/2026-01/20260118_WhiteSandsNM_1920x1080.jpg)
-
-#### 20260118 Fernando de Noronha, Pernambuco, Brazil (© Stephanie Kenner/Getty Images)
-
-![](images/2026-01/20260118_NoronhaSunset_1920x1080.jpg)
 
 
 

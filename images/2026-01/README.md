@@ -2,6 +2,10 @@
 
 ![](20260126_NeuschwansteinWinter_1920x1080.jpg)
 
+#### 20260126 Une mésange bleue en hiver (© Marc Andreu/Getty Images)
+
+![](20260126_BluetitWinter_1920x1080.jpg)
+
 #### 20260125 Burns National Heritage Park, Ayr, Ayrshire, Scotland (© Alister Firth/Alamy)
 
 ![](20260125_BurnsPark_1920x1080.jpg)
