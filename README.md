@@ -1,3 +1,7 @@
+#### 20260128 旺格努伊国家公园，雷塔鲁克，新西兰 (© Matthew Micah Wright/Getty Images)
+
+![](images/2026-01/20260128_WhanganuiPark_1920x1080.jpg)
+
 #### 20260127 Retiro Park, Madrid, Spain (© All rights reserved-Copyright/Getty Images)
 
 ![](images/2026-01/20260127_FITUR_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260119 Washington Monument seen from Lincoln Memorial, Washington, DC (© RickSause/Getty Images)
 
 ![](images/2026-01/20260119_MLKSunrise_1920x1080.jpg)
-
-#### 20260119 エクスターンシュタイネ岩塔群, ドイツ (© Michael Sroka/Getty Images)
-
-![](images/2026-01/20260119_ExternsteineSunset_1920x1080.jpg)
 
 
 
