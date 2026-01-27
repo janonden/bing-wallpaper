@@ -2,7 +2,7 @@
 
 ![](20260127_FITUR_1920x1080.jpg)
 
-#### 20260127 卷羽鹈鹕，凯尔基尼湖，希腊 (© Guy Edwardes/naturepl.com)
+#### 20260127 Dalmatian pelicans, Lake Kerkini, Greece (© Guy Edwardes/naturepl.com)
 
 ![](20260127_DalmationPelicans_1920x1080.jpg)
 
