@@ -1,4 +1,4 @@
-#### 20260128 旺格努伊国家公园，雷塔鲁克，新西兰 (© Matthew Micah Wright/Getty Images)
+#### 20260128 Whanganui National Park, Retaruke, New Zealand (© Matthew Micah Wright/Getty Images)
 
 ![](20260128_WhanganuiPark_1920x1080.jpg)
 
