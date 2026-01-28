@@ -1,3 +1,7 @@
+#### 20260129 密尔沃基市政厅的八层开放式中庭，威斯康星州，美国 (© lavin photography/Getty Images)
+
+![](images/2026-01/20260129_MilwaukeeHall_1920x1080.jpg)
+
 #### 20260128 Whanganui National Park, Retaruke, New Zealand (© Matthew Micah Wright/Getty Images)
 
 ![](images/2026-01/20260128_WhanganuiPark_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260120 雪に覆われた星峠の棚田, 新潟県 十日町市 (© solakoudai/Shutterstock)
 
 ![](images/2026-01/20260120_Daikan_1920x1080.jpg)
-
-#### 20260119 Washington Monument seen from Lincoln Memorial, Washington, DC (© RickSause/Getty Images)
-
-![](images/2026-01/20260119_MLKSunrise_1920x1080.jpg)
 
 
 
