@@ -1,4 +1,4 @@
-#### 20260129 密尔沃基市政厅的八层开放式中庭，威斯康星州，美国 (© lavin photography/Getty Images)
+#### 20260129 The eight-story open atrium of Milwaukee City Hall, Wisconsin (© lavin photography/Getty Images)
 
 ![](20260129_MilwaukeeHall_1920x1080.jpg)
 
