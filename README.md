@@ -1,3 +1,7 @@
+#### 20260130 马拉齐翁的圣迈克尔山, 康沃尔郡, 英格兰 (© Baxter Bradford/robertharding/Getty Images)
+
+![](images/2026-01/20260130_StMichaelsCornwall_1920x1080.jpg)
+
 #### 20260129 The eight-story open atrium of Milwaukee City Hall, Wisconsin (© lavin photography/Getty Images)
 
 ![](images/2026-01/20260129_MilwaukeeHall_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260120 Gentoo penguin, Petermann Island, Antarctica (© Paul Souders/DanitaDelimont.com/Alamy)
 
 ![](images/2026-01/20260120_IciclePenguin_1920x1080.jpg)
-
-#### 20260120 雪に覆われた星峠の棚田, 新潟県 十日町市 (© solakoudai/Shutterstock)
-
-![](images/2026-01/20260120_Daikan_1920x1080.jpg)
 
 
 

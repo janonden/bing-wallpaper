@@ -1,3 +1,7 @@
+#### 20260130 马拉齐翁的圣迈克尔山, 康沃尔郡, 英格兰 (© Baxter Bradford/robertharding/Getty Images)
+
+![](20260130_StMichaelsCornwall_1920x1080.jpg)
+
 #### 20260129 The eight-story open atrium of Milwaukee City Hall, Wisconsin (© lavin photography/Getty Images)
 
 ![](20260129_MilwaukeeHall_1920x1080.jpg)
