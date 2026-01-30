@@ -1,3 +1,7 @@
+#### 20260130 'Kimono' sculpted by Hiroaki Kimura and Masaki Takahashi of Japan, Winterlude 2010 (© PensiveDragon/Shutterstock)
+
+![](20260130_WinterludeKimono_1920x1080.jpg)
+
 #### 20260130 马拉齐翁的圣迈克尔山, 康沃尔郡, 英格兰 (© Baxter Bradford/robertharding/Getty Images)
 
 ![](20260130_StMichaelsCornwall_1920x1080.jpg)

@@ -1,3 +1,7 @@
+#### 20260130 'Kimono' sculpted by Hiroaki Kimura and Masaki Takahashi of Japan, Winterlude 2010 (© PensiveDragon/Shutterstock)
+
+![](images/2026-01/20260130_WinterludeKimono_1920x1080.jpg)
+
 #### 20260130 马拉齐翁的圣迈克尔山, 康沃尔郡, 英格兰 (© Baxter Bradford/robertharding/Getty Images)
 
 ![](images/2026-01/20260130_StMichaelsCornwall_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260120 栖息在树枝上的北长尾山雀，大庆市，中国黑龙江省 (© Visual China Group/Getty Images)
 
 ![](images/2026-01/20260120_TheGreatColdY_1920x1080.jpg)
-
-#### 20260120 Gentoo penguin, Petermann Island, Antarctica (© Paul Souders/DanitaDelimont.com/Alamy)
-
-![](images/2026-01/20260120_IciclePenguin_1920x1080.jpg)
 
 
 
