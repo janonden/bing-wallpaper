@@ -34,6 +34,10 @@
 
 ![](images/2026-01/20260126_NeuschwansteinWinter_1920x1080.jpg)
 
+#### 20260126 アブラハムレイク, カナダ (© Luis F Arevalo/Getty Images)
+
+![](images/2026-01/20260126_BubblesAbraham_1920x1080.jpg)
+
 #### 20260126 Une mésange bleue en hiver (© Marc Andreu/Getty Images)
 
 ![](images/2026-01/20260126_BluetitWinter_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260122 Mimram-Fußgängerbrücke über den Rhein zwischen Frankreich und Deutschland (© Leonid Andronov/Alamy)
 
 ![](images/2026-01/20260122_Mimramfootbridge_1920x1080.jpg)
-
-#### 20260122 Karlovy Vary, Bohemia, Czechia (© Henryk Sadura/Getty Images)
-
-![](images/2026-01/20260122_KarlovyVary_1920x1080.jpg)
 
 
 
