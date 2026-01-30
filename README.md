@@ -2,7 +2,7 @@
 
 ![](images/2026-01/20260130_WinterludeKimono_1920x1080.jpg)
 
-#### 20260130 马拉齐翁的圣迈克尔山, 康沃尔郡, 英格兰 (© Baxter Bradford/robertharding/Getty Images)
+#### 20260130 St. Michael's Mount in Marazion, Cornwall, England (© Baxter Bradford/robertharding/Getty Images)
 
 ![](images/2026-01/20260130_StMichaelsCornwall_1920x1080.jpg)
 
