@@ -1,3 +1,11 @@
+#### 20260131 ライトアップされた氷像, 北海道 千歳市 (© Hide's photos/Shutterstock)
+
+![](20260131_IceFestival_1920x1080.jpg)
+
+#### 20260131 平原斑马, 埃托沙国家公园, 纳米比亚 (© Mogens Trolle/Shutterstock)
+
+![](20260131_EtoshaZebra_1920x1080.jpg)
+
 #### 20260130 'Kimono' sculpted by Hiroaki Kimura and Masaki Takahashi of Japan, Winterlude 2010 (© PensiveDragon/Shutterstock)
 
 ![](20260130_WinterludeKimono_1920x1080.jpg)
