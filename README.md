@@ -1,3 +1,11 @@
+#### 20260201 奥林达的彩色房子, 巴西 (© Robert Pekar/Alamy)
+
+![](images/2026-02/20260201_Olinda_1920x1080.jpg)
+
+#### 20260201 セイタカシギ, フランス (© Antonio Sementa/500px/Getty Images)
+
+![](images/2026-02/20260201_Echasse_1920x1080.jpg)
+
 #### 20260131 ライトアップされた氷像, 北海道 千歳市 (© Hide's photos/Shutterstock)
 
 ![](images/2026-01/20260131_IceFestival_1920x1080.jpg)
@@ -50,14 +58,6 @@
 
 ![](images/2026-01/20260124_AndermattSwiss_1920x1080.jpg)
 
-#### 20260123 Sheep grazing in snow, Iceland (© Christophe Lehenaff/Getty Images)
-
-![](images/2026-01/20260123_IcelandSheep_1920x1080.jpg)
-
-#### 20260122 Mimram-Fußgängerbrücke über den Rhein zwischen Frankreich und Deutschland (© Leonid Andronov/Alamy)
-
-![](images/2026-01/20260122_Mimramfootbridge_1920x1080.jpg)
-
 
 
 
@@ -66,7 +66,7 @@
 
 
 
-- 2026&emsp;&emsp;[01](images/2026-01/README.md) 
+- 2026&emsp;&emsp;[02](images/2026-02/README.md) &emsp;&emsp;[01](images/2026-01/README.md) 
 
 - 2025&emsp;&emsp;[12](https://github.com/janonden/bing-wallpaper/blob/2025/images/2025-12/README.md) &emsp;&emsp;[11](https://github.com/janonden/bing-wallpaper/blob/2025/images/2025-11/README.md) &emsp;&emsp;[10](https://github.com/janonden/bing-wallpaper/blob/2025/images/2025-10/README.md) &emsp;&emsp;[09](https://github.com/janonden/bing-wallpaper/blob/2025/images/2025-09/README.md) &emsp;&emsp;[08](https://github.com/janonden/bing-wallpaper/blob/2025/images/2025-08/README.md) &emsp;&emsp;[07](https://github.com/janonden/bing-wallpaper/blob/2025/images/2025-07/README.md) &emsp;&emsp;[06](https://github.com/janonden/bing-wallpaper/blob/2025/images/2025-06/README.md) &emsp;&emsp;[05](https://github.com/janonden/bing-wallpaper/blob/2025/images/2025-05/README.md) &emsp;&emsp;[04](https://github.com/janonden/bing-wallpaper/blob/2025/images/2025-04/README.md) &emsp;&emsp;[03](https://github.com/janonden/bing-wallpaper/blob/2025/images/2025-03/README.md) &emsp;&emsp;[02](https://github.com/janonden/bing-wallpaper/blob/2025/images/2025-02/README.md) &emsp;&emsp;[01](https://github.com/janonden/bing-wallpaper/blob/2025/images/2025-01/README.md) 
 
