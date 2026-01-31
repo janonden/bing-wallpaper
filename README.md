@@ -2,7 +2,7 @@
 
 ![](images/2026-01/20260131_IceFestival_1920x1080.jpg)
 
-#### 20260131 平原斑马, 埃托沙国家公园, 纳米比亚 (© Mogens Trolle/Shutterstock)
+#### 20260131 Plains zebras, Etosha National Park, Namibia (© Mogens Trolle/Shutterstock)
 
 ![](images/2026-01/20260131_EtoshaZebra_1920x1080.jpg)
 
