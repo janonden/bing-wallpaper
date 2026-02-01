@@ -6,6 +6,10 @@
 
 ![](images/2026-02/20260201_Echasse_1920x1080.jpg)
 
+#### 20260201 US Army nurses arrive in Greenock, Scotland, 1944 (© Stocktrek Images, Inc/Alamy)
+
+![](images/2026-02/20260201_ArmyNurses_1920x1080.jpg)
+
 #### 20260201 Des marmottes des Alpes, Parc National des Hohe Tauern, Autriche (© Raimund Linke/Getty Images)
 
 ![](images/2026-02/20260201_AlpineMarmots_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260126 Une mésange bleue en hiver (© Marc Andreu/Getty Images)
 
 ![](images/2026-01/20260126_BluetitWinter_1920x1080.jpg)
-
-#### 20260125 Burns National Heritage Park, Ayr, Ayrshire, Scotland (© Alister Firth/Alamy)
-
-![](images/2026-01/20260125_BurnsPark_1920x1080.jpg)
 
 
 
