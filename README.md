@@ -6,6 +6,10 @@
 
 ![](images/2026-02/20260201_Echasse_1920x1080.jpg)
 
+#### 20260201 Des marmottes des Alpes, Parc National des Hohe Tauern, Autriche (© Raimund Linke/Getty Images)
+
+![](images/2026-02/20260201_AlpineMarmots_1920x1080.jpg)
+
 #### 20260131 ライトアップされた氷像, 北海道 千歳市 (© Hide's photos/Shutterstock)
 
 ![](images/2026-01/20260131_IceFestival_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260125 Burns National Heritage Park, Ayr, Ayrshire, Scotland (© Alister Firth/Alamy)
 
 ![](images/2026-01/20260125_BurnsPark_1920x1080.jpg)
-
-#### 20260124 Andermatt village in the Alps, Switzerland (© Xantana/Getty Images)
-
-![](images/2026-01/20260124_AndermattSwiss_1920x1080.jpg)
 
 
 
