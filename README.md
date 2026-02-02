@@ -1,3 +1,7 @@
+#### 20260203 翡翠湾和范内特岛, 太浩湖, 加利福尼亚州, 美国 (© Bill Stevenson/Cavan Images)
+
+![](images/2026-02/20260203_FanetteIsland_1920x1080.jpg)
+
 #### 20260202 Le phare de Kermorvan au coucher de soleil, Bretagne, France (© Fisfra/Getty Images)
 
 ![](images/2026-02/20260202_BretagneCrepe_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260126 Neuschwanstein Castle, Bavaria, Germany (© www.fredconcha.com @ All Rights Reserved/Getty Images)
 
 ![](images/2026-01/20260126_NeuschwansteinWinter_1920x1080.jpg)
-
-#### 20260126 アブラハムレイク, カナダ (© Luis F Arevalo/Getty Images)
-
-![](images/2026-01/20260126_BubblesAbraham_1920x1080.jpg)
 
 
 

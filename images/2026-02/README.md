@@ -1,3 +1,7 @@
+#### 20260203 翡翠湾和范内特岛, 太浩湖, 加利福尼亚州, 美国 (© Bill Stevenson/Cavan Images)
+
+![](20260203_FanetteIsland_1920x1080.jpg)
+
 #### 20260202 Le phare de Kermorvan au coucher de soleil, Bretagne, France (© Fisfra/Getty Images)
 
 ![](20260202_BretagneCrepe_1920x1080.jpg)
