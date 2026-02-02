@@ -14,7 +14,7 @@
 
 ![](20260201_ArmyNurses_1920x1080.jpg)
 
-#### 20260201 Des marmottes des Alpes, Parc National des Hohe Tauern, Autriche (© Raimund Linke/Getty Images)
+#### 20260201 Alpine marmots, Hohe Tauern National Park, Austria (© Raimund Linke/Getty Images)
 
 ![](20260201_AlpineMarmots_1920x1080.jpg)
 
