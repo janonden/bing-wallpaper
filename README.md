@@ -1,3 +1,7 @@
+#### 20260202 Le phare de Kermorvan au coucher de soleil, Bretagne, France (© Fisfra/Getty Images)
+
+![](images/2026-02/20260202_BretagneCrepe_1920x1080.jpg)
+
 #### 20260201 奥林达的彩色房子, 巴西 (© Robert Pekar/Alamy)
 
 ![](images/2026-02/20260201_Olinda_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260126 アブラハムレイク, カナダ (© Luis F Arevalo/Getty Images)
 
 ![](images/2026-01/20260126_BubblesAbraham_1920x1080.jpg)
-
-#### 20260126 Une mésange bleue en hiver (© Marc Andreu/Getty Images)
-
-![](images/2026-01/20260126_BluetitWinter_1920x1080.jpg)
 
 
 
