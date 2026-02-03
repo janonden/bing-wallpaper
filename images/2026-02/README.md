@@ -1,4 +1,4 @@
-#### 20260203 翡翠湾和范内特岛, 太浩湖, 加利福尼亚州, 美国 (© Bill Stevenson/Cavan Images)
+#### 20260203 Emerald Bay and Fannette Island, Lake Tahoe, California (© Bill Stevenson/Cavan Images)
 
 ![](20260203_FanetteIsland_1920x1080.jpg)
 
