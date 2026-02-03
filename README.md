@@ -1,3 +1,11 @@
+#### 20260204 梅の枝に止まるメジロ (© naotoshinkai/Getty Images)
+
+![](images/2026-02/20260204_Risshun_1920x1080.jpg)
+
+#### 20260204 雪中​​的红鸢 (© Carl Mckie/500px/Getty Images)
+
+![](images/2026-02/20260204_BigGardenBirdwatch_1920x1080.jpg)
+
 #### 20260203 Emerald Bay and Fannette Island, Lake Tahoe, California (© Bill Stevenson/Cavan Images)
 
 ![](images/2026-02/20260203_FanetteIsland_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20260127 Retiro Park, Madrid, Spain (© All rights reserved-Copyright/Getty Images)
 
 ![](images/2026-01/20260127_FITUR_1920x1080.jpg)
-
-#### 20260127 Dalmatian pelicans, Lake Kerkini, Greece (© Guy Edwardes/naturepl.com)
-
-![](images/2026-01/20260127_DalmationPelicans_1920x1080.jpg)
-
-#### 20260126 Neuschwanstein Castle, Bavaria, Germany (© www.fredconcha.com @ All Rights Reserved/Getty Images)
-
-![](images/2026-01/20260126_NeuschwansteinWinter_1920x1080.jpg)
 
 
 
