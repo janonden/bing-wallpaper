@@ -2,6 +2,10 @@
 
 ![](images/2026-02/20260204_Risshun_1920x1080.jpg)
 
+#### 20260204 Rosa Parks in stained glass window, Shorter Community African Methodist Episcopal Church, Denver (© Cyrus McCrimmon/The Denver Post via Getty Images)
+
+![](images/2026-02/20260204_ParksGlass_1920x1080.jpg)
+
 #### 20260204 Speicherstadt in der Dämmerung, Hamburg (© bluejayphoto/Getty Images)
 
 ![](images/2026-02/20260204_HamburgSpeicherstadt_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260129 The eight-story open atrium of Milwaukee City Hall, Wisconsin (© lavin photography/Getty Images)
 
 ![](images/2026-01/20260129_MilwaukeeHall_1920x1080.jpg)
-
-#### 20260128 Whanganui National Park, Retaruke, New Zealand (© Matthew Micah Wright/Getty Images)
-
-![](images/2026-01/20260128_WhanganuiPark_1920x1080.jpg)
 
 
 

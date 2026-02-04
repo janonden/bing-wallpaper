@@ -2,6 +2,10 @@
 
 ![](20260204_Risshun_1920x1080.jpg)
 
+#### 20260204 Rosa Parks in stained glass window, Shorter Community African Methodist Episcopal Church, Denver (© Cyrus McCrimmon/The Denver Post via Getty Images)
+
+![](20260204_ParksGlass_1920x1080.jpg)
+
 #### 20260204 Speicherstadt in der Dämmerung, Hamburg (© bluejayphoto/Getty Images)
 
 ![](20260204_HamburgSpeicherstadt_1920x1080.jpg)
