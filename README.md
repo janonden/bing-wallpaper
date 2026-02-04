@@ -2,6 +2,10 @@
 
 ![](images/2026-02/20260204_Risshun_1920x1080.jpg)
 
+#### 20260204 Speicherstadt in der Dämmerung, Hamburg (© bluejayphoto/Getty Images)
+
+![](images/2026-02/20260204_HamburgSpeicherstadt_1920x1080.jpg)
+
 #### 20260204 雪中​​的红鸢 (© Carl Mckie/500px/Getty Images)
 
 ![](images/2026-02/20260204_BigGardenBirdwatch_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260128 Whanganui National Park, Retaruke, New Zealand (© Matthew Micah Wright/Getty Images)
 
 ![](images/2026-01/20260128_WhanganuiPark_1920x1080.jpg)
-
-#### 20260127 Retiro Park, Madrid, Spain (© All rights reserved-Copyright/Getty Images)
-
-![](images/2026-01/20260127_FITUR_1920x1080.jpg)
 
 
 

@@ -2,6 +2,10 @@
 
 ![](20260204_Risshun_1920x1080.jpg)
 
+#### 20260204 Speicherstadt in der Dämmerung, Hamburg (© bluejayphoto/Getty Images)
+
+![](20260204_HamburgSpeicherstadt_1920x1080.jpg)
+
 #### 20260204 雪中​​的红鸢 (© Carl Mckie/500px/Getty Images)
 
 ![](20260204_BigGardenBirdwatch_1920x1080.jpg)
