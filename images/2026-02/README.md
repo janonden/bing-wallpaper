@@ -1,4 +1,4 @@
-#### 20260205 戈佐岛上的盐田, 马耳他 (© Marius Roman/Getty Images)
+#### 20260205 Salt evaporation ponds on the island of Gozo, Malta (© Marius Roman/Getty Images)
 
 ![](20260205_MaltaSalt_1920x1080.jpg)
 
