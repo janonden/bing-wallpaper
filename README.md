@@ -1,3 +1,7 @@
+#### 20260206 贾乌山口的拉古塞拉峰, 在科尔蒂纳丹佩佐附近, 意大利 (© Tomasz Podolski/Getty Images)
+
+![](images/2026-02/20260206_GiauPass_1920x1080.jpg)
+
 #### 20260205 Salt evaporation ponds on the island of Gozo, Malta (© Marius Roman/Getty Images)
 
 ![](images/2026-02/20260205_MaltaSalt_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260130 'Kimono' sculpted by Hiroaki Kimura and Masaki Takahashi of Japan, Winterlude 2010 (© PensiveDragon/Shutterstock)
 
 ![](images/2026-01/20260130_WinterludeKimono_1920x1080.jpg)
-
-#### 20260130 St. Michael's Mount in Marazion, Cornwall, England (© Baxter Bradford/robertharding/Getty Images)
-
-![](images/2026-01/20260130_StMichaelsCornwall_1920x1080.jpg)
 
 
 

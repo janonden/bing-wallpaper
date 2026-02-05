@@ -1,3 +1,7 @@
+#### 20260206 贾乌山口的拉古塞拉峰, 在科尔蒂纳丹佩佐附近, 意大利 (© Tomasz Podolski/Getty Images)
+
+![](20260206_GiauPass_1920x1080.jpg)
+
 #### 20260205 Salt evaporation ponds on the island of Gozo, Malta (© Marius Roman/Getty Images)
 
 ![](20260205_MaltaSalt_1920x1080.jpg)
