@@ -1,3 +1,11 @@
+#### 20260207 大通公園, 札幌市 (© Reuters/Kimimasa Mayama)
+
+![](20260207_SapporoSnowFestival_1920x1080.jpg)
+
+#### 20260207 玻利维亚乌尤尼盐湖 (© Abstract Aerial Art/Getty Images)
+
+![](20260207_SalarUyuni_1920x1080.jpg)
+
 #### 20260206 Ra Gusela peak at Giau Pass, near Cortina d'Ampezzo, Italy (© Tomasz Podolski/Getty Images)
 
 ![](20260206_GiauPass_1920x1080.jpg)

@@ -1,3 +1,11 @@
+#### 20260207 大通公園, 札幌市 (© Reuters/Kimimasa Mayama)
+
+![](images/2026-02/20260207_SapporoSnowFestival_1920x1080.jpg)
+
+#### 20260207 玻利维亚乌尤尼盐湖 (© Abstract Aerial Art/Getty Images)
+
+![](images/2026-02/20260207_SalarUyuni_1920x1080.jpg)
+
 #### 20260206 Ra Gusela peak at Giau Pass, near Cortina d'Ampezzo, Italy (© Tomasz Podolski/Getty Images)
 
 ![](images/2026-02/20260206_GiauPass_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20260131 ライトアップされた氷像, 北海道 千歳市 (© Hide's photos/Shutterstock)
 
 ![](images/2026-01/20260131_IceFestival_1920x1080.jpg)
-
-#### 20260131 Plains zebras, Etosha National Park, Namibia (© Mogens Trolle/Shutterstock)
-
-![](images/2026-01/20260131_EtoshaZebra_1920x1080.jpg)
-
-#### 20260130 'Kimono' sculpted by Hiroaki Kimura and Masaki Takahashi of Japan, Winterlude 2010 (© PensiveDragon/Shutterstock)
-
-![](images/2026-01/20260130_WinterludeKimono_1920x1080.jpg)
 
 
 
