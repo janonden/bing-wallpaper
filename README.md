@@ -1,4 +1,4 @@
-#### 20260206 贾乌山口的拉古塞拉峰, 在科尔蒂纳丹佩佐附近, 意大利 (© Tomasz Podolski/Getty Images)
+#### 20260206 Ra Gusela peak at Giau Pass, near Cortina d'Ampezzo, Italy (© Tomasz Podolski/Getty Images)
 
 ![](images/2026-02/20260206_GiauPass_1920x1080.jpg)
 
