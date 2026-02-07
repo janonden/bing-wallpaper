@@ -1,3 +1,7 @@
+#### 20260208 科孚岛的夜晚, 希腊 (© whitewizzard/Getty Images)
+
+![](images/2026-02/20260208_CorfuGreece_1920x1080.jpg)
+
 #### 20260207 大通公園, 札幌市 (© Reuters/Kimimasa Mayama)
 
 ![](images/2026-02/20260207_SapporoSnowFestival_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260201 Alpine marmots, Hohe Tauern National Park, Austria (© Raimund Linke/Getty Images)
 
 ![](images/2026-02/20260201_AlpineMarmots_1920x1080.jpg)
-
-#### 20260131 ライトアップされた氷像, 北海道 千歳市 (© Hide's photos/Shutterstock)
-
-![](images/2026-01/20260131_IceFestival_1920x1080.jpg)
 
 
 

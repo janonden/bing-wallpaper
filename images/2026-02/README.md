@@ -1,3 +1,7 @@
+#### 20260208 科孚岛的夜晚, 希腊 (© whitewizzard/Getty Images)
+
+![](20260208_CorfuGreece_1920x1080.jpg)
+
 #### 20260207 大通公園, 札幌市 (© Reuters/Kimimasa Mayama)
 
 ![](20260207_SapporoSnowFestival_1920x1080.jpg)
