@@ -2,7 +2,7 @@
 
 ![](20260207_SapporoSnowFestival_1920x1080.jpg)
 
-#### 20260207 玻利维亚乌尤尼盐湖 (© Abstract Aerial Art/Getty Images)
+#### 20260207 Salar de Uyuni salt flats in Bolivia (© Abstract Aerial Art/Getty Images)
 
 ![](20260207_SalarUyuni_1920x1080.jpg)
 
