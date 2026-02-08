@@ -1,3 +1,7 @@
+#### 20260209 阿穆尔豹猫，俄罗斯 (© Valeriy Maleev/naturepl.com)
+
+![](20260209_LeopardCat_1920x1080.jpg)
+
 #### 20260208 Corfu at night, Greece (© whitewizzard/Getty Images)
 
 ![](20260208_CorfuGreece_1920x1080.jpg)

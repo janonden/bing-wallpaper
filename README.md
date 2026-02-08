@@ -1,3 +1,7 @@
+#### 20260209 阿穆尔豹猫，俄罗斯 (© Valeriy Maleev/naturepl.com)
+
+![](images/2026-02/20260209_LeopardCat_1920x1080.jpg)
+
 #### 20260208 Corfu at night, Greece (© whitewizzard/Getty Images)
 
 ![](images/2026-02/20260208_CorfuGreece_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260201 US Army nurses arrive in Greenock, Scotland, 1944 (© Stocktrek Images, Inc/Alamy)
 
 ![](images/2026-02/20260201_ArmyNurses_1920x1080.jpg)
-
-#### 20260201 Alpine marmots, Hohe Tauern National Park, Austria (© Raimund Linke/Getty Images)
-
-![](images/2026-02/20260201_AlpineMarmots_1920x1080.jpg)
 
 
 
