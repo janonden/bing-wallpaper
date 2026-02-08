@@ -1,4 +1,4 @@
-#### 20260208 科孚岛的夜晚, 希腊 (© whitewizzard/Getty Images)
+#### 20260208 Corfu at night, Greece (© whitewizzard/Getty Images)
 
 ![](20260208_CorfuGreece_1920x1080.jpg)
 
