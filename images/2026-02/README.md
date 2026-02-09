@@ -1,4 +1,4 @@
-#### 20260209 阿穆尔豹猫，俄罗斯 (© Valeriy Maleev/naturepl.com)
+#### 20260209 Amur leopard cat, Russia (© Valeriy Maleev/naturepl.com)
 
 ![](20260209_LeopardCat_1920x1080.jpg)
 
