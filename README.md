@@ -1,3 +1,7 @@
+#### 20260210 埃斯韦德拉岛和埃斯韦德拉内尔岛，伊维萨岛，西班牙 (© L. Apolli/Getty Images)
+
+![](images/2026-02/20260210_IbizaIslets_1920x1080.jpg)
+
 #### 20260209 Amur leopard cat, Russia (© Valeriy Maleev/naturepl.com)
 
 ![](images/2026-02/20260209_LeopardCat_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260201 セイタカシギ, フランス (© Antonio Sementa/500px/Getty Images)
 
 ![](images/2026-02/20260201_Echasse_1920x1080.jpg)
-
-#### 20260201 US Army nurses arrive in Greenock, Scotland, 1944 (© Stocktrek Images, Inc/Alamy)
-
-![](images/2026-02/20260201_ArmyNurses_1920x1080.jpg)
 
 
 
