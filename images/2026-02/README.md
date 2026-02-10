@@ -1,3 +1,11 @@
+#### 20260211 白梅の花 (© EarthScapeImageGraphy/Getty Images)
+
+![](20260211_MitoPlumFestival_1920x1080.jpg)
+
+#### 20260211 死亡谷国家公园恶水盆地的盐滩, 加利福尼亚州, 美国 (© Jim Patterson/TANDEM Stills + Motion)
+
+![](20260211_BadwaterFlats_1920x1080.jpg)
+
 #### 20260210 Islets of Es Vedrà and Es Vedranell, Ibiza, Spain (© L. Apolli/Getty Images)
 
 ![](20260210_IbizaIslets_1920x1080.jpg)

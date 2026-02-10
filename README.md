@@ -1,3 +1,11 @@
+#### 20260211 白梅の花 (© EarthScapeImageGraphy/Getty Images)
+
+![](images/2026-02/20260211_MitoPlumFestival_1920x1080.jpg)
+
+#### 20260211 死亡谷国家公园恶水盆地的盐滩, 加利福尼亚州, 美国 (© Jim Patterson/TANDEM Stills + Motion)
+
+![](images/2026-02/20260211_BadwaterFlats_1920x1080.jpg)
+
 #### 20260210 Islets of Es Vedrà and Es Vedranell, Ibiza, Spain (© L. Apolli/Getty Images)
 
 ![](images/2026-02/20260210_IbizaIslets_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20260202 Le phare de Kermorvan au coucher de soleil, Bretagne, France (© Fisfra/Getty Images)
 
 ![](images/2026-02/20260202_BretagneCrepe_1920x1080.jpg)
-
-#### 20260201 奥林达的彩色房子, 巴西 (© Robert Pekar/Alamy)
-
-![](images/2026-02/20260201_Olinda_1920x1080.jpg)
-
-#### 20260201 セイタカシギ, フランス (© Antonio Sementa/500px/Getty Images)
-
-![](images/2026-02/20260201_Echasse_1920x1080.jpg)
 
 
 
