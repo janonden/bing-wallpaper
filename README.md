@@ -1,4 +1,4 @@
-#### 20260210 埃斯韦德拉岛和埃斯韦德拉内尔岛，伊维萨岛，西班牙 (© L. Apolli/Getty Images)
+#### 20260210 Islets of Es Vedrà and Es Vedranell, Ibiza, Spain (© L. Apolli/Getty Images)
 
 ![](images/2026-02/20260210_IbizaIslets_1920x1080.jpg)
 
