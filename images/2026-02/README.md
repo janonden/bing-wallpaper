@@ -1,3 +1,7 @@
+#### 20260212 蓝脚鲣鸟，加拉帕戈斯群岛, 厄瓜多尔 (© Karine Aigner/TANDEM Stills + Motion)
+
+![](20260212_DarwinBooby_1920x1080.jpg)
+
 #### 20260211 Détails d’un masque du Carnaval de Nice, Alpes-Maritimes (© litchi cyril photographe/Shutterstock)
 
 ![](20260211_NiceFestival_1920x1080.jpg)
