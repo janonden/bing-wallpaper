@@ -1,3 +1,7 @@
+#### 20260211 Détails d’un masque du Carnaval de Nice, Alpes-Maritimes (© litchi cyril photographe/Shutterstock)
+
+![](20260211_NiceFestival_1920x1080.jpg)
+
 #### 20260211 白梅の花 (© EarthScapeImageGraphy/Getty Images)
 
 ![](20260211_MitoPlumFestival_1920x1080.jpg)

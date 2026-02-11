@@ -1,3 +1,7 @@
+#### 20260211 Détails d’un masque du Carnaval de Nice, Alpes-Maritimes (© litchi cyril photographe/Shutterstock)
+
+![](images/2026-02/20260211_NiceFestival_1920x1080.jpg)
+
 #### 20260211 白梅の花 (© EarthScapeImageGraphy/Getty Images)
 
 ![](images/2026-02/20260211_MitoPlumFestival_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260203 Emerald Bay and Fannette Island, Lake Tahoe, California (© Bill Stevenson/Cavan Images)
 
 ![](images/2026-02/20260203_FanetteIsland_1920x1080.jpg)
-
-#### 20260202 Le phare de Kermorvan au coucher de soleil, Bretagne, France (© Fisfra/Getty Images)
-
-![](images/2026-02/20260202_BretagneCrepe_1920x1080.jpg)
 
 
 
