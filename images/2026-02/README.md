@@ -2,6 +2,10 @@
 
 ![](20260212_DarwinBooby_1920x1080.jpg)
 
+#### 20260212 Innenansicht des Hauptsaals des Kinos Zoo Palast in Berlin (© dpa picture alliance/Alamy)
+
+![](20260212_BerlinaleHall_1920x1080.jpg)
+
 #### 20260211 Détails d’un masque du Carnaval de Nice, Alpes-Maritimes (© litchi cyril photographe/Shutterstock)
 
 ![](20260211_NiceFestival_1920x1080.jpg)

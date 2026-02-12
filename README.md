@@ -2,6 +2,10 @@
 
 ![](images/2026-02/20260212_DarwinBooby_1920x1080.jpg)
 
+#### 20260212 Innenansicht des Hauptsaals des Kinos Zoo Palast in Berlin (© dpa picture alliance/Alamy)
+
+![](images/2026-02/20260212_BerlinaleHall_1920x1080.jpg)
+
 #### 20260211 Détails d’un masque du Carnaval de Nice, Alpes-Maritimes (© litchi cyril photographe/Shutterstock)
 
 ![](images/2026-02/20260211_NiceFestival_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260204 Speicherstadt in der Dämmerung, Hamburg (© bluejayphoto/Getty Images)
 
 ![](images/2026-02/20260204_HamburgSpeicherstadt_1920x1080.jpg)
-
-#### 20260204 雪中​​的红鸢 (© Carl Mckie/500px/Getty Images)
-
-![](images/2026-02/20260204_BigGardenBirdwatch_1920x1080.jpg)
 
 
 
