@@ -1,4 +1,4 @@
-#### 20260212 蓝脚鲣鸟，加拉帕戈斯群岛, 厄瓜多尔 (© Karine Aigner/TANDEM Stills + Motion)
+#### 20260212 Blue-footed booby, Galápagos Islands, Ecuador (© Karine Aigner/TANDEM Stills + Motion)
 
 ![](images/2026-02/20260212_DarwinBooby_1920x1080.jpg)
 
