@@ -1,3 +1,7 @@
+#### 20260213 连接老挝和泰国的第三座泰老友谊大桥 (© chaiyut samsuk/Getty Images)
+
+![](20260213_FriendshipBridge_1920x1080.jpg)
+
 #### 20260212 Blue-footed booby, Galápagos Islands, Ecuador (© Karine Aigner/TANDEM Stills + Motion)
 
 ![](20260212_DarwinBooby_1920x1080.jpg)

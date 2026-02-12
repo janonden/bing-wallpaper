@@ -1,3 +1,7 @@
+#### 20260213 连接老挝和泰国的第三座泰老友谊大桥 (© chaiyut samsuk/Getty Images)
+
+![](images/2026-02/20260213_FriendshipBridge_1920x1080.jpg)
+
 #### 20260212 Blue-footed booby, Galápagos Islands, Ecuador (© Karine Aigner/TANDEM Stills + Motion)
 
 ![](images/2026-02/20260212_DarwinBooby_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260204 Rosa Parks in stained glass window, Shorter Community African Methodist Episcopal Church, Denver (© Cyrus McCrimmon/The Denver Post via Getty Images)
 
 ![](images/2026-02/20260204_ParksGlass_1920x1080.jpg)
-
-#### 20260204 Speicherstadt in der Dämmerung, Hamburg (© bluejayphoto/Getty Images)
-
-![](images/2026-02/20260204_HamburgSpeicherstadt_1920x1080.jpg)
 
 
 
