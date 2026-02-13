@@ -6,6 +6,10 @@
 
 ![](20260213_FriendshipBridge_1920x1080.jpg)
 
+#### 20260212 オリンダ歴史地区, ブラジル (© Robert Pekar/Alamy)
+
+![](20260212_Olinda_1920x1080.jpg)
+
 #### 20260212 Blue-footed booby, Galápagos Islands, Ecuador (© Karine Aigner/TANDEM Stills + Motion)
 
 ![](20260212_DarwinBooby_1920x1080.jpg)

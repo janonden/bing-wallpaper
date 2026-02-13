@@ -6,6 +6,10 @@
 
 ![](images/2026-02/20260213_FriendshipBridge_1920x1080.jpg)
 
+#### 20260212 オリンダ歴史地区, ブラジル (© Robert Pekar/Alamy)
+
+![](images/2026-02/20260212_Olinda_1920x1080.jpg)
+
 #### 20260212 Blue-footed booby, Galápagos Islands, Ecuador (© Karine Aigner/TANDEM Stills + Motion)
 
 ![](images/2026-02/20260212_DarwinBooby_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260205 Salt evaporation ponds on the island of Gozo, Malta (© Marius Roman/Getty Images)
 
 ![](images/2026-02/20260205_MaltaSalt_1920x1080.jpg)
-
-#### 20260204 梅の枝に止まるメジロ (© naotoshinkai/Getty Images)
-
-![](images/2026-02/20260204_Risshun_1920x1080.jpg)
 
 
 
