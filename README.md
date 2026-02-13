@@ -1,4 +1,4 @@
-#### 20260213 连接老挝和泰国的第三座泰老友谊大桥 (© chaiyut samsuk/Getty Images)
+#### 20260213 Third Thai-Lao Friendship Bridge connecting Laos and Thailand (© chaiyut samsuk/Getty Images)
 
 ![](images/2026-02/20260213_FriendshipBridge_1920x1080.jpg)
 
