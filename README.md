@@ -1,3 +1,7 @@
+#### 20260214 荷包牡丹 (© Dorene Hookey/Cavan Images)
+
+![](images/2026-02/20260214_ValentineHearts_1920x1080.jpg)
+
 #### 20260213 Third Thai-Lao Friendship Bridge connecting Laos and Thailand (© chaiyut samsuk/Getty Images)
 
 ![](images/2026-02/20260213_FriendshipBridge_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260204 梅の枝に止まるメジロ (© naotoshinkai/Getty Images)
 
 ![](images/2026-02/20260204_Risshun_1920x1080.jpg)
-
-#### 20260204 Rosa Parks in stained glass window, Shorter Community African Methodist Episcopal Church, Denver (© Cyrus McCrimmon/The Denver Post via Getty Images)
-
-![](images/2026-02/20260204_ParksGlass_1920x1080.jpg)
 
 
 

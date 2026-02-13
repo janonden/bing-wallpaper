@@ -1,3 +1,7 @@
+#### 20260214 荷包牡丹 (© Dorene Hookey/Cavan Images)
+
+![](20260214_ValentineHearts_1920x1080.jpg)
+
 #### 20260213 Third Thai-Lao Friendship Bridge connecting Laos and Thailand (© chaiyut samsuk/Getty Images)
 
 ![](20260213_FriendshipBridge_1920x1080.jpg)
