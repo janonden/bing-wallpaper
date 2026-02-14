@@ -1,4 +1,4 @@
-#### 20260214 荷包牡丹 (© Dorene Hookey/Cavan Images)
+#### 20260214 Bleeding hearts (© Dorene Hookey/Cavan Images)
 
 ![](20260214_ValentineHearts_1920x1080.jpg)
 
