@@ -1,3 +1,7 @@
+#### 20260215 蒙特雷湾的大翅鲸(座头鲸)，加利福尼亚州，美国 (© Kiliii Fish/Cavan Images)
+
+![](20260215_MontereyHumpbacks_1920x1080.jpg)
+
 #### 20260214 Bleeding hearts (© Dorene Hookey/Cavan Images)
 
 ![](20260214_ValentineHearts_1920x1080.jpg)

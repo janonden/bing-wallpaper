@@ -1,3 +1,7 @@
+#### 20260215 蒙特雷湾的大翅鲸(座头鲸)，加利福尼亚州，美国 (© Kiliii Fish/Cavan Images)
+
+![](images/2026-02/20260215_MontereyHumpbacks_1920x1080.jpg)
+
 #### 20260214 Bleeding hearts (© Dorene Hookey/Cavan Images)
 
 ![](images/2026-02/20260214_ValentineHearts_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260206 Ra Gusela peak at Giau Pass, near Cortina d'Ampezzo, Italy (© Tomasz Podolski/Getty Images)
 
 ![](images/2026-02/20260206_GiauPass_1920x1080.jpg)
-
-#### 20260205 Salt evaporation ponds on the island of Gozo, Malta (© Marius Roman/Getty Images)
-
-![](images/2026-02/20260205_MaltaSalt_1920x1080.jpg)
 
 
 
