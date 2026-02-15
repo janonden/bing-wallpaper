@@ -1,4 +1,4 @@
-#### 20260215 蒙特雷湾的大翅鲸(座头鲸)，加利福尼亚州，美国 (© Kiliii Fish/Cavan Images)
+#### 20260215 Humpback whales in Monterey Bay, California (© Kiliii Fish/Cavan Images)
 
 ![](images/2026-02/20260215_MontereyHumpbacks_1920x1080.jpg)
 
