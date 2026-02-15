@@ -1,3 +1,7 @@
+#### 20260216 庆祝春节的龙形灯笼，中国西安 (© Pan Hong/Getty Images)
+
+![](20260216_ChineseNewYearEveY_1920x1080.jpg)
+
 #### 20260215 Humpback whales in Monterey Bay, California (© Kiliii Fish/Cavan Images)
 
 ![](20260215_MontereyHumpbacks_1920x1080.jpg)

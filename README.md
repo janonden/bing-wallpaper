@@ -1,3 +1,7 @@
+#### 20260216 庆祝春节的龙形灯笼，中国西安 (© Pan Hong/Getty Images)
+
+![](images/2026-02/20260216_ChineseNewYearEveY_1920x1080.jpg)
+
 #### 20260215 Humpback whales in Monterey Bay, California (© Kiliii Fish/Cavan Images)
 
 ![](images/2026-02/20260215_MontereyHumpbacks_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260207 Salar de Uyuni salt flats in Bolivia (© Abstract Aerial Art/Getty Images)
 
 ![](images/2026-02/20260207_SalarUyuni_1920x1080.jpg)
-
-#### 20260206 Ra Gusela peak at Giau Pass, near Cortina d'Ampezzo, Italy (© Tomasz Podolski/Getty Images)
-
-![](images/2026-02/20260206_GiauPass_1920x1080.jpg)
 
 
 
