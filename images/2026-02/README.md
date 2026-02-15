@@ -2,6 +2,10 @@
 
 ![](20260216_ChineseNewYearEveY_1920x1080.jpg)
 
+#### 20260216 アカトビ (© Carl Mckie/500px/Getty Images)
+
+![](20260216_BigGardenBirdwatch_1920x1080.jpg)
+
 #### 20260215 Humpback whales in Monterey Bay, California (© Kiliii Fish/Cavan Images)
 
 ![](20260215_MontereyHumpbacks_1920x1080.jpg)

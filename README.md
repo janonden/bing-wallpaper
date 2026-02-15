@@ -2,6 +2,10 @@
 
 ![](images/2026-02/20260216_ChineseNewYearEveY_1920x1080.jpg)
 
+#### 20260216 アカトビ (© Carl Mckie/500px/Getty Images)
+
+![](images/2026-02/20260216_BigGardenBirdwatch_1920x1080.jpg)
+
 #### 20260215 Humpback whales in Monterey Bay, California (© Kiliii Fish/Cavan Images)
 
 ![](images/2026-02/20260215_MontereyHumpbacks_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260207 大通公園, 札幌市 (© Reuters/Kimimasa Mayama)
 
 ![](images/2026-02/20260207_SapporoSnowFestival_1920x1080.jpg)
-
-#### 20260207 Salar de Uyuni salt flats in Bolivia (© Abstract Aerial Art/Getty Images)
-
-![](images/2026-02/20260207_SalarUyuni_1920x1080.jpg)
 
 
 
