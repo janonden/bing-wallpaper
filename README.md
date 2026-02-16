@@ -1,6 +1,14 @@
+#### 20260216 Rosenmontagszug in Köln, Nordrhein-Westfalen (© mauritius images GmbH/Alamy)
+
+![](images/2026-02/20260216_RoseMondayCologne_1920x1080.jpg)
+
 #### 20260216 庆祝春节的龙形灯笼，中国西安 (© Pan Hong/Getty Images)
 
 ![](images/2026-02/20260216_ChineseNewYearEveY_1920x1080.jpg)
+
+#### 20260216 Le Grand-Bornand, Haute-Savoie (© JACQUES Pierre/hemis.fr/Alamy)
+
+![](images/2026-02/20260216_Bornand_1920x1080.jpg)
 
 #### 20260216 アカトビ (© Carl Mckie/500px/Getty Images)
 
@@ -49,14 +57,6 @@
 #### 20260209 Amur leopard cat, Russia (© Valeriy Maleev/naturepl.com)
 
 ![](images/2026-02/20260209_LeopardCat_1920x1080.jpg)
-
-#### 20260208 Corfu at night, Greece (© whitewizzard/Getty Images)
-
-![](images/2026-02/20260208_CorfuGreece_1920x1080.jpg)
-
-#### 20260207 大通公園, 札幌市 (© Reuters/Kimimasa Mayama)
-
-![](images/2026-02/20260207_SapporoSnowFestival_1920x1080.jpg)
 
 
 

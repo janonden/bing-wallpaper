@@ -1,6 +1,14 @@
+#### 20260216 Rosenmontagszug in Köln, Nordrhein-Westfalen (© mauritius images GmbH/Alamy)
+
+![](20260216_RoseMondayCologne_1920x1080.jpg)
+
 #### 20260216 庆祝春节的龙形灯笼，中国西安 (© Pan Hong/Getty Images)
 
 ![](20260216_ChineseNewYearEveY_1920x1080.jpg)
+
+#### 20260216 Le Grand-Bornand, Haute-Savoie (© JACQUES Pierre/hemis.fr/Alamy)
+
+![](20260216_Bornand_1920x1080.jpg)
 
 #### 20260216 アカトビ (© Carl Mckie/500px/Getty Images)
 
