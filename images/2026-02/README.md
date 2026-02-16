@@ -14,6 +14,10 @@
 
 ![](20260216_BigGardenBirdwatch_1920x1080.jpg)
 
+#### 20260216 Scenic view of lake by snowcapped mountains in Banff, Alberta (© Herbert Rong/Getty Images)
+
+![](20260216_BanffWinter_1920x1080.jpg)
+
 #### 20260215 Humpback whales in Monterey Bay, California (© Kiliii Fish/Cavan Images)
 
 ![](20260215_MontereyHumpbacks_1920x1080.jpg)

@@ -14,6 +14,10 @@
 
 ![](images/2026-02/20260216_BigGardenBirdwatch_1920x1080.jpg)
 
+#### 20260216 Scenic view of lake by snowcapped mountains in Banff, Alberta (© Herbert Rong/Getty Images)
+
+![](images/2026-02/20260216_BanffWinter_1920x1080.jpg)
+
 #### 20260215 Humpback whales in Monterey Bay, California (© Kiliii Fish/Cavan Images)
 
 ![](images/2026-02/20260215_MontereyHumpbacks_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260210 Islets of Es Vedrà and Es Vedranell, Ibiza, Spain (© L. Apolli/Getty Images)
 
 ![](images/2026-02/20260210_IbizaIslets_1920x1080.jpg)
-
-#### 20260209 Amur leopard cat, Russia (© Valeriy Maleev/naturepl.com)
-
-![](images/2026-02/20260209_LeopardCat_1920x1080.jpg)
 
 
 
