@@ -1,3 +1,11 @@
+#### 20260217 中国春节传统汉字“福” (© DuKai摄影师/Getty Images)
+
+![](images/2026-02/20260217_SpringFestivalY_1920x1080.jpg)
+
+#### 20260217 春節の赤い提灯, 中国 (© Gins Wang/Getty Images)
+
+![](images/2026-02/20260217_NewYearLantern_1920x1080.jpg)
+
 #### 20260216 Rosenmontagszug in Köln, Nordrhein-Westfalen (© mauritius images GmbH/Alamy)
 
 ![](images/2026-02/20260216_RoseMondayCologne_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20260211 Détails d’un masque du Carnaval de Nice, Alpes-Maritimes (© litchi cyril photographe/Shutterstock)
 
 ![](images/2026-02/20260211_NiceFestival_1920x1080.jpg)
-
-#### 20260211 白梅の花 (© EarthScapeImageGraphy/Getty Images)
-
-![](images/2026-02/20260211_MitoPlumFestival_1920x1080.jpg)
-
-#### 20260211 Salt flats in Badwater Basin, Death Valley National Park, California (© Jim Patterson/TANDEM Stills + Motion)
-
-![](images/2026-02/20260211_BadwaterFlats_1920x1080.jpg)
 
 
 

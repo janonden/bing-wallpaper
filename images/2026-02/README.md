@@ -1,3 +1,11 @@
+#### 20260217 中国春节传统汉字“福” (© DuKai摄影师/Getty Images)
+
+![](20260217_SpringFestivalY_1920x1080.jpg)
+
+#### 20260217 春節の赤い提灯, 中国 (© Gins Wang/Getty Images)
+
+![](20260217_NewYearLantern_1920x1080.jpg)
+
 #### 20260216 Rosenmontagszug in Köln, Nordrhein-Westfalen (© mauritius images GmbH/Alamy)
 
 ![](20260216_RoseMondayCologne_1920x1080.jpg)
