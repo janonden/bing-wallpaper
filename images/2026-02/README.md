@@ -2,6 +2,10 @@
 
 ![](20260216_RoseMondayCologne_1920x1080.jpg)
 
+#### 20260216 Lincoln Memorial, Washington, DC (© Westend61/Getty Images)
+
+![](20260216_PresidentsDay_1920x1080.jpg)
+
 #### 20260216 庆祝春节的龙形灯笼，中国西安 (© Pan Hong/Getty Images)
 
 ![](20260216_ChineseNewYearEveY_1920x1080.jpg)

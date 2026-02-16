@@ -2,6 +2,10 @@
 
 ![](images/2026-02/20260216_RoseMondayCologne_1920x1080.jpg)
 
+#### 20260216 Lincoln Memorial, Washington, DC (© Westend61/Getty Images)
+
+![](images/2026-02/20260216_PresidentsDay_1920x1080.jpg)
+
 #### 20260216 庆祝春节的龙形灯笼，中国西安 (© Pan Hong/Getty Images)
 
 ![](images/2026-02/20260216_ChineseNewYearEveY_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260211 Salt flats in Badwater Basin, Death Valley National Park, California (© Jim Patterson/TANDEM Stills + Motion)
 
 ![](images/2026-02/20260211_BadwaterFlats_1920x1080.jpg)
-
-#### 20260210 Islets of Es Vedrà and Es Vedranell, Ibiza, Spain (© L. Apolli/Getty Images)
-
-![](images/2026-02/20260210_IbizaIslets_1920x1080.jpg)
 
 
 
