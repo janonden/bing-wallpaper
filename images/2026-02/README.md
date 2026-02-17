@@ -1,8 +1,12 @@
+#### 20260218 Ochagavía, Navarre, Spain (© PhotosTime/Getty Images)
+
+![](20260218_Navarra_1920x1080.jpg)
+
 #### 20260217 中国春节传统汉字“福” (© DuKai摄影师/Getty Images)
 
 ![](20260217_SpringFestivalY_1920x1080.jpg)
 
-#### 20260217 春節の赤い提灯, 中国 (© Gins Wang/Getty Images)
+#### 20260217 Red lanterns celebrating Chinese New Year (© Gins Wang/Getty Images)
 
 ![](20260217_NewYearLantern_1920x1080.jpg)
 

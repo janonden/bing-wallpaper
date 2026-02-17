@@ -1,8 +1,12 @@
+#### 20260218 Ochagavía, Navarre, Spain (© PhotosTime/Getty Images)
+
+![](images/2026-02/20260218_Navarra_1920x1080.jpg)
+
 #### 20260217 中国春节传统汉字“福” (© DuKai摄影师/Getty Images)
 
 ![](images/2026-02/20260217_SpringFestivalY_1920x1080.jpg)
 
-#### 20260217 春節の赤い提灯, 中国 (© Gins Wang/Getty Images)
+#### 20260217 Red lanterns celebrating Chinese New Year (© Gins Wang/Getty Images)
 
 ![](images/2026-02/20260217_NewYearLantern_1920x1080.jpg)
 
@@ -53,10 +57,6 @@
 #### 20260212 Innenansicht des Hauptsaals des Kinos Zoo Palast in Berlin (© dpa picture alliance/Alamy)
 
 ![](images/2026-02/20260212_BerlinaleHall_1920x1080.jpg)
-
-#### 20260211 Détails d’un masque du Carnaval de Nice, Alpes-Maritimes (© litchi cyril photographe/Shutterstock)
-
-![](images/2026-02/20260211_NiceFestival_1920x1080.jpg)
 
 
 
