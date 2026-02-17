@@ -1,3 +1,7 @@
+#### 20260218 普氏野马 (© Nemyrivskyi Viacheslav/Getty Images)
+
+![](images/2026-02/20260218_PrzewalskisHorse_1920x1080.jpg)
+
 #### 20260218 Ochagavía, Navarre, Spain (© PhotosTime/Getty Images)
 
 ![](images/2026-02/20260218_Navarra_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260212 Blue-footed booby, Galápagos Islands, Ecuador (© Karine Aigner/TANDEM Stills + Motion)
 
 ![](images/2026-02/20260212_DarwinBooby_1920x1080.jpg)
-
-#### 20260212 Innenansicht des Hauptsaals des Kinos Zoo Palast in Berlin (© dpa picture alliance/Alamy)
-
-![](images/2026-02/20260212_BerlinaleHall_1920x1080.jpg)
 
 
 
