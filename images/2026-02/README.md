@@ -1,4 +1,4 @@
-#### 20260218 普氏野马 (© Nemyrivskyi Viacheslav/Getty Images)
+#### 20260218 Przewalski's horses (© Nemyrivskyi Viacheslav/Getty Images)
 
 ![](20260218_PrzewalskisHorse_1920x1080.jpg)
 
