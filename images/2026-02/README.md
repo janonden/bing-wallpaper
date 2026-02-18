@@ -1,3 +1,7 @@
+#### 20260219 乌塔克莱夫海滩的“龙之眼”岩层，挪威 (© reisegraf/Getty Images)
+
+![](20260219_DragonsEyeRock_1920x1080.jpg)
+
 #### 20260218 Przewalski's horses (© Nemyrivskyi Viacheslav/Getty Images)
 
 ![](20260218_PrzewalskisHorse_1920x1080.jpg)

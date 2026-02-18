@@ -1,3 +1,7 @@
+#### 20260219 乌塔克莱夫海滩的“龙之眼”岩层，挪威 (© reisegraf/Getty Images)
+
+![](images/2026-02/20260219_DragonsEyeRock_1920x1080.jpg)
+
 #### 20260218 Przewalski's horses (© Nemyrivskyi Viacheslav/Getty Images)
 
 ![](images/2026-02/20260218_PrzewalskisHorse_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260212 オリンダ歴史地区, ブラジル (© Robert Pekar/Alamy)
 
 ![](images/2026-02/20260212_Olinda_1920x1080.jpg)
-
-#### 20260212 Blue-footed booby, Galápagos Islands, Ecuador (© Karine Aigner/TANDEM Stills + Motion)
-
-![](images/2026-02/20260212_DarwinBooby_1920x1080.jpg)
 
 
 
