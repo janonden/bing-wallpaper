@@ -1,3 +1,7 @@
+#### 20260220 约塞米蒂国家公园里的火瀑布，加利福尼亚州，美国 (© Jorge Villalba/Getty Images)
+
+![](images/2026-02/20260220_AdamsFirefall_1920x1080.jpg)
+
 #### 20260219 The Dragon's Eye rock formation at Uttakleiv Beach, Norway (© reisegraf/Getty Images)
 
 ![](images/2026-02/20260219_DragonsEyeRock_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260213 Third Thai-Lao Friendship Bridge connecting Laos and Thailand (© chaiyut samsuk/Getty Images)
 
 ![](images/2026-02/20260213_FriendshipBridge_1920x1080.jpg)
-
-#### 20260212 オリンダ歴史地区, ブラジル (© Robert Pekar/Alamy)
-
-![](images/2026-02/20260212_Olinda_1920x1080.jpg)
 
 
 

@@ -1,3 +1,7 @@
+#### 20260220 约塞米蒂国家公园里的火瀑布，加利福尼亚州，美国 (© Jorge Villalba/Getty Images)
+
+![](20260220_AdamsFirefall_1920x1080.jpg)
+
 #### 20260219 The Dragon's Eye rock formation at Uttakleiv Beach, Norway (© reisegraf/Getty Images)
 
 ![](20260219_DragonsEyeRock_1920x1080.jpg)
