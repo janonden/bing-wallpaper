@@ -1,4 +1,4 @@
-#### 20260219 乌塔克莱夫海滩的“龙之眼”岩层，挪威 (© reisegraf/Getty Images)
+#### 20260219 The Dragon's Eye rock formation at Uttakleiv Beach, Norway (© reisegraf/Getty Images)
 
 ![](images/2026-02/20260219_DragonsEyeRock_1920x1080.jpg)
 
