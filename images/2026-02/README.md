@@ -1,3 +1,7 @@
+#### 20260221 一只红狐狸站在雪地里，大提顿国家公园，怀俄明州，美国 (© Radomir Jakubowski/naturepl.com)
+
+![](20260221_TetonFox_1920x1080.jpg)
+
 #### 20260220 Höckerschwan schwimmt mit Küken, Hessen (© Wilfried Martin/Getty Images)
 
 ![](20260220_SwanHesse_1920x1080.jpg)

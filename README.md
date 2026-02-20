@@ -1,3 +1,7 @@
+#### 20260221 一只红狐狸站在雪地里，大提顿国家公园，怀俄明州，美国 (© Radomir Jakubowski/naturepl.com)
+
+![](images/2026-02/20260221_TetonFox_1920x1080.jpg)
+
 #### 20260220 Höckerschwan schwimmt mit Küken, Hessen (© Wilfried Martin/Getty Images)
 
 ![](images/2026-02/20260220_SwanHesse_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260216 Scenic view of lake by snowcapped mountains in Banff, Alberta (© Herbert Rong/Getty Images)
 
 ![](images/2026-02/20260216_BanffWinter_1920x1080.jpg)
-
-#### 20260215 Humpback whales in Monterey Bay, California (© Kiliii Fish/Cavan Images)
-
-![](images/2026-02/20260215_MontereyHumpbacks_1920x1080.jpg)
 
 
 
