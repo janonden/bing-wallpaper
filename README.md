@@ -1,3 +1,11 @@
+#### 20260220 Höckerschwan schwimmt mit Küken, Hessen (© Wilfried Martin/Getty Images)
+
+![](images/2026-02/20260220_SwanHesse_1920x1080.jpg)
+
+#### 20260220 Fête du citron de Menton (© tanazura/Shutterstock)
+
+![](images/2026-02/20260220_LemonFestival_1920x1080.jpg)
+
 #### 20260220 约塞米蒂国家公园里的火瀑布，加利福尼亚州，美国 (© Jorge Villalba/Getty Images)
 
 ![](images/2026-02/20260220_AdamsFirefall_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20260215 Humpback whales in Monterey Bay, California (© Kiliii Fish/Cavan Images)
 
 ![](images/2026-02/20260215_MontereyHumpbacks_1920x1080.jpg)
-
-#### 20260214 Bleeding hearts (© Dorene Hookey/Cavan Images)
-
-![](images/2026-02/20260214_ValentineHearts_1920x1080.jpg)
-
-#### 20260213 Third Thai-Lao Friendship Bridge connecting Laos and Thailand (© chaiyut samsuk/Getty Images)
-
-![](images/2026-02/20260213_FriendshipBridge_1920x1080.jpg)
 
 
 
