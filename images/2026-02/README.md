@@ -1,3 +1,7 @@
+#### 20260222 马姆托尔山，德比郡，英格兰 (© john finney photography/Getty Images)
+
+![](20260222_MamTorSunrise_1920x1080.jpg)
+
 #### 20260221 Red fox standing in snowfall, Grand Teton National Park, Wyoming (© Radomir Jakubowski/naturepl.com)
 
 ![](20260221_TetonFox_1920x1080.jpg)

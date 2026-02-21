@@ -1,3 +1,7 @@
+#### 20260222 马姆托尔山，德比郡，英格兰 (© john finney photography/Getty Images)
+
+![](images/2026-02/20260222_MamTorSunrise_1920x1080.jpg)
+
 #### 20260221 Red fox standing in snowfall, Grand Teton National Park, Wyoming (© Radomir Jakubowski/naturepl.com)
 
 ![](images/2026-02/20260221_TetonFox_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260216 Le Grand-Bornand, Haute-Savoie (© JACQUES Pierre/hemis.fr/Alamy)
 
 ![](images/2026-02/20260216_Bornand_1920x1080.jpg)
-
-#### 20260216 アカトビ (© Carl Mckie/500px/Getty Images)
-
-![](images/2026-02/20260216_BigGardenBirdwatch_1920x1080.jpg)
 
 
 
