@@ -2,6 +2,10 @@
 
 ![](images/2026-02/20260221_TetonFox_1920x1080.jpg)
 
+#### 20260221 Le bouquetin des Alpes (© AUSLOOS Henry/hemis.fr/Alamy)
+
+![](images/2026-02/20260221_CapraIbex_1920x1080.jpg)
+
 #### 20260220 Höckerschwan schwimmt mit Küken, Hessen (© Wilfried Martin/Getty Images)
 
 ![](images/2026-02/20260220_SwanHesse_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260216 アカトビ (© Carl Mckie/500px/Getty Images)
 
 ![](images/2026-02/20260216_BigGardenBirdwatch_1920x1080.jpg)
-
-#### 20260216 Scenic view of lake by snowcapped mountains in Banff, Alberta (© Herbert Rong/Getty Images)
-
-![](images/2026-02/20260216_BanffWinter_1920x1080.jpg)
 
 
 

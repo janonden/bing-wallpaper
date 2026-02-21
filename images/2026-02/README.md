@@ -2,6 +2,10 @@
 
 ![](20260221_TetonFox_1920x1080.jpg)
 
+#### 20260221 Le bouquetin des Alpes (© AUSLOOS Henry/hemis.fr/Alamy)
+
+![](20260221_CapraIbex_1920x1080.jpg)
+
 #### 20260220 Höckerschwan schwimmt mit Küken, Hessen (© Wilfried Martin/Getty Images)
 
 ![](20260220_SwanHesse_1920x1080.jpg)
