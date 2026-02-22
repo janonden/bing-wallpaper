@@ -1,4 +1,4 @@
-#### 20260222 马姆托尔山，德比郡，英格兰 (© john finney photography/Getty Images)
+#### 20260222 The hill of Mam Tor, Derbyshire, England (© john finney photography/Getty Images)
 
 ![](20260222_MamTorSunrise_1920x1080.jpg)
 
