@@ -1,3 +1,11 @@
+#### 20260223 富士山, 静岡県 (© Cravetiger/Getty Images)
+
+![](20260223_MountFuji_1920x1080.jpg)
+
+#### 20260223 大白鹭，上巴伐利亚州，德国 (© Konrad Wothe/naturepl.com)
+
+![](20260223_BavariaEgret_1920x1080.jpg)
+
 #### 20260222 The hill of Mam Tor, Derbyshire, England (© john finney photography/Getty Images)
 
 ![](20260222_MamTorSunrise_1920x1080.jpg)

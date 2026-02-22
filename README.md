@@ -1,3 +1,11 @@
+#### 20260223 富士山, 静岡県 (© Cravetiger/Getty Images)
+
+![](images/2026-02/20260223_MountFuji_1920x1080.jpg)
+
+#### 20260223 大白鹭，上巴伐利亚州，德国 (© Konrad Wothe/naturepl.com)
+
+![](images/2026-02/20260223_BavariaEgret_1920x1080.jpg)
+
 #### 20260222 The hill of Mam Tor, Derbyshire, England (© john finney photography/Getty Images)
 
 ![](images/2026-02/20260222_MamTorSunrise_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20260216 Lincoln Memorial, Washington, DC (© Westend61/Getty Images)
 
 ![](images/2026-02/20260216_PresidentsDay_1920x1080.jpg)
-
-#### 20260216 庆祝春节的龙形灯笼，中国西安 (© Pan Hong/Getty Images)
-
-![](images/2026-02/20260216_ChineseNewYearEveY_1920x1080.jpg)
-
-#### 20260216 Le Grand-Bornand, Haute-Savoie (© JACQUES Pierre/hemis.fr/Alamy)
-
-![](images/2026-02/20260216_Bornand_1920x1080.jpg)
 
 
 
