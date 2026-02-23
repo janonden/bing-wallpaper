@@ -2,7 +2,7 @@
 
 ![](20260223_MountFuji_1920x1080.jpg)
 
-#### 20260223 大白鹭，上巴伐利亚州，德国 (© Konrad Wothe/naturepl.com)
+#### 20260223 Great white egret, Upper Bavaria, Germany (© Konrad Wothe/naturepl.com)
 
 ![](20260223_BavariaEgret_1920x1080.jpg)
 
