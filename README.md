@@ -1,3 +1,7 @@
+#### 20260224 大天坑里的睡莲，图卢姆，墨西哥 (© Christian Vizl/Tandem Stills + Motion)
+
+![](images/2026-02/20260224_TulumLilies_1920x1080.jpg)
+
 #### 20260223 富士山, 静岡県 (© Cravetiger/Getty Images)
 
 ![](images/2026-02/20260223_MountFuji_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260216 Rosenmontagszug in Köln, Nordrhein-Westfalen (© mauritius images GmbH/Alamy)
 
 ![](images/2026-02/20260216_RoseMondayCologne_1920x1080.jpg)
-
-#### 20260216 Lincoln Memorial, Washington, DC (© Westend61/Getty Images)
-
-![](images/2026-02/20260216_PresidentsDay_1920x1080.jpg)
 
 
 

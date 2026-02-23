@@ -1,3 +1,7 @@
+#### 20260224 大天坑里的睡莲，图卢姆，墨西哥 (© Christian Vizl/Tandem Stills + Motion)
+
+![](20260224_TulumLilies_1920x1080.jpg)
+
 #### 20260223 富士山, 静岡県 (© Cravetiger/Getty Images)
 
 ![](20260223_MountFuji_1920x1080.jpg)
