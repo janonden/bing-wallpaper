@@ -1,3 +1,7 @@
+#### 20260225 门登霍尔冰川的冰洞，阿拉斯加州，美国 (© Designpics/Adobe Stock)
+
+![](images/2026-02/20260225_MendenhallCave_1920x1080.jpg)
+
 #### 20260224 Water lilies at Grand Cenote, Tulum, Mexico (© Christian Vizl/Tandem Stills + Motion)
 
 ![](images/2026-02/20260224_TulumLilies_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260217 Red lanterns celebrating Chinese New Year (© Gins Wang/Getty Images)
 
 ![](images/2026-02/20260217_NewYearLantern_1920x1080.jpg)
-
-#### 20260216 Rosenmontagszug in Köln, Nordrhein-Westfalen (© mauritius images GmbH/Alamy)
-
-![](images/2026-02/20260216_RoseMondayCologne_1920x1080.jpg)
 
 
 

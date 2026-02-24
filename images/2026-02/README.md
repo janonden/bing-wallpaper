@@ -1,3 +1,7 @@
+#### 20260225 门登霍尔冰川的冰洞，阿拉斯加州，美国 (© Designpics/Adobe Stock)
+
+![](20260225_MendenhallCave_1920x1080.jpg)
+
 #### 20260224 Water lilies at Grand Cenote, Tulum, Mexico (© Christian Vizl/Tandem Stills + Motion)
 
 ![](20260224_TulumLilies_1920x1080.jpg)
