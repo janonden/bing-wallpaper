@@ -1,3 +1,7 @@
+#### 20260226 大峡谷和科罗拉多河，亚利桑那州，美国 (© Matt Anderson Photography/Getty Images)
+
+![](images/2026-02/20260226_GrandSunset_1920x1080.jpg)
+
 #### 20260225 Ice cave in the Mendenhall Glacier, Alaska (© Designpics/Adobe Stock)
 
 ![](images/2026-02/20260225_MendenhallCave_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260217 中国春节传统汉字“福” (© DuKai摄影师/Getty Images)
 
 ![](images/2026-02/20260217_SpringFestivalY_1920x1080.jpg)
-
-#### 20260217 Red lanterns celebrating Chinese New Year (© Gins Wang/Getty Images)
-
-![](images/2026-02/20260217_NewYearLantern_1920x1080.jpg)
 
 
 

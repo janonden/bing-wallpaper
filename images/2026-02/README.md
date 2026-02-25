@@ -1,3 +1,7 @@
+#### 20260226 大峡谷和科罗拉多河，亚利桑那州，美国 (© Matt Anderson Photography/Getty Images)
+
+![](20260226_GrandSunset_1920x1080.jpg)
+
 #### 20260225 Ice cave in the Mendenhall Glacier, Alaska (© Designpics/Adobe Stock)
 
 ![](20260225_MendenhallCave_1920x1080.jpg)
