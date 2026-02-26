@@ -2,6 +2,10 @@
 
 ![](images/2026-02/20260226_GrandSunset_1920x1080.jpg)
 
+#### 20260226 Sonnenaufgang auf dem Brocken, Nationalpark Harz, Sachsen‑Anhalt (© imageBROKER/AVTG/Getty Images)
+
+![](images/2026-02/20260226_BrockenSunrise_1920x1080.jpg)
+
 #### 20260225 Ice cave in the Mendenhall Glacier, Alaska (© Designpics/Adobe Stock)
 
 ![](images/2026-02/20260225_MendenhallCave_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260218 Ochagavía, Navarre, Spain (© PhotosTime/Getty Images)
 
 ![](images/2026-02/20260218_Navarra_1920x1080.jpg)
-
-#### 20260217 中国春节传统汉字“福” (© DuKai摄影师/Getty Images)
-
-![](images/2026-02/20260217_SpringFestivalY_1920x1080.jpg)
 
 
 

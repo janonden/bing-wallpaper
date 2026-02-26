@@ -2,6 +2,10 @@
 
 ![](20260226_GrandSunset_1920x1080.jpg)
 
+#### 20260226 Sonnenaufgang auf dem Brocken, Nationalpark Harz, Sachsen‑Anhalt (© imageBROKER/AVTG/Getty Images)
+
+![](20260226_BrockenSunrise_1920x1080.jpg)
+
 #### 20260225 Ice cave in the Mendenhall Glacier, Alaska (© Designpics/Adobe Stock)
 
 ![](20260225_MendenhallCave_1920x1080.jpg)
