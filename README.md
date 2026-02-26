@@ -1,4 +1,4 @@
-#### 20260226 大峡谷和科罗拉多河，亚利桑那州，美国 (© Matt Anderson Photography/Getty Images)
+#### 20260226 Grand Canyon and the Colorado River, Arizona (© Matt Anderson Photography/Getty Images)
 
 ![](images/2026-02/20260226_GrandSunset_1920x1080.jpg)
 
