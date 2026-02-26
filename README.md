@@ -1,3 +1,7 @@
+#### 20260227 北极熊幼崽走过浮冰, 北极国家野生动物保护区, 阿拉斯加州, 美国 (© Steven Kazlowski/naturepl.com)
+
+![](images/2026-02/20260227_ArcitcCub_1920x1080.jpg)
+
 #### 20260226 Grand Canyon and the Colorado River, Arizona (© Matt Anderson Photography/Getty Images)
 
 ![](images/2026-02/20260226_GrandSunset_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260218 Przewalski's horses (© Nemyrivskyi Viacheslav/Getty Images)
 
 ![](images/2026-02/20260218_PrzewalskisHorse_1920x1080.jpg)
-
-#### 20260218 Ochagavía, Navarre, Spain (© PhotosTime/Getty Images)
-
-![](images/2026-02/20260218_Navarra_1920x1080.jpg)
 
 
 
