@@ -1,3 +1,7 @@
+#### 20260228 奥洛乌佩纳瀑布, 莫洛凯岛, 夏威夷, 美国 (© Andrew Aylett/Getty Images)
+
+![](images/2026-02/20260228_OloupenaFalls_1920x1080.jpg)
+
 #### 20260227 Polar bear cub walking across pack ice, Arctic National Wildlife Refuge, Alaska (© Steven Kazlowski/naturepl.com)
 
 ![](images/2026-02/20260227_ArcitcCub_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260219 The Dragon's Eye rock formation at Uttakleiv Beach, Norway (© reisegraf/Getty Images)
 
 ![](images/2026-02/20260219_DragonsEyeRock_1920x1080.jpg)
-
-#### 20260218 Przewalski's horses (© Nemyrivskyi Viacheslav/Getty Images)
-
-![](images/2026-02/20260218_PrzewalskisHorse_1920x1080.jpg)
 
 
 
