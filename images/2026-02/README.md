@@ -1,4 +1,4 @@
-#### 20260227 北极熊幼崽走过浮冰, 北极国家野生动物保护区, 阿拉斯加州, 美国 (© Steven Kazlowski/naturepl.com)
+#### 20260227 Polar bear cub walking across pack ice, Arctic National Wildlife Refuge, Alaska (© Steven Kazlowski/naturepl.com)
 
 ![](20260227_ArcitcCub_1920x1080.jpg)
 
