@@ -1,4 +1,4 @@
-#### 20260228 奥洛乌佩纳瀑布, 莫洛凯岛, 夏威夷, 美国 (© Andrew Aylett/Getty Images)
+#### 20260228 Olo'upena Falls, island of Moloka'i, Hawaii (© Andrew Aylett/Getty Images)
 
 ![](images/2026-02/20260228_OloupenaFalls_1920x1080.jpg)
 
