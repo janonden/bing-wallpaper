@@ -1,3 +1,7 @@
+#### 20260302 苏梅岛的港口和长尾船, 泰国 (© Foto2rich/Shutterstock)
+
+![](20260302_SamuiThailand_1920x1080.jpg)
+
 #### 20260301 Suffragette celebrations, August 27, 1920, New York City (© Keystone/Hulton Archive/Getty Images)
 
 ![](20260301_SuffragettesNY_1920x1080.jpg)
