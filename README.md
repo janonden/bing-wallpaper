@@ -1,3 +1,7 @@
+#### 20260301 Suffragette celebrations, August 27, 1920, New York City (© Keystone/Hulton Archive/Getty Images)
+
+![](images/2026-03/20260301_SuffragettesNY_1920x1080.jpg)
+
 #### 20260301 Snowy owl near the Canadian Rockies (© www.harshadventure.com/Moment/Getty Images)
 
 ![](images/2026-03/20260301_OwlonGuard_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260220 Höckerschwan schwimmt mit Küken, Hessen (© Wilfried Martin/Getty Images)
 
 ![](images/2026-02/20260220_SwanHesse_1920x1080.jpg)
-
-#### 20260220 Fête du citron de Menton (© tanazura/Shutterstock)
-
-![](images/2026-02/20260220_LemonFestival_1920x1080.jpg)
 
 
 

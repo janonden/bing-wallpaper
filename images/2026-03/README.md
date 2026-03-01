@@ -1,3 +1,7 @@
+#### 20260301 Suffragette celebrations, August 27, 1920, New York City (© Keystone/Hulton Archive/Getty Images)
+
+![](20260301_SuffragettesNY_1920x1080.jpg)
+
 #### 20260301 Snowy owl near the Canadian Rockies (© www.harshadventure.com/Moment/Getty Images)
 
 ![](20260301_OwlonGuard_1920x1080.jpg)
