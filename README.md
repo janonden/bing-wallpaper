@@ -1,3 +1,7 @@
+#### 20260301 Snowy owl near the Canadian Rockies (© www.harshadventure.com/Moment/Getty Images)
+
+![](images/2026-03/20260301_OwlonGuard_1920x1080.jpg)
+
 #### 20260301 伊维萨岛, 巴利阿里群岛, 西班牙 (© tokar/Shutterstock)
 
 ![](images/2026-03/20260301_BalearesDay_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260220 Fête du citron de Menton (© tanazura/Shutterstock)
 
 ![](images/2026-02/20260220_LemonFestival_1920x1080.jpg)
-
-#### 20260220 Horsetail Fall in Yosemite National Park, California (© Jorge Villalba/Getty Images)
-
-![](images/2026-02/20260220_AdamsFirefall_1920x1080.jpg)
 
 
 
