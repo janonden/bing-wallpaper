@@ -1,3 +1,11 @@
+#### 20260303 元宵节期间悬挂的宫灯，北京自贡灯会现场，北京，中国 (© Grisha Bruev/Shutterstock)
+
+![](20260303_LanternFestivalY_1920x1080.jpg)
+
+#### 20260303 竹筒から顔をのぞかせる可愛いひな人形 (© Bong Grit/Getty Images)
+
+![](20260303_HinaMatsuri_1920x1080.jpg)
+
 #### 20260302 Harbor and longtail boats at Ko Samui, Thailand (© Foto2rich/Shutterstock)
 
 ![](20260302_SamuiThailand_1920x1080.jpg)
