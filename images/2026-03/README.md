@@ -1,4 +1,4 @@
-#### 20260302 苏梅岛的港口和长尾船, 泰国 (© Foto2rich/Shutterstock)
+#### 20260302 Harbor and longtail boats at Ko Samui, Thailand (© Foto2rich/Shutterstock)
 
 ![](20260302_SamuiThailand_1920x1080.jpg)
 
