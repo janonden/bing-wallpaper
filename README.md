@@ -6,7 +6,7 @@
 
 ![](images/2026-03/20260303_HinaMatsuri_1920x1080.jpg)
 
-#### 20260303 Afrikanisches Elefantenkalb mit Mutter im Masai‑Mara‑Nationalreservat, Kenia (© Denis-Huot/naturepl.com)
+#### 20260303 African elephant calf playing with its mother, Masai Mara National Reserve, Kenya (© Denis-Huot/naturepl.com)
 
 ![](images/2026-03/20260303_BabyElephant_1920x1080.jpg)
 
