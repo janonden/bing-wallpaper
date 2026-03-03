@@ -6,6 +6,10 @@
 
 ![](images/2026-03/20260303_HinaMatsuri_1920x1080.jpg)
 
+#### 20260303 Afrikanisches Elefantenkalb mit Mutter im Masai‑Mara‑Nationalreservat, Kenia (© Denis-Huot/naturepl.com)
+
+![](images/2026-03/20260303_BabyElephant_1920x1080.jpg)
+
 #### 20260302 Harbor and longtail boats at Ko Samui, Thailand (© Foto2rich/Shutterstock)
 
 ![](images/2026-03/20260302_SamuiThailand_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260223 Great white egret, Upper Bavaria, Germany (© Konrad Wothe/naturepl.com)
 
 ![](images/2026-02/20260223_BavariaEgret_1920x1080.jpg)
-
-#### 20260222 The hill of Mam Tor, Derbyshire, England (© john finney photography/Getty Images)
-
-![](images/2026-02/20260222_MamTorSunrise_1920x1080.jpg)
 
 
 

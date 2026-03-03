@@ -6,6 +6,10 @@
 
 ![](20260303_HinaMatsuri_1920x1080.jpg)
 
+#### 20260303 Afrikanisches Elefantenkalb mit Mutter im Masai‑Mara‑Nationalreservat, Kenia (© Denis-Huot/naturepl.com)
+
+![](20260303_BabyElephant_1920x1080.jpg)
+
 #### 20260302 Harbor and longtail boats at Ko Samui, Thailand (© Foto2rich/Shutterstock)
 
 ![](20260302_SamuiThailand_1920x1080.jpg)
