@@ -1,3 +1,7 @@
+#### 20260304 紫番红花, 里拉七湖, 保加利亚 (© Maya Karkalicheva/Getty Images)
+
+![](images/2026-03/20260304_RilaCrocuses_1920x1080.jpg)
+
 #### 20260303 元宵节期间悬挂的宫灯，北京自贡灯会现场，北京，中国 (© Grisha Bruev/Shutterstock)
 
 ![](images/2026-03/20260303_LanternFestivalY_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260223 富士山, 静岡県 (© Cravetiger/Getty Images)
 
 ![](images/2026-02/20260223_MountFuji_1920x1080.jpg)
-
-#### 20260223 Great white egret, Upper Bavaria, Germany (© Konrad Wothe/naturepl.com)
-
-![](images/2026-02/20260223_BavariaEgret_1920x1080.jpg)
 
 
 
