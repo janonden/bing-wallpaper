@@ -1,3 +1,7 @@
+#### 20260305 格雷梅的傍晚, 卡帕多西亚, 土耳其 (© ONNAJA/Getty Images)
+
+![](images/2026-03/20260305_GoremeTwilight_1920x1080.jpg)
+
 #### 20260304 Purple crocus flowers, Seven Rila Lakes, Bulgaria (© Maya Karkalicheva/Getty Images)
 
 ![](images/2026-03/20260304_RilaCrocuses_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260224 Water lilies at Grand Cenote, Tulum, Mexico (© Christian Vizl/Tandem Stills + Motion)
 
 ![](images/2026-02/20260224_TulumLilies_1920x1080.jpg)
-
-#### 20260223 富士山, 静岡県 (© Cravetiger/Getty Images)
-
-![](images/2026-02/20260223_MountFuji_1920x1080.jpg)
 
 
 
