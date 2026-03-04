@@ -1,4 +1,4 @@
-#### 20260304 紫番红花, 里拉七湖, 保加利亚 (© Maya Karkalicheva/Getty Images)
+#### 20260304 Purple crocus flowers, Seven Rila Lakes, Bulgaria (© Maya Karkalicheva/Getty Images)
 
 ![](images/2026-03/20260304_RilaCrocuses_1920x1080.jpg)
 
