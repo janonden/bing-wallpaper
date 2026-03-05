@@ -1,3 +1,7 @@
+#### 20260306 波浪住宅楼, 瓦埃勒, 丹麦 (© Frank Bach/Alamy)
+
+![](images/2026-03/20260306_WaveDenmark_1920x1080.jpg)
+
 #### 20260305 Evening over Göreme, Cappadocia, Türkiye (© ONNAJA/Getty Images)
 
 ![](images/2026-03/20260305_GoremeTwilight_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260225 Ice cave in the Mendenhall Glacier, Alaska (© Designpics/Adobe Stock)
 
 ![](images/2026-02/20260225_MendenhallCave_1920x1080.jpg)
-
-#### 20260224 Water lilies at Grand Cenote, Tulum, Mexico (© Christian Vizl/Tandem Stills + Motion)
-
-![](images/2026-02/20260224_TulumLilies_1920x1080.jpg)
 
 
 

@@ -1,3 +1,7 @@
+#### 20260306 波浪住宅楼, 瓦埃勒, 丹麦 (© Frank Bach/Alamy)
+
+![](20260306_WaveDenmark_1920x1080.jpg)
+
 #### 20260305 Evening over Göreme, Cappadocia, Türkiye (© ONNAJA/Getty Images)
 
 ![](20260305_GoremeTwilight_1920x1080.jpg)
