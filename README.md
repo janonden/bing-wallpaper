@@ -1,4 +1,4 @@
-#### 20260305 格雷梅的傍晚, 卡帕多西亚, 土耳其 (© ONNAJA/Getty Images)
+#### 20260305 Evening over Göreme, Cappadocia, Türkiye (© ONNAJA/Getty Images)
 
 ![](images/2026-03/20260305_GoremeTwilight_1920x1080.jpg)
 
