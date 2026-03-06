@@ -1,4 +1,4 @@
-#### 20260306 波浪住宅楼, 瓦埃勒, 丹麦 (© Frank Bach/Alamy)
+#### 20260306 The Wave residential building, Vejle, Denmark (© Frank Bach/Alamy)
 
 ![](images/2026-03/20260306_WaveDenmark_1920x1080.jpg)
 
