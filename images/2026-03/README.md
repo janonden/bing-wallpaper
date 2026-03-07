@@ -1,3 +1,7 @@
+#### 20260308 乌尔姆市政厅的天文钟, 德国 (© Tomekbudujedomek/Getty Images)
+
+![](20260308_UlmClock_1920x1080.jpg)
+
 #### 20260307 Pacific Rim National Park Reserve, Vancouver Island, Kanada (© EmilyNorton/Getty Images)
 
 ![](20260307_PacificRimNP_1920x1080.jpg)
