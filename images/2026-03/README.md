@@ -1,3 +1,11 @@
+#### 20260307 Pacific Rim National Park Reserve, Vancouver Island, Kanada (© EmilyNorton/Getty Images)
+
+![](20260307_PacificRimNP_1920x1080.jpg)
+
+#### 20260307 Le Lac Gentau enneigé, Pyrénées Atlantiques (© MICHAUX Stéphane/Hemis.fr/Alamy)
+
+![](20260307_LacGentau_1920x1080.jpg)
+
 #### 20260306 The Wave residential building, Vejle, Denmark (© Frank Bach/Alamy)
 
 ![](20260306_WaveDenmark_1920x1080.jpg)

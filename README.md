@@ -1,3 +1,11 @@
+#### 20260307 Pacific Rim National Park Reserve, Vancouver Island, Kanada (© EmilyNorton/Getty Images)
+
+![](images/2026-03/20260307_PacificRimNP_1920x1080.jpg)
+
+#### 20260307 Le Lac Gentau enneigé, Pyrénées Atlantiques (© MICHAUX Stéphane/Hemis.fr/Alamy)
+
+![](images/2026-03/20260307_LacGentau_1920x1080.jpg)
+
 #### 20260306 The Wave residential building, Vejle, Denmark (© Frank Bach/Alamy)
 
 ![](images/2026-03/20260306_WaveDenmark_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20260226 Grand Canyon and the Colorado River, Arizona (© Matt Anderson Photography/Getty Images)
 
 ![](images/2026-02/20260226_GrandSunset_1920x1080.jpg)
-
-#### 20260226 Sonnenaufgang auf dem Brocken, Nationalpark Harz, Sachsen‑Anhalt (© imageBROKER/AVTG/Getty Images)
-
-![](images/2026-02/20260226_BrockenSunrise_1920x1080.jpg)
-
-#### 20260225 Ice cave in the Mendenhall Glacier, Alaska (© Designpics/Adobe Stock)
-
-![](images/2026-02/20260225_MendenhallCave_1920x1080.jpg)
 
 
 
