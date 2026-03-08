@@ -2,6 +2,14 @@
 
 ![](20260308_UlmClock_1920x1080.jpg)
 
+#### 20260308 Neues Schloss am Schlossplatz in Stuttgart, Baden‑Württemberg (© Jorg Greuel/Getty Images)
+
+![](20260308_StuttgartSchlossplatz_1920x1080.jpg)
+
+#### 20260308 Jeune cormoran (© GiovanniCaruso/GettyImages)
+
+![](20260308_BirdCormorant_1920x1080.jpg)
+
 #### 20260307 Pacific Rim National Park Reserve, Vancouver Island, Kanada (© EmilyNorton/Getty Images)
 
 ![](20260307_PacificRimNP_1920x1080.jpg)

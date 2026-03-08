@@ -2,6 +2,14 @@
 
 ![](images/2026-03/20260308_UlmClock_1920x1080.jpg)
 
+#### 20260308 Neues Schloss am Schlossplatz in Stuttgart, Baden‑Württemberg (© Jorg Greuel/Getty Images)
+
+![](images/2026-03/20260308_StuttgartSchlossplatz_1920x1080.jpg)
+
+#### 20260308 Jeune cormoran (© GiovanniCaruso/GettyImages)
+
+![](images/2026-03/20260308_BirdCormorant_1920x1080.jpg)
+
 #### 20260307 Pacific Rim National Park Reserve, Vancouver Island, Kanada (© EmilyNorton/Getty Images)
 
 ![](images/2026-03/20260307_PacificRimNP_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20260301 伊维萨岛, 巴利阿里群岛, 西班牙 (© tokar/Shutterstock)
 
 ![](images/2026-03/20260301_BalearesDay_1920x1080.jpg)
-
-#### 20260228 Olo'upena Falls, island of Moloka'i, Hawaii (© Andrew Aylett/Getty Images)
-
-![](images/2026-02/20260228_OloupenaFalls_1920x1080.jpg)
-
-#### 20260227 Polar bear cub walking across pack ice, Arctic National Wildlife Refuge, Alaska (© Steven Kazlowski/naturepl.com)
-
-![](images/2026-02/20260227_ArcitcCub_1920x1080.jpg)
 
 
 
