@@ -1,3 +1,7 @@
+#### 20260309 在海滩上睡觉的灰海豹, 奥克尼群岛, 苏格兰 (© Andrew Mason/Minden Pictures)
+
+![](images/2026-03/20260309_NappingSeal_1920x1080.jpg)
+
 #### 20260308 Astronomical clock at Town Hall of the City of Ulm, Germany (© Tomekbudujedomek/Getty Images)
 
 ![](images/2026-03/20260308_UlmClock_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260301 Snowy owl near the Canadian Rockies (© www.harshadventure.com/Moment/Getty Images)
 
 ![](images/2026-03/20260301_OwlonGuard_1920x1080.jpg)
-
-#### 20260301 伊维萨岛, 巴利阿里群岛, 西班牙 (© tokar/Shutterstock)
-
-![](images/2026-03/20260301_BalearesDay_1920x1080.jpg)
 
 
 
