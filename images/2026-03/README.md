@@ -1,4 +1,4 @@
-#### 20260308 乌尔姆市政厅的天文钟, 德国 (© Tomekbudujedomek/Getty Images)
+#### 20260308 Astronomical clock at Town Hall of the City of Ulm, Germany (© Tomekbudujedomek/Getty Images)
 
 ![](20260308_UlmClock_1920x1080.jpg)
 
