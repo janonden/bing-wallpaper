@@ -26,6 +26,10 @@
 
 ![](20260307_LacGentau_1920x1080.jpg)
 
+#### 20260307 Sunrise on the Brocken, Harz National Park, Germany (© imageBROKER/AVTG/Getty Images)
+
+![](20260307_BrockenSunrise_1920x1080.jpg)
+
 #### 20260306 The Wave residential building, Vejle, Denmark (© Frank Bach/Alamy)
 
 ![](20260306_WaveDenmark_1920x1080.jpg)
