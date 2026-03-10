@@ -1,4 +1,4 @@
-#### 20260310 赫韦拉韦利尔的布拉赫维尔地热池, 冰岛 (© Juan Maria Coy Vergara/Getty Images)
+#### 20260310 Geothermal blue pool Bláhver at Hveravellir, Iceland (© Juan Maria Coy Vergara/Getty Images)
 
 ![](images/2026-03/20260310_SpringIceland_1920x1080.jpg)
 
