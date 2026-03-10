@@ -1,3 +1,11 @@
+#### 20260311 復興の願いが書かれた灯籠, 宮城県 名取市 (© NurPhoto/Getty Images)
+
+![](images/2026-03/20260311_TohokuEarthquakeMemorial_1920x1080.jpg)
+
+#### 20260311 盛开的桃树, 谢萨, 穆尔西亚, 西班牙 (© Juan Maria Coy Vergara/Getty Images)
+
+![](images/2026-03/20260311_PeachBloom_1920x1080.jpg)
+
 #### 20260310 Geothermal blue pool Bláhver at Hveravellir, Iceland (© Juan Maria Coy Vergara/Getty Images)
 
 ![](images/2026-03/20260310_SpringIceland_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20260303 竹筒から顔をのぞかせる可愛いひな人形 (© Bong Grit/Getty Images)
 
 ![](images/2026-03/20260303_HinaMatsuri_1920x1080.jpg)
-
-#### 20260303 African elephant calf playing with its mother, Masai Mara National Reserve, Kenya (© Denis-Huot/naturepl.com)
-
-![](images/2026-03/20260303_BabyElephant_1920x1080.jpg)
-
-#### 20260302 Harbor and longtail boats at Ko Samui, Thailand (© Foto2rich/Shutterstock)
-
-![](images/2026-03/20260302_SamuiThailand_1920x1080.jpg)
 
 
 
