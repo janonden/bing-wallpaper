@@ -30,6 +30,10 @@
 
 ![](20260308_StuttgartSchlossplatz_1920x1080.jpg)
 
+#### 20260308 Snowy owl near the Canadian Rockies, Canada (© www.harshadventure.com/Getty Images)
+
+![](20260308_OwlonGuard_1920x1080.jpg)
+
 #### 20260308 Jeune cormoran (© GiovanniCaruso/GettyImages)
 
 ![](20260308_BirdCormorant_1920x1080.jpg)

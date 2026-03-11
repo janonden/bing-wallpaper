@@ -30,6 +30,10 @@
 
 ![](images/2026-03/20260308_StuttgartSchlossplatz_1920x1080.jpg)
 
+#### 20260308 Snowy owl near the Canadian Rockies, Canada (© www.harshadventure.com/Getty Images)
+
+![](images/2026-03/20260308_OwlonGuard_1920x1080.jpg)
+
 #### 20260308 Jeune cormoran (© GiovanniCaruso/GettyImages)
 
 ![](images/2026-03/20260308_BirdCormorant_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260305 Evening over Göreme, Cappadocia, Türkiye (© ONNAJA/Getty Images)
 
 ![](images/2026-03/20260305_GoremeTwilight_1920x1080.jpg)
-
-#### 20260304 Purple crocus flowers, Seven Rila Lakes, Bulgaria (© Maya Karkalicheva/Getty Images)
-
-![](images/2026-03/20260304_RilaCrocuses_1920x1080.jpg)
 
 
 
