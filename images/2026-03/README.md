@@ -1,3 +1,11 @@
+#### 20260312 東大寺, 奈良県 奈良市 (© Sean Pavone/Alamy)
+
+![](20260312_TodaijiTempleOmizutori_1920x1080.jpg)
+
+#### 20260312 幼年日鳽在巢穴附近展示求偶行为, 厄瓜多尔 (© Andy Rouse/naturepl.com)
+
+![](20260312_SunbitternEcuador_1920x1080.jpg)
+
 #### 20260311 復興の願いが書かれた灯籠, 宮城県 名取市 (© NurPhoto/Getty Images)
 
 ![](20260311_TohokuEarthquakeMemorial_1920x1080.jpg)
