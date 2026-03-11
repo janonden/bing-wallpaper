@@ -2,7 +2,7 @@
 
 ![](images/2026-03/20260311_TohokuEarthquakeMemorial_1920x1080.jpg)
 
-#### 20260311 盛开的桃树, 谢萨, 穆尔西亚, 西班牙 (© Juan Maria Coy Vergara/Getty Images)
+#### 20260311 Peach trees in bloom, Cieza, Murcia, Spain (© Juan Maria Coy Vergara/Getty Images)
 
 ![](images/2026-03/20260311_PeachBloom_1920x1080.jpg)
 
