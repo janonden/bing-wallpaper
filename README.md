@@ -1,3 +1,7 @@
+#### 20260313 邦港圣母教堂拱顶，莱萨布勒多洛讷，法国 (© Helmut Meyer zur Capellen/Alamy)
+
+![](images/2026-03/20260313_VendeeVaults_1920x1080.jpg)
+
 #### 20260312 東大寺, 奈良県 奈良市 (© Sean Pavone/Alamy)
 
 ![](images/2026-03/20260312_TodaijiTempleOmizutori_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260306 The Wave residential building, Vejle, Denmark (© Frank Bach/Alamy)
 
 ![](images/2026-03/20260306_WaveDenmark_1920x1080.jpg)
-
-#### 20260305 Evening over Göreme, Cappadocia, Türkiye (© ONNAJA/Getty Images)
-
-![](images/2026-03/20260305_GoremeTwilight_1920x1080.jpg)
 
 
 
