@@ -2,7 +2,7 @@
 
 ![](20260312_TodaijiTempleOmizutori_1920x1080.jpg)
 
-#### 20260312 幼年日鳽在巢穴附近展示求偶行为, 厄瓜多尔 (© Andy Rouse/naturepl.com)
+#### 20260312 Juvenile sunbittern displaying at nest, Ecuador (© Andy Rouse/naturepl.com)
 
 ![](20260312_SunbitternEcuador_1920x1080.jpg)
 
