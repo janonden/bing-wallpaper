@@ -2,6 +2,10 @@
 
 ![](images/2026-03/20260314_SwanHesse_1920x1080.jpg)
 
+#### 20260314 兰扬石门，位于英格兰康沃尔郡的一座兰扬新石器时代石棚墓，英国 (© Helen Hotson/Alamy)
+
+![](images/2026-03/20260314_CornwallDolmen_1920x1080.jpg)
+
 #### 20260313 Vaults of the Church of Notre Dame de Bon-Port, Les Sables-d'Olonne, France (© Helmut Meyer zur Capellen/Alamy)
 
 ![](images/2026-03/20260313_VendeeVaults_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260307 Le Lac Gentau enneigé, Pyrénées Atlantiques (© MICHAUX Stéphane/Hemis.fr/Alamy)
 
 ![](images/2026-03/20260307_LacGentau_1920x1080.jpg)
-
-#### 20260307 Sunrise on the Brocken, Harz National Park, Germany (© imageBROKER/AVTG/Getty Images)
-
-![](images/2026-03/20260307_BrockenSunrise_1920x1080.jpg)
 
 
 
