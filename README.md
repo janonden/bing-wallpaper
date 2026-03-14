@@ -2,7 +2,7 @@
 
 ![](images/2026-03/20260314_SwanHesse_1920x1080.jpg)
 
-#### 20260314 兰扬石门，位于英格兰康沃尔郡的一座兰扬新石器时代石棚墓，英国 (© Helen Hotson/Alamy)
+#### 20260314 Lanyon Quoit, a Neolithic dolmen in Cornwall, England (© Helen Hotson/Alamy)
 
 ![](images/2026-03/20260314_CornwallDolmen_1920x1080.jpg)
 
