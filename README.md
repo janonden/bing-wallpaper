@@ -54,7 +54,7 @@
 
 ![](images/2026-03/20260308_BirdCormorant_1920x1080.jpg)
 
-#### 20260307 Pacific Rim National Park Reserve, Vancouver Island, Kanada (© EmilyNorton/Getty Images)
+#### 20260307 Pacific Rim National Park Reserve, Vancouver Island, Canada (© EmilyNorton/Getty Images)
 
 ![](images/2026-03/20260307_PacificRimNP_1920x1080.jpg)
 
