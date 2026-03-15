@@ -1,3 +1,7 @@
+#### 20260315 Königssee bei Schönau am Königssee, Bayern (© EyeEm Mobile GmbH/Getty Images)
+
+![](images/2026-03/20260315_KoenigsseeFog_1920x1080.jpg)
+
 #### 20260314 Mute swan with chicks, Hesse, Germany (© Wilfried Martin/Getty Images)
 
 ![](images/2026-03/20260314_SwanHesse_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260307 Pacific Rim National Park Reserve, Vancouver Island, Kanada (© EmilyNorton/Getty Images)
 
 ![](images/2026-03/20260307_PacificRimNP_1920x1080.jpg)
-
-#### 20260307 Le Lac Gentau enneigé, Pyrénées Atlantiques (© MICHAUX Stéphane/Hemis.fr/Alamy)
-
-![](images/2026-03/20260307_LacGentau_1920x1080.jpg)
 
 
 

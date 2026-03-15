@@ -1,3 +1,7 @@
+#### 20260315 Königssee bei Schönau am Königssee, Bayern (© EyeEm Mobile GmbH/Getty Images)
+
+![](20260315_KoenigsseeFog_1920x1080.jpg)
+
 #### 20260314 Mute swan with chicks, Hesse, Germany (© Wilfried Martin/Getty Images)
 
 ![](20260314_SwanHesse_1920x1080.jpg)
