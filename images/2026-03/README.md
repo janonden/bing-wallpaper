@@ -1,4 +1,8 @@
-#### 20260316 正在吃竹子的大熊猫，中国 (© Entwicklungsknecht/Getty Images)
+#### 20260317 Cable car and Sugarloaf Mountain, Rio de Janeiro, Brazil (© f11photo/Shutterstock)
+
+![](20260317_AnivRio_1920x1080.jpg)
+
+#### 20260316 Giant panda eating bamboo, China (© Entwicklungsknecht/Getty Images)
 
 ![](20260316_PandaForest_1920x1080.jpg)
 
