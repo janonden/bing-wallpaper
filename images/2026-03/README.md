@@ -2,6 +2,10 @@
 
 ![](20260316_PandaForest_1920x1080.jpg)
 
+#### 20260316 Aurora over Spirit Island on Maligne Lake, Jasper National Park, Alberta (© Mumemories/istock/Getty Images)
+
+![](20260316_AuroraIsland_1920x1080.jpg)
+
 #### 20260315 Königssee bei Schönau am Königssee, Bayern (© EyeEm Mobile GmbH/Getty Images)
 
 ![](20260315_KoenigsseeFog_1920x1080.jpg)

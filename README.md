@@ -2,6 +2,10 @@
 
 ![](images/2026-03/20260316_PandaForest_1920x1080.jpg)
 
+#### 20260316 Aurora over Spirit Island on Maligne Lake, Jasper National Park, Alberta (© Mumemories/istock/Getty Images)
+
+![](images/2026-03/20260316_AuroraIsland_1920x1080.jpg)
+
 #### 20260315 Königssee bei Schönau am Königssee, Bayern (© EyeEm Mobile GmbH/Getty Images)
 
 ![](images/2026-03/20260315_KoenigsseeFog_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260308 Snowy owl near the Canadian Rockies, Canada (© www.harshadventure.com/Getty Images)
 
 ![](images/2026-03/20260308_OwlonGuard_1920x1080.jpg)
-
-#### 20260308 Jeune cormoran (© GiovanniCaruso/GettyImages)
-
-![](images/2026-03/20260308_BirdCormorant_1920x1080.jpg)
 
 
 
