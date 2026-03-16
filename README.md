@@ -1,3 +1,7 @@
+#### 20260317 艾利赫格里安南环形堡，多内加尔，爱尔兰 (© Lukassek/Getty Images)
+
+![](images/2026-03/20260317_DonegalFort_1920x1080.jpg)
+
 #### 20260317 Cable car and Sugarloaf Mountain, Rio de Janeiro, Brazil (© f11photo/Shutterstock)
 
 ![](images/2026-03/20260317_AnivRio_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260308 Astronomical clock at Town Hall of the City of Ulm, Germany (© Tomekbudujedomek/Getty Images)
 
 ![](images/2026-03/20260308_UlmClock_1920x1080.jpg)
-
-#### 20260308 Neues Schloss am Schlossplatz in Stuttgart, Baden‑Württemberg (© Jorg Greuel/Getty Images)
-
-![](images/2026-03/20260308_StuttgartSchlossplatz_1920x1080.jpg)
 
 
 
