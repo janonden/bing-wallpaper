@@ -1,4 +1,4 @@
-#### 20260317 艾利赫格里安南环形堡，多内加尔，爱尔兰 (© Lukassek/Getty Images)
+#### 20260317 Grianan of Aileach ring fort, Donegal, Ireland (© aluxum/Getty Images)
 
 ![](20260317_DonegalFort_1920x1080.jpg)
 
