@@ -22,6 +22,10 @@
 
 ![](images/2026-03/20260316_AuroraIsland_1920x1080.jpg)
 
+#### 20260315 Pacific Rim National Park Reserve, Vancouver Island, Canada (© EmilyNorton/Getty Images)
+
+![](images/2026-03/20260315_PacificRimNP_1920x1080.jpg)
+
 #### 20260315 Königssee bei Schönau am Königssee, Bayern (© EyeEm Mobile GmbH/Getty Images)
 
 ![](images/2026-03/20260315_KoenigsseeFog_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260311 Peach trees in bloom, Cieza, Murcia, Spain (© Juan Maria Coy Vergara/Getty Images)
 
 ![](images/2026-03/20260311_PeachBloom_1920x1080.jpg)
-
-#### 20260310 Geothermal blue pool Bláhver at Hveravellir, Iceland (© Juan Maria Coy Vergara/Getty Images)
-
-![](images/2026-03/20260310_SpringIceland_1920x1080.jpg)
 
 
 

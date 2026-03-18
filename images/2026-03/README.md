@@ -22,6 +22,10 @@
 
 ![](20260316_AuroraIsland_1920x1080.jpg)
 
+#### 20260315 Pacific Rim National Park Reserve, Vancouver Island, Canada (© EmilyNorton/Getty Images)
+
+![](20260315_PacificRimNP_1920x1080.jpg)
+
 #### 20260315 Königssee bei Schönau am Königssee, Bayern (© EyeEm Mobile GmbH/Getty Images)
 
 ![](20260315_KoenigsseeFog_1920x1080.jpg)
