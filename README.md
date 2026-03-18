@@ -1,3 +1,7 @@
+#### 20260319 澳洲针鼹，阿德莱德山，澳大利亚 (© Etienne Littlefair/naturepl.com)
+
+![](images/2026-03/20260319_EchidnaAustralia_1920x1080.jpg)
+
 #### 20260318 Cherry blossoms at Tom McCall Waterfront Park, Portland, Oregon (© Eric Vogt/Tandem Stills + Motion)
 
 ![](images/2026-03/20260318_PortlandBlossoms_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260310 Geothermal blue pool Bláhver at Hveravellir, Iceland (© Juan Maria Coy Vergara/Getty Images)
 
 ![](images/2026-03/20260310_SpringIceland_1920x1080.jpg)
-
-#### 20260309 Gray seal sleeping on the beach, Orkney Islands, Scotland (© Andrew Mason/Minden Pictures)
-
-![](images/2026-03/20260309_NappingSeal_1920x1080.jpg)
 
 
 

@@ -1,3 +1,7 @@
+#### 20260319 澳洲针鼹，阿德莱德山，澳大利亚 (© Etienne Littlefair/naturepl.com)
+
+![](20260319_EchidnaAustralia_1920x1080.jpg)
+
 #### 20260318 Cherry blossoms at Tom McCall Waterfront Park, Portland, Oregon (© Eric Vogt/Tandem Stills + Motion)
 
 ![](20260318_PortlandBlossoms_1920x1080.jpg)
