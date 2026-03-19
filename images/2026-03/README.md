@@ -1,4 +1,4 @@
-#### 20260319 澳洲针鼹，阿德莱德山，澳大利亚 (© Etienne Littlefair/naturepl.com)
+#### 20260319 Short-beaked echidna, Adelaide Hills, Australia (© Etienne Littlefair/naturepl.com)
 
 ![](20260319_EchidnaAustralia_1920x1080.jpg)
 
