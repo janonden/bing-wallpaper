@@ -1,3 +1,11 @@
+#### 20260320 スノードロップ花 (© klagyivik/Getty Images)
+
+![](images/2026-03/20260320_SpringSnowdrops_1920x1080.jpg)
+
+#### 20260320 春日樱花，上海，中国 (© junyyeung/Getty Images)
+
+![](images/2026-03/20260320_SpringEquinoxY_1920x1080.jpg)
+
 #### 20260319 Short-beaked echidna, Adelaide Hills, Australia (© Etienne Littlefair/naturepl.com)
 
 ![](images/2026-03/20260319_EchidnaAustralia_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20260312 Juvenile sunbittern displaying at nest, Ecuador (© Andy Rouse/naturepl.com)
 
 ![](images/2026-03/20260312_SunbitternEcuador_1920x1080.jpg)
-
-#### 20260311 復興の願いが書かれた灯籠, 宮城県 名取市 (© NurPhoto/Getty Images)
-
-![](images/2026-03/20260311_TohokuEarthquakeMemorial_1920x1080.jpg)
-
-#### 20260311 Peach trees in bloom, Cieza, Murcia, Spain (© Juan Maria Coy Vergara/Getty Images)
-
-![](images/2026-03/20260311_PeachBloom_1920x1080.jpg)
 
 
 
