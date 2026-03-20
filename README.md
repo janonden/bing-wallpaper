@@ -6,6 +6,10 @@
 
 ![](images/2026-03/20260320_SpringEquinoxY_1920x1080.jpg)
 
+#### 20260320 Vue sur le quartier d’Endoume, les Îles du Frioul et le Château d'If, Marseille (© RIEGER Bertrand/hemis.fr/Alamy)
+
+![](images/2026-03/20260320_FrancophonieIf_1920x1080.jpg)
+
 #### 20260319 Short-beaked echidna, Adelaide Hills, Australia (© Etienne Littlefair/naturepl.com)
 
 ![](images/2026-03/20260319_EchidnaAustralia_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260312 東大寺, 奈良県 奈良市 (© Sean Pavone/Alamy)
 
 ![](images/2026-03/20260312_TodaijiTempleOmizutori_1920x1080.jpg)
-
-#### 20260312 Juvenile sunbittern displaying at nest, Ecuador (© Andy Rouse/naturepl.com)
-
-![](images/2026-03/20260312_SunbitternEcuador_1920x1080.jpg)
 
 
 

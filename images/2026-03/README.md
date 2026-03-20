@@ -6,6 +6,10 @@
 
 ![](20260320_SpringEquinoxY_1920x1080.jpg)
 
+#### 20260320 Vue sur le quartier d’Endoume, les Îles du Frioul et le Château d'If, Marseille (© RIEGER Bertrand/hemis.fr/Alamy)
+
+![](20260320_FrancophonieIf_1920x1080.jpg)
+
 #### 20260319 Short-beaked echidna, Adelaide Hills, Australia (© Etienne Littlefair/naturepl.com)
 
 ![](20260319_EchidnaAustralia_1920x1080.jpg)
