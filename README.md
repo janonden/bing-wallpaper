@@ -1,4 +1,4 @@
-#### 20260322 坦噶尼喀湖，非洲 (© BEST-BACKGROUNDS/NASA/Shutterstock)
+#### 20260322 Lake Tanganyika, Africa (© BEST-BACKGROUNDS/NASA/Shutterstock)
 
 ![](images/2026-03/20260322_TanganyikaWater_1920x1080.jpg)
 
