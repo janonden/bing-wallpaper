@@ -1,3 +1,7 @@
+#### 20260323 坦噶尼喀湖，非洲 (© BEST-BACKGROUNDS/NASA/Shutterstock)
+
+![](images/2026-03/20260323_SonoranStorm_1920x1080.jpg)
+
 #### 20260322 Lake Tanganyika, Africa (© BEST-BACKGROUNDS/NASA/Shutterstock)
 
 ![](images/2026-03/20260322_TanganyikaWater_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260314 Mute swan with chicks, Hesse, Germany (© Wilfried Martin/Getty Images)
 
 ![](images/2026-03/20260314_SwanHesse_1920x1080.jpg)
-
-#### 20260314 Lanyon Quoit, a Neolithic dolmen in Cornwall, England (© Helen Hotson/Alamy)
-
-![](images/2026-03/20260314_CornwallDolmen_1920x1080.jpg)
 
 
 
