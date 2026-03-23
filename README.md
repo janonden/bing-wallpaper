@@ -1,4 +1,4 @@
-#### 20260323 坦噶尼喀湖，非洲 (© BEST-BACKGROUNDS/NASA/Shutterstock)
+#### 20260323 Lightning storm over saguaro cacti, Sonoran Desert, Arizona (© Jack Dykinga/Nature Picture Library)
 
 ![](images/2026-03/20260323_SonoranStorm_1920x1080.jpg)
 
