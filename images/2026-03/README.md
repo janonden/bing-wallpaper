@@ -1,3 +1,7 @@
+#### 20260324 东湖樱花园的樱花，武汉，中国 (© Zhang Qiao/VCG/Getty Images)
+
+![](20260324_WuhanCherryBlossom_1920x1080.jpg)
+
 #### 20260323 Lightning storm over saguaro cacti, Sonoran Desert, Arizona (© Jack Dykinga/Nature Picture Library)
 
 ![](20260323_SonoranStorm_1920x1080.jpg)
