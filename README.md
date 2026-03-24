@@ -1,4 +1,4 @@
-#### 20260324 东湖樱花园的樱花，武汉，中国 (© Zhang Qiao/VCG/Getty Images)
+#### 20260324 Cherry blossoms at East Lake Cherry Blossom Park, Wuhan, China (© Zhang Qiao/VCG/Getty Images)
 
 ![](images/2026-03/20260324_WuhanCherryBlossom_1920x1080.jpg)
 
