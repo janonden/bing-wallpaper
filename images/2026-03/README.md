@@ -2,6 +2,10 @@
 
 ![](20260324_WuhanCherryBlossom_1920x1080.jpg)
 
+#### 20260324 Drohnenaufnahme des Peilturms am Kap Arkona, Rügen, Mecklenburg‑Vorpommern (© Stefan Dinse/Getty Images)
+
+![](20260324_KapArkonaRuegen_1920x1080.jpg)
+
 #### 20260323 Lightning storm over saguaro cacti, Sonoran Desert, Arizona (© Jack Dykinga/Nature Picture Library)
 
 ![](20260323_SonoranStorm_1920x1080.jpg)

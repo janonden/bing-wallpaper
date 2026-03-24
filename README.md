@@ -2,6 +2,10 @@
 
 ![](images/2026-03/20260324_WuhanCherryBlossom_1920x1080.jpg)
 
+#### 20260324 Drohnenaufnahme des Peilturms am Kap Arkona, Rügen, Mecklenburg‑Vorpommern (© Stefan Dinse/Getty Images)
+
+![](images/2026-03/20260324_KapArkonaRuegen_1920x1080.jpg)
+
 #### 20260323 Lightning storm over saguaro cacti, Sonoran Desert, Arizona (© Jack Dykinga/Nature Picture Library)
 
 ![](images/2026-03/20260323_SonoranStorm_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260315 Pacific Rim National Park Reserve, Vancouver Island, Canada (© EmilyNorton/Getty Images)
 
 ![](images/2026-03/20260315_PacificRimNP_1920x1080.jpg)
-
-#### 20260315 Königssee bei Schönau am Königssee, Bayern (© EyeEm Mobile GmbH/Getty Images)
-
-![](images/2026-03/20260315_KoenigsseeFog_1920x1080.jpg)
 
 
 
