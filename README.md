@@ -1,3 +1,7 @@
+#### 20260325 淡水泉中的幼年海牛，水晶河，佛罗里达州，美国 (© Gregory Sweeney/Getty Images)
+
+![](images/2026-03/20260325_ManateeSpring_1920x1080.jpg)
+
 #### 20260324 Cherry blossoms at East Lake Cherry Blossom Park, Wuhan, China (© Zhang Qiao/VCG/Getty Images)
 
 ![](images/2026-03/20260324_WuhanCherryBlossom_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260316 Aurora over Spirit Island on Maligne Lake, Jasper National Park, Alberta (© Mumemories/istock/Getty Images)
 
 ![](images/2026-03/20260316_AuroraIsland_1920x1080.jpg)
-
-#### 20260315 Pacific Rim National Park Reserve, Vancouver Island, Canada (© EmilyNorton/Getty Images)
-
-![](images/2026-03/20260315_PacificRimNP_1920x1080.jpg)
 
 
 

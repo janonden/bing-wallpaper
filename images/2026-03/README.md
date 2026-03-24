@@ -1,3 +1,7 @@
+#### 20260325 淡水泉中的幼年海牛，水晶河，佛罗里达州，美国 (© Gregory Sweeney/Getty Images)
+
+![](20260325_ManateeSpring_1920x1080.jpg)
+
 #### 20260324 Cherry blossoms at East Lake Cherry Blossom Park, Wuhan, China (© Zhang Qiao/VCG/Getty Images)
 
 ![](20260324_WuhanCherryBlossom_1920x1080.jpg)
