@@ -2,6 +2,10 @@
 
 ![](images/2026-03/20260325_ManateeSpring_1920x1080.jpg)
 
+#### 20260325 Pine trees reflected in the Forgetmenot Pond in Kananaskis Country, Alberta (© chinaface/Getty images)
+
+![](images/2026-03/20260325_AlbertaSnowMts_1920x1080.jpg)
+
 #### 20260324 Cherry blossoms at East Lake Cherry Blossom Park, Wuhan, China (© Zhang Qiao/VCG/Getty Images)
 
 ![](images/2026-03/20260324_WuhanCherryBlossom_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260316 Giant panda eating bamboo, China (© Entwicklungsknecht/Getty Images)
 
 ![](images/2026-03/20260316_PandaForest_1920x1080.jpg)
-
-#### 20260316 Aurora over Spirit Island on Maligne Lake, Jasper National Park, Alberta (© Mumemories/istock/Getty Images)
-
-![](images/2026-03/20260316_AuroraIsland_1920x1080.jpg)
 
 
 
