@@ -1,4 +1,4 @@
-#### 20260325 淡水泉中的幼年海牛，水晶河，佛罗里达州，美国 (© Gregory Sweeney/Getty Images)
+#### 20260325 Juvenile manatees in a freshwater spring, Crystal River, Florida (© Gregory Sweeney/Getty Images)
 
 ![](images/2026-03/20260325_ManateeSpring_1920x1080.jpg)
 
