@@ -14,6 +14,10 @@
 
 ![](images/2026-03/20260325_ManateeSpring_1920x1080.jpg)
 
+#### 20260325 Königssee Lake, Bavaria, Germany (© EyeEm Mobile GmbH/Getty Images)
+
+![](images/2026-03/20260325_KoenigsseeFog_1920x1080.jpg)
+
 #### 20260325 Pine trees reflected in the Forgetmenot Pond in Kananaskis Country, Alberta (© chinaface/Getty images)
 
 ![](images/2026-03/20260325_AlbertaSnowMts_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260319 Short-beaked echidna, Adelaide Hills, Australia (© Etienne Littlefair/naturepl.com)
 
 ![](images/2026-03/20260319_EchidnaAustralia_1920x1080.jpg)
-
-#### 20260318 Cherry blossoms at Tom McCall Waterfront Park, Portland, Oregon (© Eric Vogt/Tandem Stills + Motion)
-
-![](images/2026-03/20260318_PortlandBlossoms_1920x1080.jpg)
 
 
 

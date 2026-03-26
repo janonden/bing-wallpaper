@@ -14,6 +14,10 @@
 
 ![](20260325_ManateeSpring_1920x1080.jpg)
 
+#### 20260325 Königssee Lake, Bavaria, Germany (© EyeEm Mobile GmbH/Getty Images)
+
+![](20260325_KoenigsseeFog_1920x1080.jpg)
+
 #### 20260325 Pine trees reflected in the Forgetmenot Pond in Kananaskis Country, Alberta (© chinaface/Getty images)
 
 ![](20260325_AlbertaSnowMts_1920x1080.jpg)
