@@ -1,4 +1,4 @@
-#### 20260326 洛根溪吊桥，西海岸步道，加拿大 (© Tandem Stock/Adobe Stock)
+#### 20260326 Logan Creek Suspension Bridge, West Coast Trail, Canada (© Tandem Stock/Adobe Stock)
 
 ![](20260326_LoganCreek_1920x1080.jpg)
 
