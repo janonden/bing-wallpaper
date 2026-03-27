@@ -2,6 +2,10 @@
 
 ![](20260328_CapeBuffalo_1920x1080.jpg)
 
+#### 20260328 Aurora over Spirit Island on Maligne Lake, Jasper National Park, Alberta, Canada (© Mumemories/Getty Images)
+
+![](20260328_AuroraIsland_1920x1080.jpg)
+
 #### 20260327 日本一早い桜、沖縄 (© @hapidayss/Getty Images)
 
 ![](20260327_SakuraDay_1920x1080.jpg)

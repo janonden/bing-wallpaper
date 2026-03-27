@@ -2,6 +2,10 @@
 
 ![](images/2026-03/20260328_CapeBuffalo_1920x1080.jpg)
 
+#### 20260328 Aurora over Spirit Island on Maligne Lake, Jasper National Park, Alberta, Canada (© Mumemories/Getty Images)
+
+![](images/2026-03/20260328_AuroraIsland_1920x1080.jpg)
+
 #### 20260327 日本一早い桜、沖縄 (© @hapidayss/Getty Images)
 
 ![](images/2026-03/20260327_SakuraDay_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260320 春日樱花，上海，中国 (© junyyeung/Getty Images)
 
 ![](images/2026-03/20260320_SpringEquinoxY_1920x1080.jpg)
-
-#### 20260320 Vue sur le quartier d’Endoume, les Îles du Frioul et le Château d'If, Marseille (© RIEGER Bertrand/hemis.fr/Alamy)
-
-![](images/2026-03/20260320_FrancophonieIf_1920x1080.jpg)
 
 
 
