@@ -1,3 +1,7 @@
+#### 20260328 非洲水牛, 恩戈罗恩戈罗火山口, 坦桑尼亚 (© jesuss8/500px/Getty Images)
+
+![](20260328_CapeBuffalo_1920x1080.jpg)
+
 #### 20260327 日本一早い桜、沖縄 (© @hapidayss/Getty Images)
 
 ![](20260327_SakuraDay_1920x1080.jpg)

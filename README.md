@@ -1,3 +1,7 @@
+#### 20260328 非洲水牛, 恩戈罗恩戈罗火山口, 坦桑尼亚 (© jesuss8/500px/Getty Images)
+
+![](images/2026-03/20260328_CapeBuffalo_1920x1080.jpg)
+
 #### 20260327 日本一早い桜、沖縄 (© @hapidayss/Getty Images)
 
 ![](images/2026-03/20260327_SakuraDay_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260320 Vue sur le quartier d’Endoume, les Îles du Frioul et le Château d'If, Marseille (© RIEGER Bertrand/hemis.fr/Alamy)
 
 ![](images/2026-03/20260320_FrancophonieIf_1920x1080.jpg)
-
-#### 20260319 Short-beaked echidna, Adelaide Hills, Australia (© Etienne Littlefair/naturepl.com)
-
-![](images/2026-03/20260319_EchidnaAustralia_1920x1080.jpg)
 
 
 
