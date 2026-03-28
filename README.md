@@ -1,4 +1,4 @@
-#### 20260328 非洲水牛, 恩戈罗恩戈罗火山口, 坦桑尼亚 (© jesuss8/500px/Getty Images)
+#### 20260328 African buffalo, Ngorongoro Crater, Tanzania (© jesuss8/500px/Getty Images)
 
 ![](images/2026-03/20260328_CapeBuffalo_1920x1080.jpg)
 
