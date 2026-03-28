@@ -1,3 +1,7 @@
+#### 20260329 佩吉角灯塔, 大西洋海岸, 新斯科舍省, 加拿大 (© Prashanth Bala/Shutterstock)
+
+![](20260329_PeggysLighthouse_1920x1080.jpg)
+
 #### 20260328 African buffalo, Ngorongoro Crater, Tanzania (© jesuss8/500px/Getty Images)
 
 ![](20260328_CapeBuffalo_1920x1080.jpg)

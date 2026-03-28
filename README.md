@@ -1,3 +1,7 @@
+#### 20260329 佩吉角灯塔, 大西洋海岸, 新斯科舍省, 加拿大 (© Prashanth Bala/Shutterstock)
+
+![](images/2026-03/20260329_PeggysLighthouse_1920x1080.jpg)
+
 #### 20260328 African buffalo, Ngorongoro Crater, Tanzania (© jesuss8/500px/Getty Images)
 
 ![](images/2026-03/20260328_CapeBuffalo_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260320 Snowdrops in spring (© klagyivik/Getty Images)
 
 ![](images/2026-03/20260320_SpringSnowdrops_1920x1080.jpg)
-
-#### 20260320 春日樱花，上海，中国 (© junyyeung/Getty Images)
-
-![](images/2026-03/20260320_SpringEquinoxY_1920x1080.jpg)
 
 
 
