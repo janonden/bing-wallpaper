@@ -1,3 +1,7 @@
+#### 20260329 Astronomische Uhr am Rathaus von Ulm, Baden‑Württemberg (© Tomekbudujedomek/Getty Images)
+
+![](20260329_UlmClock_1920x1080.jpg)
+
 #### 20260329 佩吉角灯塔, 大西洋海岸, 新斯科舍省, 加拿大 (© Prashanth Bala/Shutterstock)
 
 ![](20260329_PeggysLighthouse_1920x1080.jpg)

@@ -1,3 +1,7 @@
+#### 20260329 Astronomische Uhr am Rathaus von Ulm, Baden‑Württemberg (© Tomekbudujedomek/Getty Images)
+
+![](images/2026-03/20260329_UlmClock_1920x1080.jpg)
+
 #### 20260329 佩吉角灯塔, 大西洋海岸, 新斯科舍省, 加拿大 (© Prashanth Bala/Shutterstock)
 
 ![](images/2026-03/20260329_PeggysLighthouse_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260321 Letea Forest, Danube Delta, Romania (© Wild Wonders of Europe/Widstrand/Nature Picture Library)
 
 ![](images/2026-03/20260321_LeteaForest_1920x1080.jpg)
-
-#### 20260320 Snowdrops in spring (© klagyivik/Getty Images)
-
-![](images/2026-03/20260320_SpringSnowdrops_1920x1080.jpg)
 
 
 
