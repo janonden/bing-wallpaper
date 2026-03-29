@@ -1,3 +1,7 @@
+#### 20260330 蓑羽鹤, 印度 (© Axel Gomille/Nature Picture Library)
+
+![](20260330_IndiaCranes_1920x1080.jpg)
+
 #### 20260329 Astronomische Uhr am Rathaus von Ulm, Baden‑Württemberg (© Tomekbudujedomek/Getty Images)
 
 ![](20260329_UlmClock_1920x1080.jpg)

@@ -1,3 +1,7 @@
+#### 20260330 蓑羽鹤, 印度 (© Axel Gomille/Nature Picture Library)
+
+![](images/2026-03/20260330_IndiaCranes_1920x1080.jpg)
+
 #### 20260329 Astronomische Uhr am Rathaus von Ulm, Baden‑Württemberg (© Tomekbudujedomek/Getty Images)
 
 ![](images/2026-03/20260329_UlmClock_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260322 Lake Tanganyika, Africa (© BEST-BACKGROUNDS/NASA/Shutterstock)
 
 ![](images/2026-03/20260322_TanganyikaWater_1920x1080.jpg)
-
-#### 20260321 Letea Forest, Danube Delta, Romania (© Wild Wonders of Europe/Widstrand/Nature Picture Library)
-
-![](images/2026-03/20260321_LeteaForest_1920x1080.jpg)
 
 
 
