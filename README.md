@@ -1,4 +1,4 @@
-#### 20260330 蓑羽鹤, 印度 (© Axel Gomille/Nature Picture Library)
+#### 20260330 Demoiselle cranes, India (© Axel Gomille/Nature Picture Library)
 
 ![](images/2026-03/20260330_IndiaCranes_1920x1080.jpg)
 
