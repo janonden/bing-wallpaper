@@ -1,3 +1,11 @@
+#### 20260401 セントラル・バレー, 米国 カリフォルニア州 (© Jeff Lewis/Tandem Stills + Motion)
+
+![](images/2026-04/20260401_WildflowerValley_1920x1080.jpg)
+
+#### 20260401 粉色牵牛花里的日本树蛙 (© Tetsuya Tanooka/Getty Images)
+
+![](images/2026-04/20260401_JapaneseTreeFrog_1920x1080.jpg)
+
 #### 20260331 Paradise Cave, Phong Nha-Ke Bang National Park, Vietnam (© Pakawat Thongcharoen/Getty Images)
 
 ![](images/2026-03/20260331_ParadiseCave_1920x1080.jpg)
@@ -50,14 +58,6 @@
 
 ![](images/2026-03/20260324_WuhanCherryBlossom_1920x1080.jpg)
 
-#### 20260324 Drohnenaufnahme des Peilturms am Kap Arkona, Rügen, Mecklenburg‑Vorpommern (© Stefan Dinse/Getty Images)
-
-![](images/2026-03/20260324_KapArkonaRuegen_1920x1080.jpg)
-
-#### 20260323 Lightning storm over saguaro cacti, Sonoran Desert, Arizona (© Jack Dykinga/Nature Picture Library)
-
-![](images/2026-03/20260323_SonoranStorm_1920x1080.jpg)
-
 
 
 
@@ -66,7 +66,7 @@
 
 
 
-- 2026&emsp;&emsp;[03](images/2026-03/README.md) &emsp;&emsp;[02](images/2026-02/README.md) &emsp;&emsp;[01](images/2026-01/README.md) 
+- 2026&emsp;&emsp;[04](images/2026-04/README.md) &emsp;&emsp;[03](images/2026-03/README.md) &emsp;&emsp;[02](images/2026-02/README.md) &emsp;&emsp;[01](images/2026-01/README.md) 
 
 - 2025&emsp;&emsp;[12](https://github.com/janonden/bing-wallpaper/blob/2025/images/2025-12/README.md) &emsp;&emsp;[11](https://github.com/janonden/bing-wallpaper/blob/2025/images/2025-11/README.md) &emsp;&emsp;[10](https://github.com/janonden/bing-wallpaper/blob/2025/images/2025-10/README.md) &emsp;&emsp;[09](https://github.com/janonden/bing-wallpaper/blob/2025/images/2025-09/README.md) &emsp;&emsp;[08](https://github.com/janonden/bing-wallpaper/blob/2025/images/2025-08/README.md) &emsp;&emsp;[07](https://github.com/janonden/bing-wallpaper/blob/2025/images/2025-07/README.md) &emsp;&emsp;[06](https://github.com/janonden/bing-wallpaper/blob/2025/images/2025-06/README.md) &emsp;&emsp;[05](https://github.com/janonden/bing-wallpaper/blob/2025/images/2025-05/README.md) &emsp;&emsp;[04](https://github.com/janonden/bing-wallpaper/blob/2025/images/2025-04/README.md) &emsp;&emsp;[03](https://github.com/janonden/bing-wallpaper/blob/2025/images/2025-03/README.md) &emsp;&emsp;[02](https://github.com/janonden/bing-wallpaper/blob/2025/images/2025-02/README.md) &emsp;&emsp;[01](https://github.com/janonden/bing-wallpaper/blob/2025/images/2025-01/README.md) 
 
