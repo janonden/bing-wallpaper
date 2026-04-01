@@ -2,7 +2,7 @@
 
 ![](20260401_WildflowerValley_1920x1080.jpg)
 
-#### 20260401 粉色牵牛花里的日本树蛙 (© Tetsuya Tanooka/Getty Images)
+#### 20260401 Japanese tree frog in a pink morning glory (© Tetsuya Tanooka/Getty Images)
 
 ![](20260401_JapaneseTreeFrog_1920x1080.jpg)
 
