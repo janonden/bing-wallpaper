@@ -1,3 +1,7 @@
+#### 20260402 シモクレン (© Aflo Co., Ltd./Alamy)
+
+![](images/2026-04/20260402_MagnoliaBloom_1920x1080.jpg)
+
 #### 20260401 セントラル・バレー, 米国 カリフォルニア州 (© Jeff Lewis/Tandem Stills + Motion)
 
 ![](images/2026-04/20260401_WildflowerValley_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260325 Pine trees reflected in the Forgetmenot Pond in Kananaskis Country, Alberta (© chinaface/Getty images)
 
 ![](images/2026-03/20260325_AlbertaSnowMts_1920x1080.jpg)
-
-#### 20260324 Cherry blossoms at East Lake Cherry Blossom Park, Wuhan, China (© Zhang Qiao/VCG/Getty Images)
-
-![](images/2026-03/20260324_WuhanCherryBlossom_1920x1080.jpg)
 
 
 
