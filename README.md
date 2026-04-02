@@ -1,3 +1,7 @@
+#### 20260402 Muscardin à l’entrée de leur nid, Normandie (© slowmotiongli/Getty Images)
+
+![](images/2026-04/20260402_MuscardinNest_1920x1080.jpg)
+
 #### 20260402 シモクレン (© Aflo Co., Ltd./Alamy)
 
 ![](images/2026-04/20260402_MagnoliaBloom_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260325 Königssee Lake, Bavaria, Germany (© EyeEm Mobile GmbH/Getty Images)
 
 ![](images/2026-03/20260325_KoenigsseeFog_1920x1080.jpg)
-
-#### 20260325 Pine trees reflected in the Forgetmenot Pond in Kananaskis Country, Alberta (© chinaface/Getty images)
-
-![](images/2026-03/20260325_AlbertaSnowMts_1920x1080.jpg)
 
 
 

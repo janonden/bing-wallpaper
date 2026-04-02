@@ -1,3 +1,7 @@
+#### 20260402 Muscardin à l’entrée de leur nid, Normandie (© slowmotiongli/Getty Images)
+
+![](20260402_MuscardinNest_1920x1080.jpg)
+
 #### 20260402 シモクレン (© Aflo Co., Ltd./Alamy)
 
 ![](20260402_MagnoliaBloom_1920x1080.jpg)
