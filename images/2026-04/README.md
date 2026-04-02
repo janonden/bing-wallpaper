@@ -6,7 +6,7 @@
 
 ![](20260402_MagnoliaBloom_1920x1080.jpg)
 
-#### 20260401 セントラル・バレー, 米国 カリフォルニア州 (© Jeff Lewis/Tandem Stills + Motion)
+#### 20260401 Wildflower bloom, Central Valley, California (© Jeff Lewis/Tandem Stills + Motion)
 
 ![](20260401_WildflowerValley_1920x1080.jpg)
 
