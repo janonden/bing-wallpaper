@@ -1,3 +1,7 @@
+#### 20260403 阿姆布鲁大桥，阿姆斯特丹，荷兰 (© Alexander Spatari/Getty Images)
+
+![](images/2026-04/20260403_ArmbrugBridge_1920x1080.jpg)
+
 #### 20260402 Muscardin à l’entrée de leur nid, Normandie (© slowmotiongli/Getty Images)
 
 ![](images/2026-04/20260402_MuscardinNest_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260325 Juvenile manatees in a freshwater spring, Crystal River, Florida (© Gregory Sweeney/Getty Images)
 
 ![](images/2026-03/20260325_ManateeSpring_1920x1080.jpg)
-
-#### 20260325 Königssee Lake, Bavaria, Germany (© EyeEm Mobile GmbH/Getty Images)
-
-![](images/2026-03/20260325_KoenigsseeFog_1920x1080.jpg)
 
 
 
