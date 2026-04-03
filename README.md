@@ -1,3 +1,11 @@
+#### 20260404 首里城歓会門, 沖縄県 那覇市 (© Jui-Chi Chan/Getty images)
+
+![](images/2026-04/20260404_QingmingFestival_1920x1080.jpg)
+
+#### 20260404 求偶展示场上对峙的雄性黑琴鸡，爱沙尼亚 (© Sven Zacek/Nature Picture Library)
+
+![](images/2026-04/20260404_GrouseGuff_1920x1080.jpg)
+
 #### 20260403 Armbrug bridge, Amsterdam, Netherlands (© Alexander Spatari/Getty Images)
 
 ![](images/2026-04/20260403_ArmbrugBridge_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20260327 Radio City Music Hall in New York City (© Clarence Holmes Photography/Alamy)
 
 ![](images/2026-03/20260327_RadioCityHall_1920x1080.jpg)
-
-#### 20260326 Logan Creek Suspension Bridge, West Coast Trail, Canada (© Tandem Stock/Adobe Stock)
-
-![](images/2026-03/20260326_LoganCreek_1920x1080.jpg)
-
-#### 20260325 Juvenile manatees in a freshwater spring, Crystal River, Florida (© Gregory Sweeney/Getty Images)
-
-![](images/2026-03/20260325_ManateeSpring_1920x1080.jpg)
 
 
 

@@ -1,3 +1,11 @@
+#### 20260404 首里城歓会門, 沖縄県 那覇市 (© Jui-Chi Chan/Getty images)
+
+![](20260404_QingmingFestival_1920x1080.jpg)
+
+#### 20260404 求偶展示场上对峙的雄性黑琴鸡，爱沙尼亚 (© Sven Zacek/Nature Picture Library)
+
+![](20260404_GrouseGuff_1920x1080.jpg)
+
 #### 20260403 Armbrug bridge, Amsterdam, Netherlands (© Alexander Spatari/Getty Images)
 
 ![](20260403_ArmbrugBridge_1920x1080.jpg)
