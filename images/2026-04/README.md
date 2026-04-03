@@ -1,4 +1,4 @@
-#### 20260403 阿姆布鲁大桥，阿姆斯特丹，荷兰 (© Alexander Spatari/Getty Images)
+#### 20260403 Armbrug bridge, Amsterdam, Netherlands (© Alexander Spatari/Getty Images)
 
 ![](20260403_ArmbrugBridge_1920x1080.jpg)
 
