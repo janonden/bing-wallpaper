@@ -1,3 +1,11 @@
+#### 20260405 春天的雪钟花 (© klagyivik/Getty Images)
+
+![](images/2026-04/20260405_SpringSnowdrops_1920x1080.jpg)
+
+#### 20260405 カラフルな木製イースターエッグ, リトアニア (© maximkabb/Getty Images)
+
+![](images/2026-04/20260405_LithuaniaEggs_1920x1080.jpg)
+
 #### 20260404 首里城歓会門, 沖縄県 那覇市 (© Jui-Chi Chan/Getty images)
 
 ![](images/2026-04/20260404_QingmingFestival_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20260328 Aurora over Spirit Island on Maligne Lake, Jasper National Park, Alberta, Canada (© Mumemories/Getty Images)
 
 ![](images/2026-03/20260328_AuroraIsland_1920x1080.jpg)
-
-#### 20260327 日本一早い桜、沖縄 (© @hapidayss/Getty Images)
-
-![](images/2026-03/20260327_SakuraDay_1920x1080.jpg)
-
-#### 20260327 Radio City Music Hall in New York City (© Clarence Holmes Photography/Alamy)
-
-![](images/2026-03/20260327_RadioCityHall_1920x1080.jpg)
 
 
 
