@@ -1,3 +1,7 @@
+#### 20260406 Lake Gentau in the French Pyrenees, Pyrénées-Atlantiques, France (© MICHAUX Stéphane/Hemis.fr/Alamy)
+
+![](images/2026-04/20260406_LacGentau_1920x1080.jpg)
+
 #### 20260405 春天的雪钟花 (© klagyivik/Getty Images)
 
 ![](images/2026-04/20260405_SpringSnowdrops_1920x1080.jpg)
@@ -10,7 +14,7 @@
 
 ![](images/2026-04/20260405_PontArdeche_1920x1080.jpg)
 
-#### 20260405 カラフルな木製イースターエッグ, リトアニア (© maximkabb/Getty Images)
+#### 20260405 Colorful handmade wooden Easter eggs, Vilnius, Lithuania (© maximkabb/Getty Images)
 
 ![](images/2026-04/20260405_LithuaniaEggs_1920x1080.jpg)
 
@@ -53,10 +57,6 @@
 #### 20260329 Astronomische Uhr am Rathaus von Ulm, Baden‑Württemberg (© Tomekbudujedomek/Getty Images)
 
 ![](images/2026-03/20260329_UlmClock_1920x1080.jpg)
-
-#### 20260329 Peggy's Point Lighthouse, Atlantic Coast, Nova Scotia, Canada (© Prashanth Bala/Shutterstock)
-
-![](images/2026-03/20260329_PeggysLighthouse_1920x1080.jpg)
 
 
 

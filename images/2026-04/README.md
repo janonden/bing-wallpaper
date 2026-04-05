@@ -1,3 +1,7 @@
+#### 20260406 Lake Gentau in the French Pyrenees, Pyrénées-Atlantiques, France (© MICHAUX Stéphane/Hemis.fr/Alamy)
+
+![](20260406_LacGentau_1920x1080.jpg)
+
 #### 20260405 春天的雪钟花 (© klagyivik/Getty Images)
 
 ![](20260405_SpringSnowdrops_1920x1080.jpg)
@@ -10,7 +14,7 @@
 
 ![](20260405_PontArdeche_1920x1080.jpg)
 
-#### 20260405 カラフルな木製イースターエッグ, リトアニア (© maximkabb/Getty Images)
+#### 20260405 Colorful handmade wooden Easter eggs, Vilnius, Lithuania (© maximkabb/Getty Images)
 
 ![](20260405_LithuaniaEggs_1920x1080.jpg)
 
