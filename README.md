@@ -2,6 +2,14 @@
 
 ![](images/2026-04/20260405_SpringSnowdrops_1920x1080.jpg)
 
+#### 20260405 Bunt bemalte sorbische Ostereier aus Deutschland (© Mark Poltermann/Getty Images)
+
+![](images/2026-04/20260405_SorbianEasterEggs_1920x1080.jpg)
+
+#### 20260405 Pont d’Arc, Ardèche (© Gael Fontaine/Getty Images)
+
+![](images/2026-04/20260405_PontArdeche_1920x1080.jpg)
+
 #### 20260405 カラフルな木製イースターエッグ, リトアニア (© maximkabb/Getty Images)
 
 ![](images/2026-04/20260405_LithuaniaEggs_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20260329 Peggy's Point Lighthouse, Atlantic Coast, Nova Scotia, Canada (© Prashanth Bala/Shutterstock)
 
 ![](images/2026-03/20260329_PeggysLighthouse_1920x1080.jpg)
-
-#### 20260328 African buffalo, Ngorongoro Crater, Tanzania (© jesuss8/500px/Getty Images)
-
-![](images/2026-03/20260328_CapeBuffalo_1920x1080.jpg)
-
-#### 20260328 Aurora over Spirit Island on Maligne Lake, Jasper National Park, Alberta, Canada (© Mumemories/Getty Images)
-
-![](images/2026-03/20260328_AuroraIsland_1920x1080.jpg)
 
 
 

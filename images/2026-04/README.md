@@ -2,6 +2,14 @@
 
 ![](20260405_SpringSnowdrops_1920x1080.jpg)
 
+#### 20260405 Bunt bemalte sorbische Ostereier aus Deutschland (© Mark Poltermann/Getty Images)
+
+![](20260405_SorbianEasterEggs_1920x1080.jpg)
+
+#### 20260405 Pont d’Arc, Ardèche (© Gael Fontaine/Getty Images)
+
+![](20260405_PontArdeche_1920x1080.jpg)
+
 #### 20260405 カラフルな木製イースターエッグ, リトアニア (© maximkabb/Getty Images)
 
 ![](20260405_LithuaniaEggs_1920x1080.jpg)
