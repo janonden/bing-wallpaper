@@ -2,6 +2,10 @@
 
 ![](images/2026-04/20260406_LacGentau_1920x1080.jpg)
 
+#### 20260406 樱花盛开的弘前城，弘前，日本 (© Glenn Waters/Getty Images)
+
+![](images/2026-04/20260406_CastleBlossoms_1920x1080.jpg)
+
 #### 20260405 春天的雪钟花 (© klagyivik/Getty Images)
 
 ![](images/2026-04/20260405_SpringSnowdrops_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260330 Demoiselle cranes, India (© Axel Gomille/Nature Picture Library)
 
 ![](images/2026-03/20260330_IndiaCranes_1920x1080.jpg)
-
-#### 20260329 Astronomische Uhr am Rathaus von Ulm, Baden‑Württemberg (© Tomekbudujedomek/Getty Images)
-
-![](images/2026-03/20260329_UlmClock_1920x1080.jpg)
 
 
 
