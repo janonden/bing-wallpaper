@@ -1,3 +1,7 @@
+#### 20260407 河狸，德国 (© Andyworks/Getty Images)
+
+![](20260407_BeaverPortrait_1920x1080.jpg)
+
 #### 20260406 Lake Gentau in the French Pyrenees, Pyrénées-Atlantiques, France (© MICHAUX Stéphane/Hemis.fr/Alamy)
 
 ![](20260406_LacGentau_1920x1080.jpg)

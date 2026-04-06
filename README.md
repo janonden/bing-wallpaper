@@ -1,3 +1,7 @@
+#### 20260407 河狸，德国 (© Andyworks/Getty Images)
+
+![](images/2026-04/20260407_BeaverPortrait_1920x1080.jpg)
+
 #### 20260406 Lake Gentau in the French Pyrenees, Pyrénées-Atlantiques, France (© MICHAUX Stéphane/Hemis.fr/Alamy)
 
 ![](images/2026-04/20260406_LacGentau_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260331 Paradise Cave, Phong Nha-Ke Bang National Park, Vietnam (© Pakawat Thongcharoen/Getty Images)
 
 ![](images/2026-03/20260331_ParadiseCave_1920x1080.jpg)
-
-#### 20260330 Demoiselle cranes, India (© Axel Gomille/Nature Picture Library)
-
-![](images/2026-03/20260330_IndiaCranes_1920x1080.jpg)
 
 
 
