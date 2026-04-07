@@ -1,3 +1,7 @@
+#### 20260408 西雅图，华盛顿州，美国 (© Jim Patterson/Tandem Stills + Motion)
+
+![](20260408_SeattleSunrise_1920x1080.jpg)
+
 #### 20260407 Beaver, Germany (© Andyworks/Getty Images)
 
 ![](20260407_BeaverPortrait_1920x1080.jpg)

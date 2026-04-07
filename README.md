@@ -1,3 +1,7 @@
+#### 20260408 西雅图，华盛顿州，美国 (© Jim Patterson/Tandem Stills + Motion)
+
+![](images/2026-04/20260408_SeattleSunrise_1920x1080.jpg)
+
 #### 20260407 Beaver, Germany (© Andyworks/Getty Images)
 
 ![](images/2026-04/20260407_BeaverPortrait_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260401 Japanese tree frog in a pink morning glory (© Tetsuya Tanooka/Getty Images)
 
 ![](images/2026-04/20260401_JapaneseTreeFrog_1920x1080.jpg)
-
-#### 20260331 Paradise Cave, Phong Nha-Ke Bang National Park, Vietnam (© Pakawat Thongcharoen/Getty Images)
-
-![](images/2026-03/20260331_ParadiseCave_1920x1080.jpg)
 
 
 
