@@ -1,4 +1,4 @@
-#### 20260407 河狸，德国 (© Andyworks/Getty Images)
+#### 20260407 Beaver, Germany (© Andyworks/Getty Images)
 
 ![](images/2026-04/20260407_BeaverPortrait_1920x1080.jpg)
 
