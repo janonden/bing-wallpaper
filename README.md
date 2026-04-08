@@ -1,3 +1,7 @@
+#### 20260409 雪落瀑布，布雷肯比肯斯国家公园，威尔士 (© Guy Edwardes/Nature Picture Library)
+
+![](images/2026-04/20260409_WalesWaterfall_1920x1080.jpg)
+
 #### 20260408 Seattle, Washington (© Jim Patterson/Tandem Stills + Motion)
 
 ![](images/2026-04/20260408_SeattleSunrise_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260401 Wildflower bloom, Central Valley, California (© Jeff Lewis/Tandem Stills + Motion)
 
 ![](images/2026-04/20260401_WildflowerValley_1920x1080.jpg)
-
-#### 20260401 Japanese tree frog in a pink morning glory (© Tetsuya Tanooka/Getty Images)
-
-![](images/2026-04/20260401_JapaneseTreeFrog_1920x1080.jpg)
 
 
 

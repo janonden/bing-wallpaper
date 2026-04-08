@@ -1,3 +1,7 @@
+#### 20260409 雪落瀑布，布雷肯比肯斯国家公园，威尔士 (© Guy Edwardes/Nature Picture Library)
+
+![](20260409_WalesWaterfall_1920x1080.jpg)
+
 #### 20260408 Seattle, Washington (© Jim Patterson/Tandem Stills + Motion)
 
 ![](20260408_SeattleSunrise_1920x1080.jpg)
