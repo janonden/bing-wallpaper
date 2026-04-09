@@ -1,4 +1,4 @@
-#### 20260409 雪落瀑布，布雷肯比肯斯国家公园，威尔士 (© Guy Edwardes/Nature Picture Library)
+#### 20260409 Sgwd yr Eira waterfall, Bannau Brycheiniog National Park, Wales (© Guy Edwardes/Nature Picture Library)
 
 ![](20260409_WalesWaterfall_1920x1080.jpg)
 
