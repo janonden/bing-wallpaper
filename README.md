@@ -1,3 +1,7 @@
+#### 20260410 卡鲁拉国家公园的两只幼年赤狐, 爱沙尼亚 (© Sven Zacek/Nature Picture Library)
+
+![](images/2026-04/20260410_FoxSiblings_1920x1080.jpg)
+
 #### 20260409 Sgwd yr Eira waterfall, Bannau Brycheiniog National Park, Wales (© Guy Edwardes/Nature Picture Library)
 
 ![](images/2026-04/20260409_WalesWaterfall_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260402 シモクレン (© Aflo Co., Ltd./Alamy)
 
 ![](images/2026-04/20260402_MagnoliaBloom_1920x1080.jpg)
-
-#### 20260401 Wildflower bloom, Central Valley, California (© Jeff Lewis/Tandem Stills + Motion)
-
-![](images/2026-04/20260401_WildflowerValley_1920x1080.jpg)
 
 
 
