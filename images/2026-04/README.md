@@ -1,3 +1,7 @@
+#### 20260411 帕帕加约海滩, 兰萨罗特, 加那利群岛, 西班牙 (© Gavin Hellier/Getty Images)
+
+![](20260411_PlayaPapagayo_1920x1080.jpg)
+
 #### 20260410 Two young red foxes at Karula National Park, Estonia (© Sven Zacek/Nature Picture Library)
 
 ![](20260410_FoxSiblings_1920x1080.jpg)
