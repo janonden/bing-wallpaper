@@ -1,4 +1,4 @@
-#### 20260410 卡鲁拉国家公园的两只幼年赤狐, 爱沙尼亚 (© Sven Zacek/Nature Picture Library)
+#### 20260410 Two young red foxes at Karula National Park, Estonia (© Sven Zacek/Nature Picture Library)
 
 ![](images/2026-04/20260410_FoxSiblings_1920x1080.jpg)
 
