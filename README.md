@@ -1,3 +1,7 @@
+#### 20260411 Le Trocadéro et la Tour Eiffel à l’aube, Paris (© Alexander Spatari/Getty Images)
+
+![](images/2026-04/20260411_TrocaderoParisRoubaix_1920x1080.jpg)
+
 #### 20260411 帕帕加约海滩, 兰萨罗特, 加那利群岛, 西班牙 (© Gavin Hellier/Getty Images)
 
 ![](images/2026-04/20260411_PlayaPapagayo_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260403 Armbrug bridge, Amsterdam, Netherlands (© Alexander Spatari/Getty Images)
 
 ![](images/2026-04/20260403_ArmbrugBridge_1920x1080.jpg)
-
-#### 20260402 Muscardin à l’entrée de leur nid, Normandie (© slowmotiongli/Getty Images)
-
-![](images/2026-04/20260402_MuscardinNest_1920x1080.jpg)
 
 
 
