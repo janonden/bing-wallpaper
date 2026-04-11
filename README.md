@@ -2,6 +2,10 @@
 
 ![](images/2026-04/20260411_TrocaderoParisRoubaix_1920x1080.jpg)
 
+#### 20260411 A canopy of cherry blossoms in Stanley Park, Vancouver (© WendyNordvikCarr/Getty Images)
+
+![](images/2026-04/20260411_StanleySakura_1920x1080.jpg)
+
 #### 20260411 帕帕加约海滩, 兰萨罗特, 加那利群岛, 西班牙 (© Gavin Hellier/Getty Images)
 
 ![](images/2026-04/20260411_PlayaPapagayo_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260404 Black grouse males facing off on a lekking site, Estonia (© Sven Zacek/Nature Picture Library)
 
 ![](images/2026-04/20260404_GrouseGuff_1920x1080.jpg)
-
-#### 20260403 Armbrug bridge, Amsterdam, Netherlands (© Alexander Spatari/Getty Images)
-
-![](images/2026-04/20260403_ArmbrugBridge_1920x1080.jpg)
 
 
 
