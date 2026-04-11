@@ -1,3 +1,7 @@
+#### 20260412 城市灯光在下方划过, 拍摄于国际空间站 (© NASA)
+
+![](images/2026-04/20260412_SpaceTrails_1920x1080.jpg)
+
 #### 20260411 Le Trocadéro et la Tour Eiffel à l’aube, Paris (© Alexander Spatari/Getty Images)
 
 ![](images/2026-04/20260411_TrocaderoParisRoubaix_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260404 首里城歓会門, 沖縄県 那覇市 (© Jui-Chi Chan/Getty images)
 
 ![](images/2026-04/20260404_QingmingFestival_1920x1080.jpg)
-
-#### 20260404 Black grouse males facing off on a lekking site, Estonia (© Sven Zacek/Nature Picture Library)
-
-![](images/2026-04/20260404_GrouseGuff_1920x1080.jpg)
 
 
 
