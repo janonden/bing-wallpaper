@@ -1,3 +1,7 @@
+#### 20260413 安扎-博雷戈沙漠州立公园上空的银河, 加利福尼亚州, 美国 (© Kevin Key/Slworking)/Getty Images)
+
+![](20260413_BorregoStars_1920x1080.jpg)
+
 #### 20260412 City lights streak below, taken from the International Space Station (© NASA)
 
 ![](20260412_SpaceTrails_1920x1080.jpg)

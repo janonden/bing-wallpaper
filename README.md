@@ -1,3 +1,7 @@
+#### 20260413 安扎-博雷戈沙漠州立公园上空的银河, 加利福尼亚州, 美国 (© Kevin Key/Slworking)/Getty Images)
+
+![](images/2026-04/20260413_BorregoStars_1920x1080.jpg)
+
 #### 20260412 City lights streak below, taken from the International Space Station (© NASA)
 
 ![](images/2026-04/20260412_SpaceTrails_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260405 Colorful handmade wooden Easter eggs, Vilnius, Lithuania (© maximkabb/Getty Images)
 
 ![](images/2026-04/20260405_LithuaniaEggs_1920x1080.jpg)
-
-#### 20260404 首里城歓会門, 沖縄県 那覇市 (© Jui-Chi Chan/Getty images)
-
-![](images/2026-04/20260404_QingmingFestival_1920x1080.jpg)
 
 
 
