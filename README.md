@@ -1,4 +1,4 @@
-#### 20260412 城市灯光在下方划过, 拍摄于国际空间站 (© NASA)
+#### 20260412 City lights streak below, taken from the International Space Station (© NASA)
 
 ![](images/2026-04/20260412_SpaceTrails_1920x1080.jpg)
 
