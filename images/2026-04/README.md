@@ -1,3 +1,7 @@
+#### 20260414 海葵中的普通小丑鱼, 拉贾安帕特群岛, 印度尼西亚 (© Magnus Lundgren/Nature Picture Library)
+
+![](20260414_OcellarisClownfish_1920x1080.jpg)
+
 #### 20260413 Zilpzalp, Deutschland (© Andyworks/Getty Images)
 
 ![](20260413_ChiffchaffSpring_1920x1080.jpg)

@@ -1,3 +1,7 @@
+#### 20260414 海葵中的普通小丑鱼, 拉贾安帕特群岛, 印度尼西亚 (© Magnus Lundgren/Nature Picture Library)
+
+![](images/2026-04/20260414_OcellarisClownfish_1920x1080.jpg)
+
 #### 20260413 Zilpzalp, Deutschland (© Andyworks/Getty Images)
 
 ![](images/2026-04/20260413_ChiffchaffSpring_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260405 Bunt bemalte sorbische Ostereier aus Deutschland (© Mark Poltermann/Getty Images)
 
 ![](images/2026-04/20260405_SorbianEasterEggs_1920x1080.jpg)
-
-#### 20260405 Pont d’Arc, Ardèche (© Gael Fontaine/Getty Images)
-
-![](images/2026-04/20260405_PontArdeche_1920x1080.jpg)
 
 
 
