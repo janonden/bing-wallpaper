@@ -1,3 +1,11 @@
+#### 20260415 光之采石场的文森特·梵高展览, 莱博德普罗旺斯, 法国 (© Patrick Aventurier/Getty Images)
+
+![](20260415_VanGoghFields_1920x1080.jpg)
+
+#### 20260415 芝桜, 山梨県 (© DoctorEgg/Getty images)
+
+![](20260415_Shibazakura_1920x1080.jpg)
+
 #### 20260414 Common clownfish in a sea anemone, Raja Ampat Islands, Indonesia (© Magnus Lundgren/Nature Picture Library)
 
 ![](20260414_OcellarisClownfish_1920x1080.jpg)
