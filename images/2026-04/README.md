@@ -1,3 +1,7 @@
+#### 20260416 斯卡吉特谷地郁金香花田, 华盛顿, 美国 (© Alan Majchrowicz/Getty Images)
+
+![](20260416_SkagitTulips_1920x1080.jpg)
+
 #### 20260416 Pine trees reflected in the Forgetmenot Pond in Kananaskis Country, Alberta, Canada (© chinaface/Getty images)
 
 ![](20260416_AlbertaSnowMts_1920x1080.jpg)

@@ -1,3 +1,7 @@
+#### 20260416 斯卡吉特谷地郁金香花田, 华盛顿, 美国 (© Alan Majchrowicz/Getty Images)
+
+![](images/2026-04/20260416_SkagitTulips_1920x1080.jpg)
+
 #### 20260416 Pine trees reflected in the Forgetmenot Pond in Kananaskis Country, Alberta, Canada (© chinaface/Getty images)
 
 ![](images/2026-04/20260416_AlbertaSnowMts_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260407 Beaver, Germany (© Andyworks/Getty Images)
 
 ![](images/2026-04/20260407_BeaverPortrait_1920x1080.jpg)
-
-#### 20260406 Lake Gentau in the French Pyrenees, Pyrénées-Atlantiques, France (© MICHAUX Stéphane/Hemis.fr/Alamy)
-
-![](images/2026-04/20260406_LacGentau_1920x1080.jpg)
 
 
 
