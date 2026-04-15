@@ -1,4 +1,8 @@
-#### 20260415 光之采石场的文森特·梵高展览, 莱博德普罗旺斯, 法国 (© Patrick Aventurier/Getty Images)
+#### 20260416 Pine trees reflected in the Forgetmenot Pond in Kananaskis Country, Alberta, Canada (© chinaface/Getty images)
+
+![](20260416_AlbertaSnowMts_1920x1080.jpg)
+
+#### 20260415 The Carrières des Lumières exhibit of Vincent Van Gogh, Les Baux-de-Provence, France (© Patrick Aventurier/Getty Images)
 
 ![](20260415_VanGoghFields_1920x1080.jpg)
 
