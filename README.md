@@ -1,3 +1,7 @@
+#### 20260417 灰头狐蝠母亲携幼崽，雅拉湾国家公园，澳大利亚 (© Doug Gimesy/Nature Picture Library)
+
+![](images/2026-04/20260417_FlyingFoxMom_1920x1080.jpg)
+
 #### 20260416 Blooming lupines in Newfoundland (© Nature, Parks/Outdoor/Shutterstock)
 
 ![](images/2026-04/20260416_Wildflowerbloom_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260409 Sgwd yr Eira waterfall, Bannau Brycheiniog National Park, Wales (© Guy Edwardes/Nature Picture Library)
 
 ![](images/2026-04/20260409_WalesWaterfall_1920x1080.jpg)
-
-#### 20260408 Seattle, Washington (© Jim Patterson/Tandem Stills + Motion)
-
-![](images/2026-04/20260408_SeattleSunrise_1920x1080.jpg)
 
 
 
