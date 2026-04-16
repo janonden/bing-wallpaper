@@ -1,3 +1,7 @@
+#### 20260416 Blooming lupines in Newfoundland (© Nature, Parks/Outdoor/Shutterstock)
+
+![](images/2026-04/20260416_Wildflowerbloom_1920x1080.jpg)
+
 #### 20260416 斯卡吉特谷地郁金香花田, 华盛顿, 美国 (© Alan Majchrowicz/Getty Images)
 
 ![](images/2026-04/20260416_SkagitTulips_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260408 Seattle, Washington (© Jim Patterson/Tandem Stills + Motion)
 
 ![](images/2026-04/20260408_SeattleSunrise_1920x1080.jpg)
-
-#### 20260407 Beaver, Germany (© Andyworks/Getty Images)
-
-![](images/2026-04/20260407_BeaverPortrait_1920x1080.jpg)
 
 
 
