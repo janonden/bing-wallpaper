@@ -1,4 +1,4 @@
-#### 20260417 灰头狐蝠母亲携幼崽，雅拉湾国家公园，澳大利亚 (© Doug Gimesy/Nature Picture Library)
+#### 20260417 Grey-headed flying fox carrying her pup, Yarra Bend Park, Australia (© Doug Gimesy/Nature Picture Library)
 
 ![](20260417_FlyingFoxMom_1920x1080.jpg)
 
