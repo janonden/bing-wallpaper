@@ -1,3 +1,7 @@
+#### 20260418 摩艾石像采石场，拉诺拉拉库，复活节岛，智利 (© Gavin Hellier/Alamy)
+
+![](images/2026-04/20260418_MaoiStatues_1920x1080.jpg)
+
 #### 20260417 Grey-headed flying fox carrying her pup, Yarra Bend Park, Australia (© Doug Gimesy/Nature Picture Library)
 
 ![](images/2026-04/20260417_FlyingFoxMom_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260410 Two young red foxes at Karula National Park, Estonia (© Sven Zacek/Nature Picture Library)
 
 ![](images/2026-04/20260410_FoxSiblings_1920x1080.jpg)
-
-#### 20260409 Sgwd yr Eira waterfall, Bannau Brycheiniog National Park, Wales (© Guy Edwardes/Nature Picture Library)
-
-![](images/2026-04/20260409_WalesWaterfall_1920x1080.jpg)
 
 
 

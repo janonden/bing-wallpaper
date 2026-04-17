@@ -1,3 +1,7 @@
+#### 20260418 摩艾石像采石场，拉诺拉拉库，复活节岛，智利 (© Gavin Hellier/Alamy)
+
+![](20260418_MaoiStatues_1920x1080.jpg)
+
 #### 20260417 Grey-headed flying fox carrying her pup, Yarra Bend Park, Australia (© Doug Gimesy/Nature Picture Library)
 
 ![](20260417_FlyingFoxMom_1920x1080.jpg)
