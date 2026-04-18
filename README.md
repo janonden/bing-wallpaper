@@ -1,8 +1,12 @@
+#### 20260419 Rolling hills of Tuscany, Italy (© Andyworks/Getty Images)
+
+![](images/2026-04/20260419_ToscanaSpring_1920x1080.jpg)
+
 #### 20260418 Vue aérienne du Viaduc de Millau (© Sergi Reboredo/Alamy)
 
 ![](images/2026-04/20260418_MillauViaductFrance_1920x1080.jpg)
 
-#### 20260418 摩艾石像采石场，拉诺拉拉库，复活节岛，智利 (© Gavin Hellier/Alamy)
+#### 20260418 Moai statue quarry, Rano Raraku, Easter Island, Chile (© Gavin Hellier/Alamy)
 
 ![](images/2026-04/20260418_MaoiStatues_1920x1080.jpg)
 
@@ -53,10 +57,6 @@
 #### 20260411 Le Trocadéro et la Tour Eiffel à l’aube, Paris (© Alexander Spatari/Getty Images)
 
 ![](images/2026-04/20260411_TrocaderoParisRoubaix_1920x1080.jpg)
-
-#### 20260411 A canopy of cherry blossoms in Stanley Park, Vancouver (© WendyNordvikCarr/Getty Images)
-
-![](images/2026-04/20260411_StanleySakura_1920x1080.jpg)
 
 
 
