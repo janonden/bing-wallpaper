@@ -1,6 +1,14 @@
+#### 20260419 镜面海滩，塞古罗港，巴伊亚州，巴西 (© Marcelo Nacinovic/Getty Images)
+
+![](20260419_TranBA_1920x1080.jpg)
+
 #### 20260419 Rolling hills of Tuscany, Italy (© Andyworks/Getty Images)
 
 ![](20260419_ToscanaSpring_1920x1080.jpg)
+
+#### 20260419 ベレンの塔, ポルトガル (© f9photos/Getty Images)
+
+![](20260419_BelemTowerBank_1920x1080.jpg)
 
 #### 20260418 Vue aérienne du Viaduc de Millau (© Sergi Reboredo/Alamy)
 

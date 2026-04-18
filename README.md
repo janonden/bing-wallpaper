@@ -1,6 +1,14 @@
+#### 20260419 镜面海滩，塞古罗港，巴伊亚州，巴西 (© Marcelo Nacinovic/Getty Images)
+
+![](images/2026-04/20260419_TranBA_1920x1080.jpg)
+
 #### 20260419 Rolling hills of Tuscany, Italy (© Andyworks/Getty Images)
 
 ![](images/2026-04/20260419_ToscanaSpring_1920x1080.jpg)
+
+#### 20260419 ベレンの塔, ポルトガル (© f9photos/Getty Images)
+
+![](images/2026-04/20260419_BelemTowerBank_1920x1080.jpg)
 
 #### 20260418 Vue aérienne du Viaduc de Millau (© Sergi Reboredo/Alamy)
 
@@ -49,14 +57,6 @@
 #### 20260413 Milky Way over Anza-Borrego Desert State Park, California (© Kevin Key/Slworking)/Getty Images)
 
 ![](images/2026-04/20260413_BorregoStars_1920x1080.jpg)
-
-#### 20260412 City lights streak below, taken from the International Space Station (© NASA)
-
-![](images/2026-04/20260412_SpaceTrails_1920x1080.jpg)
-
-#### 20260411 Le Trocadéro et la Tour Eiffel à l’aube, Paris (© Alexander Spatari/Getty Images)
-
-![](images/2026-04/20260411_TrocaderoParisRoubaix_1920x1080.jpg)
 
 
 
