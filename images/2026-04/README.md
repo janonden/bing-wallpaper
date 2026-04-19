@@ -6,6 +6,10 @@
 
 ![](20260419_ToscanaSpring_1920x1080.jpg)
 
+#### 20260419 Books in the children's section of The New York Public Library, New York (© Ken Welsh/Alamy)
+
+![](20260419_LibraryWeek_1920x1080.jpg)
+
 #### 20260419 ベレンの塔, ポルトガル (© f9photos/Getty Images)
 
 ![](20260419_BelemTowerBank_1920x1080.jpg)

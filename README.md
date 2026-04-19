@@ -6,6 +6,10 @@
 
 ![](images/2026-04/20260419_ToscanaSpring_1920x1080.jpg)
 
+#### 20260419 Books in the children's section of The New York Public Library, New York (© Ken Welsh/Alamy)
+
+![](images/2026-04/20260419_LibraryWeek_1920x1080.jpg)
+
 #### 20260419 ベレンの塔, ポルトガル (© f9photos/Getty Images)
 
 ![](images/2026-04/20260419_BelemTowerBank_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260413 Zilpzalp, Deutschland (© Andyworks/Getty Images)
 
 ![](images/2026-04/20260413_ChiffchaffSpring_1920x1080.jpg)
-
-#### 20260413 Milky Way over Anza-Borrego Desert State Park, California (© Kevin Key/Slworking)/Getty Images)
-
-![](images/2026-04/20260413_BorregoStars_1920x1080.jpg)
 
 
 
