@@ -1,3 +1,7 @@
+#### 20260420 夕阳下的峡谷地国家公园，莫阿布，犹他州，美国 (© Jason Hatfield/Tandem Stills + Motion)
+
+![](images/2026-04/20260420_SunsetKiva_1920x1080.jpg)
+
 #### 20260419 镜面海滩，塞古罗港，巴伊亚州，巴西 (© Marcelo Nacinovic/Getty Images)
 
 ![](images/2026-04/20260419_TranBA_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260414 Common clownfish in a sea anemone, Raja Ampat Islands, Indonesia (© Magnus Lundgren/Nature Picture Library)
 
 ![](images/2026-04/20260414_OcellarisClownfish_1920x1080.jpg)
-
-#### 20260413 Zilpzalp, Deutschland (© Andyworks/Getty Images)
-
-![](images/2026-04/20260413_ChiffchaffSpring_1920x1080.jpg)
 
 
 
