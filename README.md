@@ -6,6 +6,10 @@
 
 ![](images/2026-04/20260420_SaarbrueckenRathaus_1920x1080.jpg)
 
+#### 20260420 Buckets on maple trees collecting sap for maple syrup (© capecodphoto/Getty Images)
+
+![](images/2026-04/20260420_MapleExtraction_1920x1080.jpg)
+
 #### 20260419 镜面海滩，塞古罗港，巴伊亚州，巴西 (© Marcelo Nacinovic/Getty Images)
 
 ![](images/2026-04/20260419_TranBA_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260415 The Carrières des Lumières exhibit of Vincent Van Gogh, Les Baux-de-Provence, France (© Patrick Aventurier/Getty Images)
 
 ![](images/2026-04/20260415_VanGoghFields_1920x1080.jpg)
-
-#### 20260415 芝桜, 山梨県 (© DoctorEgg/Getty images)
-
-![](images/2026-04/20260415_Shibazakura_1920x1080.jpg)
 
 
 
