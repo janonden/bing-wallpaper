@@ -1,4 +1,4 @@
-#### 20260420 夕阳下的峡谷地国家公园，莫阿布，犹他州，美国 (© Jason Hatfield/Tandem Stills + Motion)
+#### 20260420 Sunset in Canyonlands National Park, Moab, Utah (© Jason Hatfield/Tandem Stills + Motion)
 
 ![](20260420_SunsetKiva_1920x1080.jpg)
 
