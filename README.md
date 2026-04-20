@@ -1,3 +1,7 @@
+#### 20260421 西欧刺猬，法国 (© Klein & Hubert/Nature Picture Library)
+
+![](images/2026-04/20260421_SpringHedgehog_1920x1080.jpg)
+
 #### 20260420 Sunset in Canyonlands National Park, Moab, Utah (© Jason Hatfield/Tandem Stills + Motion)
 
 ![](images/2026-04/20260420_SunsetKiva_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260416 Pine trees reflected in the Forgetmenot Pond in Kananaskis Country, Alberta, Canada (© chinaface/Getty images)
 
 ![](images/2026-04/20260416_AlbertaSnowMts_1920x1080.jpg)
-
-#### 20260415 The Carrières des Lumières exhibit of Vincent Van Gogh, Les Baux-de-Provence, France (© Patrick Aventurier/Getty Images)
-
-![](images/2026-04/20260415_VanGoghFields_1920x1080.jpg)
 
 
 

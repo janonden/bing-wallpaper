@@ -1,3 +1,7 @@
+#### 20260421 西欧刺猬，法国 (© Klein & Hubert/Nature Picture Library)
+
+![](20260421_SpringHedgehog_1920x1080.jpg)
+
 #### 20260420 Sunset in Canyonlands National Park, Moab, Utah (© Jason Hatfield/Tandem Stills + Motion)
 
 ![](20260420_SunsetKiva_1920x1080.jpg)
