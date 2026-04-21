@@ -1,3 +1,7 @@
+#### 20260422 阿拉姆-佩德亚自然保护区，塔尔图县，爱沙尼亚 (© Sven Zacek/Nature Picture Library)
+
+![](images/2026-04/20260422_TartuEstonia_1920x1080.jpg)
+
 #### 20260421 European hedgehog, France (© Klein & Hubert/Nature Picture Library)
 
 ![](images/2026-04/20260421_SpringHedgehog_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260416 Skagit Valley Tulip Fields, Washington (© Alan Majchrowicz/Getty Images)
 
 ![](images/2026-04/20260416_SkagitTulips_1920x1080.jpg)
-
-#### 20260416 Pine trees reflected in the Forgetmenot Pond in Kananaskis Country, Alberta, Canada (© chinaface/Getty images)
-
-![](images/2026-04/20260416_AlbertaSnowMts_1920x1080.jpg)
 
 
 
