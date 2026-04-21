@@ -1,4 +1,4 @@
-#### 20260421 西欧刺猬，法国 (© Klein & Hubert/Nature Picture Library)
+#### 20260421 European hedgehog, France (© Klein & Hubert/Nature Picture Library)
 
 ![](images/2026-04/20260421_SpringHedgehog_1920x1080.jpg)
 
