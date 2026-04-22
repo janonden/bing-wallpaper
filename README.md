@@ -1,3 +1,7 @@
+#### 20260423 安妮·海瑟薇的小屋与花园，埃文河畔斯特拉特，英格兰 (© David Steele/Shutterstock)
+
+![](images/2026-04/20260423_HathawayCottage_1920x1080.jpg)
+
 #### 20260422 Alam-Pedja Nature Reserve in Tartu County, Estonia (© Sven Zacek/Nature Picture Library)
 
 ![](images/2026-04/20260422_TartuEstonia_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260416 Blooming lupines in Newfoundland (© Nature, Parks/Outdoor/Shutterstock)
 
 ![](images/2026-04/20260416_Wildflowerbloom_1920x1080.jpg)
-
-#### 20260416 Skagit Valley Tulip Fields, Washington (© Alan Majchrowicz/Getty Images)
-
-![](images/2026-04/20260416_SkagitTulips_1920x1080.jpg)
 
 
 

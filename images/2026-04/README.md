@@ -1,3 +1,7 @@
+#### 20260423 安妮·海瑟薇的小屋与花园，埃文河畔斯特拉特，英格兰 (© David Steele/Shutterstock)
+
+![](20260423_HathawayCottage_1920x1080.jpg)
+
 #### 20260422 Alam-Pedja Nature Reserve in Tartu County, Estonia (© Sven Zacek/Nature Picture Library)
 
 ![](20260422_TartuEstonia_1920x1080.jpg)
