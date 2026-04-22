@@ -1,4 +1,4 @@
-#### 20260422 阿拉姆-佩德亚自然保护区，塔尔图县，爱沙尼亚 (© Sven Zacek/Nature Picture Library)
+#### 20260422 Alam-Pedja Nature Reserve in Tartu County, Estonia (© Sven Zacek/Nature Picture Library)
 
 ![](images/2026-04/20260422_TartuEstonia_1920x1080.jpg)
 
