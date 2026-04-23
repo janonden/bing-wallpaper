@@ -1,4 +1,8 @@
-#### 20260423 安妮·海瑟薇的小屋与花园，埃文河畔斯特拉特，英格兰 (© David Steele/Shutterstock)
+#### 20260424 Common chiffchaff, Germany (© Andyworks/Getty Images)
+
+![](20260424_ChiffchaffSpring_1920x1080.jpg)
+
+#### 20260423 Anne Hathaway's cottage and garden, Stratford-upon-Avon, England (© David Steele/Shutterstock)
 
 ![](20260423_HathawayCottage_1920x1080.jpg)
 
