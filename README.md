@@ -1,3 +1,7 @@
+#### 20260424 湿地松和锯棕榈组成的森林吊床, 大沼泽地国家公园, 佛罗里达, 美国 (© Mary Liz Austin/Alamy)
+
+![](images/2026-04/20260424_SlashPine_1920x1080.jpg)
+
 #### 20260424 Common chiffchaff, Germany (© Andyworks/Getty Images)
 
 ![](images/2026-04/20260424_ChiffchaffSpring_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260418 Eingangsbereich des Kölner Doms, Nordrhein‑Westfalen (© ALFSnaiper/Getty Images)
 
 ![](images/2026-04/20260418_CathedralCologne_1920x1080.jpg)
-
-#### 20260417 Grey-headed flying fox carrying her pup, Yarra Bend Park, Australia (© Doug Gimesy/Nature Picture Library)
-
-![](images/2026-04/20260417_FlyingFoxMom_1920x1080.jpg)
 
 
 
