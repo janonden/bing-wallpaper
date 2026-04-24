@@ -2,6 +2,14 @@
 
 ![](images/2026-04/20260424_SlashPine_1920x1080.jpg)
 
+#### 20260424 Galápagos‑Pinguine beim Schwimmen, Galapagosinseln, Ecuador (© Henley Spiers/Nature Picture Library)
+
+![](images/2026-04/20260424_GalapagosPenguins_1920x1080.jpg)
+
+#### 20260424 Flamant rose, Aigues-Mortes (© EyeEm Mobile GmbH/Getty Images Plus)
+
+![](images/2026-04/20260424_FlamingoAiguesMortes_1920x1080.jpg)
+
 #### 20260424 Common chiffchaff, Germany (© Andyworks/Getty Images)
 
 ![](images/2026-04/20260424_ChiffchaffSpring_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20260418 Vue aérienne du Viaduc de Millau (© Sergi Reboredo/Alamy)
 
 ![](images/2026-04/20260418_MillauViaductFrance_1920x1080.jpg)
-
-#### 20260418 Moai statue quarry, Rano Raraku, Easter Island, Chile (© Gavin Hellier/Alamy)
-
-![](images/2026-04/20260418_MaoiStatues_1920x1080.jpg)
-
-#### 20260418 Eingangsbereich des Kölner Doms, Nordrhein‑Westfalen (© ALFSnaiper/Getty Images)
-
-![](images/2026-04/20260418_CathedralCologne_1920x1080.jpg)
 
 
 

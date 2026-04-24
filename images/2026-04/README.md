@@ -2,6 +2,14 @@
 
 ![](20260424_SlashPine_1920x1080.jpg)
 
+#### 20260424 Galápagos‑Pinguine beim Schwimmen, Galapagosinseln, Ecuador (© Henley Spiers/Nature Picture Library)
+
+![](20260424_GalapagosPenguins_1920x1080.jpg)
+
+#### 20260424 Flamant rose, Aigues-Mortes (© EyeEm Mobile GmbH/Getty Images Plus)
+
+![](20260424_FlamingoAiguesMortes_1920x1080.jpg)
+
 #### 20260424 Common chiffchaff, Germany (© Andyworks/Getty Images)
 
 ![](20260424_ChiffchaffSpring_1920x1080.jpg)
