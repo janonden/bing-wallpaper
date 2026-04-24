@@ -1,4 +1,4 @@
-#### 20260424 湿地松和锯棕榈组成的森林吊床, 大沼泽地国家公园, 佛罗里达, 美国 (© Mary Liz Austin/Alamy)
+#### 20260424 Forest hammock of slash pine and saw palmetto, Everglades National Park, Florida (© Mary Liz Austin/Alamy)
 
 ![](20260424_SlashPine_1920x1080.jpg)
 
