@@ -1,3 +1,7 @@
+#### 20260426 粉红色的苹果花, 阿维拉海滩, 加利福尼亚州, 美国 (© Mimi Ditchie Photography/Getty Images)
+
+![](images/2026-04/20260426_AppleBlossoms_1920x1080.jpg)
+
 #### 20260424 Forest hammock of slash pine and saw palmetto, Everglades National Park, Florida (© Mary Liz Austin/Alamy)
 
 ![](images/2026-04/20260424_SlashPine_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260419 ベレンの塔, ポルトガル (© f9photos/Getty Images)
 
 ![](images/2026-04/20260419_BelemTowerBank_1920x1080.jpg)
-
-#### 20260418 Vue aérienne du Viaduc de Millau (© Sergi Reboredo/Alamy)
-
-![](images/2026-04/20260418_MillauViaductFrance_1920x1080.jpg)
 
 
 

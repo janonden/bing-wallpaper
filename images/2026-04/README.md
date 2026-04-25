@@ -1,3 +1,7 @@
+#### 20260426 粉红色的苹果花, 阿维拉海滩, 加利福尼亚州, 美国 (© Mimi Ditchie Photography/Getty Images)
+
+![](20260426_AppleBlossoms_1920x1080.jpg)
+
 #### 20260424 Forest hammock of slash pine and saw palmetto, Everglades National Park, Florida (© Mary Liz Austin/Alamy)
 
 ![](20260424_SlashPine_1920x1080.jpg)
