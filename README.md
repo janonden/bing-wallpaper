@@ -2,7 +2,7 @@
 
 ![](images/2026-04/20260424_SlashPine_1920x1080.jpg)
 
-#### 20260424 Galápagos‑Pinguine beim Schwimmen, Galapagosinseln, Ecuador (© Henley Spiers/Nature Picture Library)
+#### 20260424 Galápagos penguins swimming, Galápagos Islands, Ecuador (© Henley Spiers/Nature Picture Library)
 
 ![](images/2026-04/20260424_GalapagosPenguins_1920x1080.jpg)
 
