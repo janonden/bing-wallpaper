@@ -1,4 +1,4 @@
-#### 20260426 粉红色的苹果花, 阿维拉海滩, 加利福尼亚州, 美国 (© Mimi Ditchie Photography/Getty Images)
+#### 20260426 Pink apple blossoms, Avila Beach, California (© Mimi Ditchie Photography/Getty Images)
 
 ![](images/2026-04/20260426_AppleBlossoms_1920x1080.jpg)
 
