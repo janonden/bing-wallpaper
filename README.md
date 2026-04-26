@@ -1,3 +1,7 @@
+#### 20260427 维托里奥·埃马努埃莱二世拱廊的玻璃穹顶, 米兰, 意大利 (© PhillipMinnis/Getty Images)
+
+![](images/2026-04/20260427_MilanGalleria_1920x1080.jpg)
+
 #### 20260426 Pink apple blossoms, Avila Beach, California (© Mimi Ditchie Photography/Getty Images)
 
 ![](images/2026-04/20260426_AppleBlossoms_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260419 Books in the children's section of The New York Public Library, New York (© Ken Welsh/Alamy)
 
 ![](images/2026-04/20260419_LibraryWeek_1920x1080.jpg)
-
-#### 20260419 ベレンの塔, ポルトガル (© f9photos/Getty Images)
-
-![](images/2026-04/20260419_BelemTowerBank_1920x1080.jpg)
 
 
 

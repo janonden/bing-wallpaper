@@ -1,3 +1,7 @@
+#### 20260427 维托里奥·埃马努埃莱二世拱廊的玻璃穹顶, 米兰, 意大利 (© PhillipMinnis/Getty Images)
+
+![](20260427_MilanGalleria_1920x1080.jpg)
+
 #### 20260426 Pink apple blossoms, Avila Beach, California (© Mimi Ditchie Photography/Getty Images)
 
 ![](20260426_AppleBlossoms_1920x1080.jpg)
