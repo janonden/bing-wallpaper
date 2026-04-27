@@ -1,3 +1,7 @@
+#### 20260428 眼镜熊在树上休息, 厄瓜多尔 (© Andy Rouse/Nature Picture Library)
+
+![](images/2026-04/20260428_AndeanBear_1920x1080.jpg)
+
 #### 20260427 The glass dome of Galleria Vittorio Emanuele II, Milan, Italy (© PhillipMinnis/Getty Images)
 
 ![](images/2026-04/20260427_MilanGalleria_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260419 Rolling hills of Tuscany, Italy (© Andyworks/Getty Images)
 
 ![](images/2026-04/20260419_ToscanaSpring_1920x1080.jpg)
-
-#### 20260419 Books in the children's section of The New York Public Library, New York (© Ken Welsh/Alamy)
-
-![](images/2026-04/20260419_LibraryWeek_1920x1080.jpg)
 
 
 

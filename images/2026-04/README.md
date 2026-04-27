@@ -1,3 +1,7 @@
+#### 20260428 眼镜熊在树上休息, 厄瓜多尔 (© Andy Rouse/Nature Picture Library)
+
+![](20260428_AndeanBear_1920x1080.jpg)
+
 #### 20260427 The glass dome of Galleria Vittorio Emanuele II, Milan, Italy (© PhillipMinnis/Getty Images)
 
 ![](20260427_MilanGalleria_1920x1080.jpg)
