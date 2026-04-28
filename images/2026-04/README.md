@@ -1,4 +1,4 @@
-#### 20260428 眼镜熊在树上休息, 厄瓜多尔 (© Andy Rouse/Nature Picture Library)
+#### 20260428 Spectacled bear resting in tree, Ecuador (© Andy Rouse/Nature Picture Library)
 
 ![](20260428_AndeanBear_1920x1080.jpg)
 
