@@ -1,3 +1,7 @@
+#### 20260429 国会議事堂, 東京都 (© Hiroshi Watanabe/Getty images)
+
+![](images/2026-04/20260429_ShowaEraDay_1920x1080.jpg)
+
 #### 20260428 Spectacled bear resting in tree, Ecuador (© Andy Rouse/Nature Picture Library)
 
 ![](images/2026-04/20260428_AndeanBear_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260419 镜面海滩，塞古罗港，巴伊亚州，巴西 (© Marcelo Nacinovic/Getty Images)
 
 ![](images/2026-04/20260419_TranBA_1920x1080.jpg)
-
-#### 20260419 Rolling hills of Tuscany, Italy (© Andyworks/Getty Images)
-
-![](images/2026-04/20260419_ToscanaSpring_1920x1080.jpg)
 
 
 

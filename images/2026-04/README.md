@@ -1,3 +1,7 @@
+#### 20260429 国会議事堂, 東京都 (© Hiroshi Watanabe/Getty images)
+
+![](20260429_ShowaEraDay_1920x1080.jpg)
+
 #### 20260428 Spectacled bear resting in tree, Ecuador (© Andy Rouse/Nature Picture Library)
 
 ![](20260428_AndeanBear_1920x1080.jpg)
