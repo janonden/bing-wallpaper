@@ -66,7 +66,7 @@
 
 ![](20260419_LibraryWeek_1920x1080.jpg)
 
-#### 20260419 ベレンの塔, ポルトガル (© f9photos/Getty Images)
+#### 20260419 Belém Tower on the bank of the Tagus River, Lisbon, Portugal (© f9photos/Getty Images)
 
 ![](20260419_BelemTowerBank_1920x1080.jpg)
 
