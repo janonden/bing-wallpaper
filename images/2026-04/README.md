@@ -6,6 +6,10 @@
 
 ![](20260429_ShowaEraDay_1920x1080.jpg)
 
+#### 20260429 Belém Tower on the bank of the Tagus River, Lisbon, Portugal (© f9photos/Getty Images)
+
+![](20260429_BelemTowerBank_1920x1080.jpg)
+
 #### 20260428 Spectacled bear resting in tree, Ecuador (© Andy Rouse/Nature Picture Library)
 
 ![](20260428_AndeanBear_1920x1080.jpg)

@@ -14,6 +14,10 @@
 
 ![](images/2026-04/20260429_ShowaEraDay_1920x1080.jpg)
 
+#### 20260429 Belém Tower on the bank of the Tagus River, Lisbon, Portugal (© f9photos/Getty Images)
+
+![](images/2026-04/20260429_BelemTowerBank_1920x1080.jpg)
+
 #### 20260428 Spectacled bear resting in tree, Ecuador (© Andy Rouse/Nature Picture Library)
 
 ![](images/2026-04/20260428_AndeanBear_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260421 European hedgehog, France (© Klein & Hubert/Nature Picture Library)
 
 ![](images/2026-04/20260421_SpringHedgehog_1920x1080.jpg)
-
-#### 20260420 Sunset in Canyonlands National Park, Moab, Utah (© Jason Hatfield/Tandem Stills + Motion)
-
-![](images/2026-04/20260420_SunsetKiva_1920x1080.jpg)
 
 
 
