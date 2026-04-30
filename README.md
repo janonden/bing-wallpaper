@@ -1,3 +1,11 @@
+#### 20260501 中国的长城 (© aphotostory/Getty Images)
+
+![](images/2026-05/20260501_MayLaborDayY_1920x1080.jpg)
+
+#### 20260501 ジャスパー国立公園, カナダ (© Don White/Getty Images)
+
+![](images/2026-05/20260501_GreenJasper_1920x1080.jpg)
+
 #### 20260430 Grape hyacinths and tulips, Keukenhof Gardens, Lisse, Netherlands (© Martin Ruegner/Getty Images)
 
 ![](images/2026-04/20260430_DutchTulips_1920x1080.jpg)
@@ -50,14 +58,6 @@
 
 ![](images/2026-04/20260420_SunsetKiva_1920x1080.jpg)
 
-#### 20260420 Rathaus St. Johann, Saarbrücken, Saarland (© frantic00/Getty Images)
-
-![](images/2026-04/20260420_SaarbrueckenRathaus_1920x1080.jpg)
-
-#### 20260420 Buckets on maple trees collecting sap for maple syrup (© capecodphoto/Getty Images)
-
-![](images/2026-04/20260420_MapleExtraction_1920x1080.jpg)
-
 
 
 
@@ -66,7 +66,7 @@
 
 
 
-- 2026&emsp;&emsp;[04](images/2026-04/README.md) &emsp;&emsp;[03](images/2026-03/README.md) &emsp;&emsp;[02](images/2026-02/README.md) &emsp;&emsp;[01](images/2026-01/README.md) 
+- 2026&emsp;&emsp;[05](images/2026-05/README.md) &emsp;&emsp;[04](images/2026-04/README.md) &emsp;&emsp;[03](images/2026-03/README.md) &emsp;&emsp;[02](images/2026-02/README.md) &emsp;&emsp;[01](images/2026-01/README.md) 
 
 - 2025&emsp;&emsp;[12](https://github.com/janonden/bing-wallpaper/blob/2025/images/2025-12/README.md) &emsp;&emsp;[11](https://github.com/janonden/bing-wallpaper/blob/2025/images/2025-11/README.md) &emsp;&emsp;[10](https://github.com/janonden/bing-wallpaper/blob/2025/images/2025-10/README.md) &emsp;&emsp;[09](https://github.com/janonden/bing-wallpaper/blob/2025/images/2025-09/README.md) &emsp;&emsp;[08](https://github.com/janonden/bing-wallpaper/blob/2025/images/2025-08/README.md) &emsp;&emsp;[07](https://github.com/janonden/bing-wallpaper/blob/2025/images/2025-07/README.md) &emsp;&emsp;[06](https://github.com/janonden/bing-wallpaper/blob/2025/images/2025-06/README.md) &emsp;&emsp;[05](https://github.com/janonden/bing-wallpaper/blob/2025/images/2025-05/README.md) &emsp;&emsp;[04](https://github.com/janonden/bing-wallpaper/blob/2025/images/2025-04/README.md) &emsp;&emsp;[03](https://github.com/janonden/bing-wallpaper/blob/2025/images/2025-03/README.md) &emsp;&emsp;[02](https://github.com/janonden/bing-wallpaper/blob/2025/images/2025-02/README.md) &emsp;&emsp;[01](https://github.com/janonden/bing-wallpaper/blob/2025/images/2025-01/README.md) 
 
