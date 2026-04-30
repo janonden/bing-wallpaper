@@ -1,4 +1,4 @@
-#### 20260430 葡萄风信子和郁金香, 库肯霍夫花园, 利塞, 荷兰 (© Martin Ruegner/Getty Images)
+#### 20260430 Grape hyacinths and tulips, Keukenhof Gardens, Lisse, Netherlands (© Martin Ruegner/Getty Images)
 
 ![](images/2026-04/20260430_DutchTulips_1920x1080.jpg)
 
