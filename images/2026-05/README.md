@@ -1,3 +1,7 @@
+#### 20260502 和束の茶畑, 京都府 和束町 (© Tuul and Bruno Morandi/Alamy)
+
+![](20260502_HachijyuHachiya_1920x1080.jpg)
+
 #### 20260501 Leuchtturm Tŵr Mawr, Ynys Llanddwyn, Anglesey, Wales (© Lukas Bischoff/Getty Images)
 
 ![](20260501_TwrMawrLighthouse_1920x1080.jpg)
