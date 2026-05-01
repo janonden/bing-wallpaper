@@ -1,6 +1,14 @@
+#### 20260501 Leuchtturm Tŵr Mawr, Ynys Llanddwyn, Anglesey, Wales (© Lukas Bischoff/Getty Images)
+
+![](20260501_TwrMawrLighthouse_1920x1080.jpg)
+
 #### 20260501 中国的长城 (© aphotostory/Getty Images)
 
 ![](20260501_MayLaborDayY_1920x1080.jpg)
+
+#### 20260501 Brin de muguet, Ukraine (© tomch/Getty Images Plus)
+
+![](20260501_LilyMay_1920x1080.jpg)
 
 #### 20260501 ジャスパー国立公園, カナダ (© Don White/Getty Images)
 

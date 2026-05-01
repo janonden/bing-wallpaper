@@ -1,6 +1,14 @@
+#### 20260501 Leuchtturm Tŵr Mawr, Ynys Llanddwyn, Anglesey, Wales (© Lukas Bischoff/Getty Images)
+
+![](images/2026-05/20260501_TwrMawrLighthouse_1920x1080.jpg)
+
 #### 20260501 中国的长城 (© aphotostory/Getty Images)
 
 ![](images/2026-05/20260501_MayLaborDayY_1920x1080.jpg)
+
+#### 20260501 Brin de muguet, Ukraine (© tomch/Getty Images Plus)
+
+![](images/2026-05/20260501_LilyMay_1920x1080.jpg)
 
 #### 20260501 ジャスパー国立公園, カナダ (© Don White/Getty Images)
 
@@ -49,14 +57,6 @@
 #### 20260423 Anne Hathaway's cottage and garden, Stratford-upon-Avon, England (© David Steele/Shutterstock)
 
 ![](images/2026-04/20260423_HathawayCottage_1920x1080.jpg)
-
-#### 20260422 Alam-Pedja Nature Reserve in Tartu County, Estonia (© Sven Zacek/Nature Picture Library)
-
-![](images/2026-04/20260422_TartuEstonia_1920x1080.jpg)
-
-#### 20260421 European hedgehog, France (© Klein & Hubert/Nature Picture Library)
-
-![](images/2026-04/20260421_SpringHedgehog_1920x1080.jpg)
 
 
 
