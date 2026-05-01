@@ -10,6 +10,10 @@
 
 ![](images/2026-05/20260501_LilyMay_1920x1080.jpg)
 
+#### 20260501 Koi fish, Lan Su Chinese Garden, Portland, Oregon (© Greg Vaughn/Getty Images)
+
+![](images/2026-05/20260501_KoiPond_1920x1080.jpg)
+
 #### 20260501 ジャスパー国立公園, カナダ (© Don White/Getty Images)
 
 ![](images/2026-05/20260501_GreenJasper_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260424 Common chiffchaff, Germany (© Andyworks/Getty Images)
 
 ![](images/2026-04/20260424_ChiffchaffSpring_1920x1080.jpg)
-
-#### 20260423 Anne Hathaway's cottage and garden, Stratford-upon-Avon, England (© David Steele/Shutterstock)
-
-![](images/2026-04/20260423_HathawayCottage_1920x1080.jpg)
 
 
 
