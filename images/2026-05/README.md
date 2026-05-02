@@ -1,3 +1,7 @@
+#### 20260503 萨瓦纳草原的树上睡觉的豹子，马赛马拉国家保护区，肯尼亚 (© Klein & Hubert/Nature Picture Library)
+
+![](20260503_MasaiLeopard_1920x1080.jpg)
+
 #### 20260502 和束の茶畑, 京都府 和束町 (© Tuul and Bruno Morandi/Alamy)
 
 ![](20260502_HachijyuHachiya_1920x1080.jpg)

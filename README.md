@@ -1,3 +1,7 @@
+#### 20260503 萨瓦纳草原的树上睡觉的豹子，马赛马拉国家保护区，肯尼亚 (© Klein & Hubert/Nature Picture Library)
+
+![](images/2026-05/20260503_MasaiLeopard_1920x1080.jpg)
+
 #### 20260502 和束の茶畑, 京都府 和束町 (© Tuul and Bruno Morandi/Alamy)
 
 ![](images/2026-05/20260502_HachijyuHachiya_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260424 Galápagos penguins swimming, Galápagos Islands, Ecuador (© Henley Spiers/Nature Picture Library)
 
 ![](images/2026-04/20260424_GalapagosPenguins_1920x1080.jpg)
-
-#### 20260424 Flamant rose, Aigues-Mortes (© EyeEm Mobile GmbH/Getty Images Plus)
-
-![](images/2026-04/20260424_FlamingoAiguesMortes_1920x1080.jpg)
 
 
 
