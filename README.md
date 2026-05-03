@@ -1,3 +1,7 @@
+#### 20260504 乌莱德·索尔坦克萨尔，塔塔温区，突尼斯南部 (© Dark_Eni/Getty Images Plus)
+
+![](images/2026-05/20260504_KsarOuledSoltane_1920x1080.jpg)
+
 #### 20260503 Leopard sleeping in a tree in savanna, Masai Mara National Reserve, Kenya (© Klein & Hubert/Nature Picture Library)
 
 ![](images/2026-05/20260503_MasaiLeopard_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260424 Forest hammock of slash pine and saw palmetto, Everglades National Park, Florida (© Mary Liz Austin/Alamy)
 
 ![](images/2026-04/20260424_SlashPine_1920x1080.jpg)
-
-#### 20260424 Galápagos penguins swimming, Galápagos Islands, Ecuador (© Henley Spiers/Nature Picture Library)
-
-![](images/2026-04/20260424_GalapagosPenguins_1920x1080.jpg)
 
 
 
