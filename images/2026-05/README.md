@@ -1,3 +1,11 @@
+#### 20260505 姫の沢公園, 静岡県 熱海市 (© SKY Stock/Shutterstock)
+
+![](20260505_ChildrensDay_1920x1080.jpg)
+
+#### 20260505 莲花与莲花植株 (© real444/Getty Images)
+
+![](20260505_BeginningofSummerY_1920x1080.jpg)
+
 #### 20260504 Ksar Ouled Soltane, Tataouine district in southern Tunisia (© Dark_Eni/Getty Images Plus)
 
 ![](20260504_KsarOuledSoltane_1920x1080.jpg)

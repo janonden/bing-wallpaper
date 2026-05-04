@@ -1,3 +1,11 @@
+#### 20260505 姫の沢公園, 静岡県 熱海市 (© SKY Stock/Shutterstock)
+
+![](images/2026-05/20260505_ChildrensDay_1920x1080.jpg)
+
+#### 20260505 莲花与莲花植株 (© real444/Getty Images)
+
+![](images/2026-05/20260505_BeginningofSummerY_1920x1080.jpg)
+
 #### 20260504 Ksar Ouled Soltane, Tataouine district in southern Tunisia (© Dark_Eni/Getty Images Plus)
 
 ![](images/2026-05/20260504_KsarOuledSoltane_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20260427 The glass dome of Galleria Vittorio Emanuele II, Milan, Italy (© PhillipMinnis/Getty Images)
 
 ![](images/2026-04/20260427_MilanGalleria_1920x1080.jpg)
-
-#### 20260426 Pink apple blossoms, Avila Beach, California (© Mimi Ditchie Photography/Getty Images)
-
-![](images/2026-04/20260426_AppleBlossoms_1920x1080.jpg)
-
-#### 20260424 Forest hammock of slash pine and saw palmetto, Everglades National Park, Florida (© Mary Liz Austin/Alamy)
-
-![](images/2026-04/20260424_SlashPine_1920x1080.jpg)
 
 
 
