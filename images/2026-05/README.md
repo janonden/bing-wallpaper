@@ -1,4 +1,4 @@
-#### 20260504 乌莱德·索尔坦克萨尔，塔塔温区，突尼斯南部 (© Dark_Eni/Getty Images Plus)
+#### 20260504 Ksar Ouled Soltane, Tataouine district in southern Tunisia (© Dark_Eni/Getty Images Plus)
 
 ![](20260504_KsarOuledSoltane_1920x1080.jpg)
 
