@@ -1,4 +1,4 @@
-#### 20260505 Champs d’agave bleu près de Tequila, Jalisco, Mexique (© Brian Overcast/Alamy)
+#### 20260505 Field of blue agave near Tequila, Jalisco, Mexico (© Brian Overcast/Alamy)
 
 ![](images/2026-05/20260505_MayoAgave_1920x1080.jpg)
 
