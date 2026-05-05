@@ -1,3 +1,7 @@
+#### 20260506 平原上空的雷暴，保加利亚 (© Revolu7ion93/Getty Images)
+
+![](images/2026-05/20260506_BulgariaPlains_1920x1080.jpg)
+
 #### 20260505 Field of blue agave near Tequila, Jalisco, Mexico (© Brian Overcast/Alamy)
 
 ![](images/2026-05/20260505_MayoAgave_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260430 Grape hyacinths and tulips, Keukenhof Gardens, Lisse, Netherlands (© Martin Ruegner/Getty Images)
 
 ![](images/2026-04/20260430_DutchTulips_1920x1080.jpg)
-
-#### 20260429 国会議事堂, 東京都 (© Hiroshi Watanabe/Getty images)
-
-![](images/2026-04/20260429_ShowaEraDay_1920x1080.jpg)
 
 
 

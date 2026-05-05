@@ -1,3 +1,7 @@
+#### 20260506 平原上空的雷暴，保加利亚 (© Revolu7ion93/Getty Images)
+
+![](20260506_BulgariaPlains_1920x1080.jpg)
+
 #### 20260505 Field of blue agave near Tequila, Jalisco, Mexico (© Brian Overcast/Alamy)
 
 ![](20260505_MayoAgave_1920x1080.jpg)
