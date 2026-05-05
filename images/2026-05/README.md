@@ -10,6 +10,10 @@
 
 ![](20260505_ChildrensDay_1920x1080.jpg)
 
+#### 20260505 A majestic bull moose foraging through the green undergrowth, Quebec (© pchoui/Getty Images)
+
+![](20260505_BullQuebec_1920x1080.jpg)
+
 #### 20260505 莲花与莲花植株 (© real444/Getty Images)
 
 ![](20260505_BeginningofSummerY_1920x1080.jpg)
