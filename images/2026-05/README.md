@@ -1,3 +1,11 @@
+#### 20260505 Champs d’agave bleu près de Tequila, Jalisco, Mexique (© Brian Overcast/Alamy)
+
+![](20260505_MayoAgave_1920x1080.jpg)
+
+#### 20260505 Strandkörbe am Ostseestrand von Grömitz, Schleswig‑Holstein (© Sabine Lubenow/Image Professionals GmbH/Alamy)
+
+![](20260505_LuebeckChairs_1920x1080.jpg)
+
 #### 20260505 姫の沢公園, 静岡県 熱海市 (© SKY Stock/Shutterstock)
 
 ![](20260505_ChildrensDay_1920x1080.jpg)

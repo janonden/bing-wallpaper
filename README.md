@@ -1,3 +1,11 @@
+#### 20260505 Champs d’agave bleu près de Tequila, Jalisco, Mexique (© Brian Overcast/Alamy)
+
+![](images/2026-05/20260505_MayoAgave_1920x1080.jpg)
+
+#### 20260505 Strandkörbe am Ostseestrand von Grömitz, Schleswig‑Holstein (© Sabine Lubenow/Image Professionals GmbH/Alamy)
+
+![](images/2026-05/20260505_LuebeckChairs_1920x1080.jpg)
+
 #### 20260505 姫の沢公園, 静岡県 熱海市 (© SKY Stock/Shutterstock)
 
 ![](images/2026-05/20260505_ChildrensDay_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20260429 Belém Tower on the bank of the Tagus River, Lisbon, Portugal (© f9photos/Getty Images)
 
 ![](images/2026-04/20260429_BelemTowerBank_1920x1080.jpg)
-
-#### 20260428 Spectacled bear resting in tree, Ecuador (© Andy Rouse/Nature Picture Library)
-
-![](images/2026-04/20260428_AndeanBear_1920x1080.jpg)
-
-#### 20260427 The glass dome of Galleria Vittorio Emanuele II, Milan, Italy (© PhillipMinnis/Getty Images)
-
-![](images/2026-04/20260427_MilanGalleria_1920x1080.jpg)
 
 
 
