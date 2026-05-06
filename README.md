@@ -1,3 +1,7 @@
+#### 20260507 科法国家野生动物保护区，亚利桑那州，美国 (© Denis Tangney Jr/Getty Images)
+
+![](images/2026-05/20260507_Kofa_1920x1080.jpg)
+
 #### 20260506 Thunderstorm above the plains, Bulgaria (© Revolu7ion93/Getty Images)
 
 ![](images/2026-05/20260506_BulgariaPlains_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260501 Small lake and marsh in Jasper National Park in Alberta, Canada (© Don White/Getty Images)
 
 ![](images/2026-05/20260501_GreenJasper_1920x1080.jpg)
-
-#### 20260430 Grape hyacinths and tulips, Keukenhof Gardens, Lisse, Netherlands (© Martin Ruegner/Getty Images)
-
-![](images/2026-04/20260430_DutchTulips_1920x1080.jpg)
 
 
 
