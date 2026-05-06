@@ -1,4 +1,4 @@
-#### 20260506 平原上空的雷暴，保加利亚 (© Revolu7ion93/Getty Images)
+#### 20260506 Thunderstorm above the plains, Bulgaria (© Revolu7ion93/Getty Images)
 
 ![](images/2026-05/20260506_BulgariaPlains_1920x1080.jpg)
 
