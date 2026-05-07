@@ -1,4 +1,4 @@
-#### 20260507 科法国家野生动物保护区，亚利桑那州，美国 (© Denis Tangney Jr/Getty Images)
+#### 20260507 Kofa National Wildlife Refuge, Arizona (© Denis Tangney Jr/Getty Images)
 
 ![](20260507_Kofa_1920x1080.jpg)
 
