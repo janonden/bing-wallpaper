@@ -1,3 +1,7 @@
+#### 20260508 撒丁岛母驴和幼崽, 法国 (© Klein & Hubert/Nature Picture Library)
+
+![](images/2026-05/20260508_SardinianDonkey_1920x1080.jpg)
+
 #### 20260507 Kofa National Wildlife Refuge, Arizona (© Denis Tangney Jr/Getty Images)
 
 ![](images/2026-05/20260507_Kofa_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260501 Koi fish, Lan Su Chinese Garden, Portland, Oregon (© Greg Vaughn/Getty Images)
 
 ![](images/2026-05/20260501_KoiPond_1920x1080.jpg)
-
-#### 20260501 Small lake and marsh in Jasper National Park in Alberta, Canada (© Don White/Getty Images)
-
-![](images/2026-05/20260501_GreenJasper_1920x1080.jpg)
 
 
 
