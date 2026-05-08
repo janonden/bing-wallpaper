@@ -1,3 +1,7 @@
+#### 20260508 Tulips and cherry blossoms at the Rideau Canal, Ottawa, Ontario (© J Duquette/Getty Images)
+
+![](images/2026-05/20260508_TulipFestOT_1920x1080.jpg)
+
 #### 20260508 撒丁岛母驴和幼崽, 法国 (© Klein & Hubert/Nature Picture Library)
 
 ![](images/2026-05/20260508_SardinianDonkey_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260501 Brin de muguet, Ukraine (© tomch/Getty Images Plus)
 
 ![](images/2026-05/20260501_LilyMay_1920x1080.jpg)
-
-#### 20260501 Koi fish, Lan Su Chinese Garden, Portland, Oregon (© Greg Vaughn/Getty Images)
-
-![](images/2026-05/20260501_KoiPond_1920x1080.jpg)
 
 
 

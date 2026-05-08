@@ -1,3 +1,7 @@
+#### 20260508 Tulips and cherry blossoms at the Rideau Canal, Ottawa, Ontario (© J Duquette/Getty Images)
+
+![](20260508_TulipFestOT_1920x1080.jpg)
+
 #### 20260508 撒丁岛母驴和幼崽, 法国 (© Klein & Hubert/Nature Picture Library)
 
 ![](20260508_SardinianDonkey_1920x1080.jpg)
