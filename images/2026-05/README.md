@@ -1,4 +1,4 @@
-#### 20260509 克尔卡国家公园的斯克拉丁斯基布克瀑布, 克罗地亚 (© Amazing Aerial Agency/Adobe Stock)
+#### 20260509 Skradinski Buk Waterfall in Krka National Park, Croatia (© Amazing Aerial Agency/Adobe Stock)
 
 ![](20260509_SkradinskiBuk_1920x1080.jpg)
 
