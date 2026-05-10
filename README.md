@@ -1,3 +1,7 @@
+#### 20260511 从上方俯瞰大堡礁, 昆士兰州, 澳大利亚 (© Francesco Riccardo Iacomino/Getty Images)
+
+![](images/2026-05/20260511_QueenslandReef_1920x1080.jpg)
+
 #### 20260510 Polar bear mother and cubs playing in Wapusk National Park, Manitoba, Canada (© Hao Jiang/Getty Images)
 
 ![](images/2026-05/20260510_MotherCub_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260503 Leopard sleeping in a tree in savanna, Masai Mara National Reserve, Kenya (© Klein & Hubert/Nature Picture Library)
 
 ![](images/2026-05/20260503_MasaiLeopard_1920x1080.jpg)
-
-#### 20260502 和束の茶畑, 京都府 和束町 (© Tuul and Bruno Morandi/Alamy)
-
-![](images/2026-05/20260502_HachijyuHachiya_1920x1080.jpg)
 
 
 
