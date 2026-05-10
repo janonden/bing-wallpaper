@@ -1,4 +1,4 @@
-#### 20260510 北极熊妈妈和幼崽在瓦普斯克国家公园玩耍, 马尼托巴省, 加拿大 (© Hao Jiang/Getty Images)
+#### 20260510 Polar bear mother and cubs playing in Wapusk National Park, Manitoba, Canada (© Hao Jiang/Getty Images)
 
 ![](images/2026-05/20260510_MotherCub_1920x1080.jpg)
 
