@@ -2,6 +2,10 @@
 
 ![](20260510_MotherCub_1920x1080.jpg)
 
+#### 20260510 Macareux moines, Pays de Galles (© FLPA/Alamy)
+
+![](20260510_Fratercula_1920x1080.jpg)
+
 #### 20260509 Skradinski Buk Waterfall in Krka National Park, Croatia (© Amazing Aerial Agency/Adobe Stock)
 
 ![](20260509_SkradinskiBuk_1920x1080.jpg)

@@ -2,6 +2,10 @@
 
 ![](images/2026-05/20260510_MotherCub_1920x1080.jpg)
 
+#### 20260510 Macareux moines, Pays de Galles (© FLPA/Alamy)
+
+![](images/2026-05/20260510_Fratercula_1920x1080.jpg)
+
 #### 20260509 Skradinski Buk Waterfall in Krka National Park, Croatia (© Amazing Aerial Agency/Adobe Stock)
 
 ![](images/2026-05/20260509_SkradinskiBuk_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260502 和束の茶畑, 京都府 和束町 (© Tuul and Bruno Morandi/Alamy)
 
 ![](images/2026-05/20260502_HachijyuHachiya_1920x1080.jpg)
-
-#### 20260501 Leuchtturm Tŵr Mawr, Ynys Llanddwyn, Anglesey, Wales (© Lukas Bischoff/Getty Images)
-
-![](images/2026-05/20260501_TwrMawrLighthouse_1920x1080.jpg)
 
 
 
