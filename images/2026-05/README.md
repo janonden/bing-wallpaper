@@ -1,4 +1,4 @@
-#### 20260511 从上方俯瞰大堡礁, 昆士兰州, 澳大利亚 (© Francesco Riccardo Iacomino/Getty Images)
+#### 20260511 Great Barrier Reef from above, Queensland, Australia (© Francesco Riccardo Iacomino/Getty Images)
 
 ![](20260511_QueenslandReef_1920x1080.jpg)
 
