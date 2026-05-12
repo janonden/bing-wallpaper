@@ -1,3 +1,7 @@
+#### 20260512 Des chaises attendent l'arrivée des célébrités et des cinéphiles au Festival de Cannes (© Christopher Furlong/Getty Images)
+
+![](images/2026-05/20260512_ChairsCannes_1920x1080.jpg)
+
 #### 20260511 Great Barrier Reef from above, Queensland, Australia (© Francesco Riccardo Iacomino/Getty Images)
 
 ![](images/2026-05/20260511_QueenslandReef_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260504 Ksar Ouled Soltane, Tataouine district in southern Tunisia (© Dark_Eni/Getty Images Plus)
 
 ![](images/2026-05/20260504_KsarOuledSoltane_1920x1080.jpg)
-
-#### 20260503 Leopard sleeping in a tree in savanna, Masai Mara National Reserve, Kenya (© Klein & Hubert/Nature Picture Library)
-
-![](images/2026-05/20260503_MasaiLeopard_1920x1080.jpg)
 
 
 
