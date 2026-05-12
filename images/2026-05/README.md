@@ -1,3 +1,7 @@
+#### 20260513 拱门与银河, 阿拉巴马山, 内华达山脉, 加利福尼亚州, 美国 (© Tim Fitzharris/Minden Pictures)
+
+![](20260513_AlabamaHills_1920x1080.jpg)
+
 #### 20260512 Des chaises attendent l'arrivée des célébrités et des cinéphiles au Festival de Cannes (© Christopher Furlong/Getty Images)
 
 ![](20260512_ChairsCannes_1920x1080.jpg)

@@ -1,3 +1,7 @@
+#### 20260513 拱门与银河, 阿拉巴马山, 内华达山脉, 加利福尼亚州, 美国 (© Tim Fitzharris/Minden Pictures)
+
+![](images/2026-05/20260513_AlabamaHills_1920x1080.jpg)
+
 #### 20260512 Des chaises attendent l'arrivée des célébrités et des cinéphiles au Festival de Cannes (© Christopher Furlong/Getty Images)
 
 ![](images/2026-05/20260512_ChairsCannes_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260505 莲花与莲花植株 (© real444/Getty Images)
 
 ![](images/2026-05/20260505_BeginningofSummerY_1920x1080.jpg)
-
-#### 20260504 Ksar Ouled Soltane, Tataouine district in southern Tunisia (© Dark_Eni/Getty Images Plus)
-
-![](images/2026-05/20260504_KsarOuledSoltane_1920x1080.jpg)
 
 
 
