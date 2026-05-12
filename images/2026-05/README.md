@@ -10,7 +10,7 @@
 
 ![](20260510_MotherCub_1920x1080.jpg)
 
-#### 20260510 Macareux moines, Pays de Galles (© FLPA/Alamy)
+#### 20260510 Atlantic puffins, Wales (© FLPA/Alamy)
 
 ![](20260510_Fratercula_1920x1080.jpg)
 
