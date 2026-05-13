@@ -1,3 +1,7 @@
+#### 20260514 中世纪古镇皮蒂利亚诺, 托斯卡纳, 意大利 (© bluejayphoto/Getty Images Plus)
+
+![](20260514_Pitigliano_1920x1080.jpg)
+
 #### 20260513 Arch and Milky Way, Alabama Hills, Sierra Nevada, California (© Tim Fitzharris/Minden Pictures)
 
 ![](20260513_AlabamaHills_1920x1080.jpg)

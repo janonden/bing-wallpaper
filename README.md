@@ -1,3 +1,7 @@
+#### 20260514 中世纪古镇皮蒂利亚诺, 托斯卡纳, 意大利 (© bluejayphoto/Getty Images Plus)
+
+![](images/2026-05/20260514_Pitigliano_1920x1080.jpg)
+
 #### 20260513 Arch and Milky Way, Alabama Hills, Sierra Nevada, California (© Tim Fitzharris/Minden Pictures)
 
 ![](images/2026-05/20260513_AlabamaHills_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260505 A majestic bull moose foraging through the green undergrowth, Quebec (© pchoui/Getty Images)
 
 ![](images/2026-05/20260505_BullQuebec_1920x1080.jpg)
-
-#### 20260505 莲花与莲花植株 (© real444/Getty Images)
-
-![](images/2026-05/20260505_BeginningofSummerY_1920x1080.jpg)
 
 
 
