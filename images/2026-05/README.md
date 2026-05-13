@@ -1,4 +1,4 @@
-#### 20260513 拱门与银河, 阿拉巴马山, 内华达山脉, 加利福尼亚州, 美国 (© Tim Fitzharris/Minden Pictures)
+#### 20260513 Arch and Milky Way, Alabama Hills, Sierra Nevada, California (© Tim Fitzharris/Minden Pictures)
 
 ![](20260513_AlabamaHills_1920x1080.jpg)
 
