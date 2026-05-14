@@ -1,3 +1,7 @@
+#### 20260515 一群抹香鲸, 印度洋 (© Tony Wu/Nature Picture Library)
+
+![](20260515_EndangeredWhales_1920x1080.jpg)
+
 #### 20260514 Medieval town of Pitigliano, Tuscany, Italy (© bluejayphoto/Getty Images Plus)
 
 ![](20260514_Pitigliano_1920x1080.jpg)

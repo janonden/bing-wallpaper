@@ -1,3 +1,7 @@
+#### 20260515 一群抹香鲸, 印度洋 (© Tony Wu/Nature Picture Library)
+
+![](images/2026-05/20260515_EndangeredWhales_1920x1080.jpg)
+
 #### 20260514 Medieval town of Pitigliano, Tuscany, Italy (© bluejayphoto/Getty Images Plus)
 
 ![](images/2026-05/20260514_Pitigliano_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260505 Strandkörbe am Ostseestrand von Grömitz, Schleswig‑Holstein (© Sabine Lubenow/Image Professionals GmbH/Alamy)
 
 ![](images/2026-05/20260505_LuebeckChairs_1920x1080.jpg)
-
-#### 20260505 姫の沢公園, 静岡県 熱海市 (© SKY Stock/Shutterstock)
-
-![](images/2026-05/20260505_ChildrensDay_1920x1080.jpg)
 
 
 
