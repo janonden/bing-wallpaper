@@ -2,6 +2,10 @@
 
 ![](20260514_Pitigliano_1920x1080.jpg)
 
+#### 20260514 Löwenmännchen mit Jungtier (© JasonPrince/iStock/Getty Images)
+
+![](20260514_FathersDayItaly_1920x1080.jpg)
+
 #### 20260513 Arch and Milky Way, Alabama Hills, Sierra Nevada, California (© Tim Fitzharris/Minden Pictures)
 
 ![](20260513_AlabamaHills_1920x1080.jpg)

@@ -2,6 +2,10 @@
 
 ![](images/2026-05/20260514_Pitigliano_1920x1080.jpg)
 
+#### 20260514 Löwenmännchen mit Jungtier (© JasonPrince/iStock/Getty Images)
+
+![](images/2026-05/20260514_FathersDayItaly_1920x1080.jpg)
+
 #### 20260513 Arch and Milky Way, Alabama Hills, Sierra Nevada, California (© Tim Fitzharris/Minden Pictures)
 
 ![](images/2026-05/20260513_AlabamaHills_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260505 姫の沢公園, 静岡県 熱海市 (© SKY Stock/Shutterstock)
 
 ![](images/2026-05/20260505_ChildrensDay_1920x1080.jpg)
-
-#### 20260505 A majestic bull moose foraging through the green undergrowth, Quebec (© pchoui/Getty Images)
-
-![](images/2026-05/20260505_BullQuebec_1920x1080.jpg)
 
 
 
