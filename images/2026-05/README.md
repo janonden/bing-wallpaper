@@ -1,4 +1,4 @@
-#### 20260514 中世纪古镇皮蒂利亚诺, 托斯卡纳, 意大利 (© bluejayphoto/Getty Images Plus)
+#### 20260514 Medieval town of Pitigliano, Tuscany, Italy (© bluejayphoto/Getty Images Plus)
 
 ![](20260514_Pitigliano_1920x1080.jpg)
 
