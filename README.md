@@ -1,3 +1,7 @@
+#### 20260516 史密斯岩州立公园, 俄勒冈州, 美国 (© Alex Ratson/Getty Images)
+
+![](images/2026-05/20260516_SmithRockPark_1920x1080.jpg)
+
 #### 20260515 A family of sperm whales, Indian Ocean (© Tony Wu/Nature Picture Library)
 
 ![](images/2026-05/20260515_EndangeredWhales_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260505 Field of blue agave near Tequila, Jalisco, Mexico (© Brian Overcast/Alamy)
 
 ![](images/2026-05/20260505_MayoAgave_1920x1080.jpg)
-
-#### 20260505 Strandkörbe am Ostseestrand von Grömitz, Schleswig‑Holstein (© Sabine Lubenow/Image Professionals GmbH/Alamy)
-
-![](images/2026-05/20260505_LuebeckChairs_1920x1080.jpg)
 
 
 

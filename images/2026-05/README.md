@@ -1,3 +1,7 @@
+#### 20260516 史密斯岩州立公园, 俄勒冈州, 美国 (© Alex Ratson/Getty Images)
+
+![](20260516_SmithRockPark_1920x1080.jpg)
+
 #### 20260515 A family of sperm whales, Indian Ocean (© Tony Wu/Nature Picture Library)
 
 ![](20260515_EndangeredWhales_1920x1080.jpg)
