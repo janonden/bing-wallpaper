@@ -1,4 +1,4 @@
-#### 20260515 一群抹香鲸, 印度洋 (© Tony Wu/Nature Picture Library)
+#### 20260515 A family of sperm whales, Indian Ocean (© Tony Wu/Nature Picture Library)
 
 ![](20260515_EndangeredWhales_1920x1080.jpg)
 
