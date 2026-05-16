@@ -1,3 +1,7 @@
+#### 20260517 仙纳度国家公园的玳瑁峰, 弗吉尼亚州, 美国 (© John Baggaley/Getty Images)
+
+![](images/2026-05/20260517_ShenandoahSunset_1920x1080.jpg)
+
 #### 20260516 Smith Rock State Park, Oregon (© Alex Ratson/Getty Images)
 
 ![](images/2026-05/20260516_SmithRockPark_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260508 Sardinian donkey mare and foal, France (© Klein & Hubert/Nature Picture Library)
 
 ![](images/2026-05/20260508_SardinianDonkey_1920x1080.jpg)
-
-#### 20260507 Kofa National Wildlife Refuge, Arizona (© Denis Tangney Jr/Getty Images)
-
-![](images/2026-05/20260507_Kofa_1920x1080.jpg)
 
 
 

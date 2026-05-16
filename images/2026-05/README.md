@@ -1,3 +1,7 @@
+#### 20260517 仙纳度国家公园的玳瑁峰, 弗吉尼亚州, 美国 (© John Baggaley/Getty Images)
+
+![](20260517_ShenandoahSunset_1920x1080.jpg)
+
 #### 20260516 Smith Rock State Park, Oregon (© Alex Ratson/Getty Images)
 
 ![](20260516_SmithRockPark_1920x1080.jpg)
