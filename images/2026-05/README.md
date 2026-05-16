@@ -1,4 +1,4 @@
-#### 20260516 史密斯岩州立公园, 俄勒冈州, 美国 (© Alex Ratson/Getty Images)
+#### 20260516 Smith Rock State Park, Oregon (© Alex Ratson/Getty Images)
 
 ![](20260516_SmithRockPark_1920x1080.jpg)
 
