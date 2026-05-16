@@ -2,6 +2,14 @@
 
 ![](images/2026-05/20260516_SmithRockPark_1920x1080.jpg)
 
+#### 20260516 Argus‑Bläuling auf einer Blüte (© Remus86/Getty Images)
+
+![](images/2026-05/20260516_ButterflyFlower_1920x1080.jpg)
+
+#### 20260516 Forêt de bouleaux, Bourgogne (© Wenphotos/Alamy)
+
+![](images/2026-05/20260516_BirchForest_1920x1080.jpg)
+
 #### 20260515 A family of sperm whales, Indian Ocean (© Tony Wu/Nature Picture Library)
 
 ![](images/2026-05/20260515_EndangeredWhales_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20260507 Kofa National Wildlife Refuge, Arizona (© Denis Tangney Jr/Getty Images)
 
 ![](images/2026-05/20260507_Kofa_1920x1080.jpg)
-
-#### 20260506 Thunderstorm above the plains, Bulgaria (© Revolu7ion93/Getty Images)
-
-![](images/2026-05/20260506_BulgariaPlains_1920x1080.jpg)
-
-#### 20260505 Field of blue agave near Tequila, Jalisco, Mexico (© Brian Overcast/Alamy)
-
-![](images/2026-05/20260505_MayoAgave_1920x1080.jpg)
 
 
 

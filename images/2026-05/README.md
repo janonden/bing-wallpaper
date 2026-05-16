@@ -2,6 +2,14 @@
 
 ![](20260516_SmithRockPark_1920x1080.jpg)
 
+#### 20260516 Argus‑Bläuling auf einer Blüte (© Remus86/Getty Images)
+
+![](20260516_ButterflyFlower_1920x1080.jpg)
+
+#### 20260516 Forêt de bouleaux, Bourgogne (© Wenphotos/Alamy)
+
+![](20260516_BirchForest_1920x1080.jpg)
+
 #### 20260515 A family of sperm whales, Indian Ocean (© Tony Wu/Nature Picture Library)
 
 ![](20260515_EndangeredWhales_1920x1080.jpg)
