@@ -1,4 +1,4 @@
-#### 20260517 仙纳度国家公园的玳瑁峰, 弗吉尼亚州, 美国 (© John Baggaley/Getty Images)
+#### 20260517 Hawksbill Mountain in Shenandoah National Park, Virginia (© John Baggaley/Getty Images)
 
 ![](images/2026-05/20260517_ShenandoahSunset_1920x1080.jpg)
 
