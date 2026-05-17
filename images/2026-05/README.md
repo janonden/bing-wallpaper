@@ -1,3 +1,11 @@
+#### 20260518 伦敦自然历史博物馆, 英格兰 (© Colm Keating/Tandem Stills + Motion)
+
+![](20260518_MuseumLondon_1920x1080.jpg)
+
+#### 20260518 国立科学博物館, 東京 (© cowardlion/Shutterstock)
+
+![](20260518_MuseumDay_1920x1080.jpg)
+
 #### 20260517 Hawksbill Mountain in Shenandoah National Park, Virginia (© John Baggaley/Getty Images)
 
 ![](20260517_ShenandoahSunset_1920x1080.jpg)

@@ -1,3 +1,11 @@
+#### 20260518 伦敦自然历史博物馆, 英格兰 (© Colm Keating/Tandem Stills + Motion)
+
+![](images/2026-05/20260518_MuseumLondon_1920x1080.jpg)
+
+#### 20260518 国立科学博物館, 東京 (© cowardlion/Shutterstock)
+
+![](images/2026-05/20260518_MuseumDay_1920x1080.jpg)
+
 #### 20260517 Hawksbill Mountain in Shenandoah National Park, Virginia (© John Baggaley/Getty Images)
 
 ![](images/2026-05/20260517_ShenandoahSunset_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20260509 Skradinski Buk Waterfall in Krka National Park, Croatia (© Amazing Aerial Agency/Adobe Stock)
 
 ![](images/2026-05/20260509_SkradinskiBuk_1920x1080.jpg)
-
-#### 20260508 Tulips and cherry blossoms at the Rideau Canal, Ottawa, Ontario (© J Duquette/Getty Images)
-
-![](images/2026-05/20260508_TulipFestOT_1920x1080.jpg)
-
-#### 20260508 Sardinian donkey mare and foal, France (© Klein & Hubert/Nature Picture Library)
-
-![](images/2026-05/20260508_SardinianDonkey_1920x1080.jpg)
 
 
 
