@@ -1,3 +1,7 @@
+#### 20260519 フォルメントール灯台, スペイン (© Allard Schager/Getty Images)
+
+![](images/2026-05/20260519_SpainLighthouse_1920x1080.jpg)
+
 #### 20260519 Dolbadarn Castle, Llanberis, Wales (© Allan Hartley/Alamy)
 
 ![](images/2026-05/20260519_NPFortnight_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260511 Great Barrier Reef from above, Queensland, Australia (© Francesco Riccardo Iacomino/Getty Images)
 
 ![](images/2026-05/20260511_QueenslandReef_1920x1080.jpg)
-
-#### 20260510 Polar bear mother and cubs playing in Wapusk National Park, Manitoba, Canada (© Hao Jiang/Getty Images)
-
-![](images/2026-05/20260510_MotherCub_1920x1080.jpg)
 
 
 

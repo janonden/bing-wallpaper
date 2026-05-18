@@ -1,3 +1,7 @@
+#### 20260519 フォルメントール灯台, スペイン (© Allard Schager/Getty Images)
+
+![](20260519_SpainLighthouse_1920x1080.jpg)
+
 #### 20260519 Dolbadarn Castle, Llanberis, Wales (© Allan Hartley/Alamy)
 
 ![](20260519_NPFortnight_1920x1080.jpg)
