@@ -1,4 +1,8 @@
-#### 20260518 伦敦自然历史博物馆, 英格兰 (© Colm Keating/Tandem Stills + Motion)
+#### 20260519 Dolbadarn Castle, Llanberis, Wales (© Allan Hartley/Alamy)
+
+![](20260519_NPFortnight_1920x1080.jpg)
+
+#### 20260518 Natural History Museum, London, England (© Colm Keating/Tandem Stills + Motion)
 
 ![](20260518_MuseumLondon_1920x1080.jpg)
 
