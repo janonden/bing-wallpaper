@@ -6,6 +6,10 @@
 
 ![](images/2026-05/20260518_MuseumDay_1920x1080.jpg)
 
+#### 20260518 Chapeaux de paille dans les tribunes de Roland-Garros, Paris (© Horacio Villalobos/Corbis)
+
+![](images/2026-05/20260518_HatsRolandGarros_1920x1080.jpg)
+
 #### 20260517 Hawksbill Mountain in Shenandoah National Park, Virginia (© John Baggaley/Getty Images)
 
 ![](images/2026-05/20260517_ShenandoahSunset_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260510 Atlantic puffins, Wales (© FLPA/Alamy)
 
 ![](images/2026-05/20260510_Fratercula_1920x1080.jpg)
-
-#### 20260509 Skradinski Buk Waterfall in Krka National Park, Croatia (© Amazing Aerial Agency/Adobe Stock)
-
-![](images/2026-05/20260509_SkradinskiBuk_1920x1080.jpg)
 
 
 

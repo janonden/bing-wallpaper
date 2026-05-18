@@ -6,6 +6,10 @@
 
 ![](20260518_MuseumDay_1920x1080.jpg)
 
+#### 20260518 Chapeaux de paille dans les tribunes de Roland-Garros, Paris (© Horacio Villalobos/Corbis)
+
+![](20260518_HatsRolandGarros_1920x1080.jpg)
+
 #### 20260517 Hawksbill Mountain in Shenandoah National Park, Virginia (© John Baggaley/Getty Images)
 
 ![](20260517_ShenandoahSunset_1920x1080.jpg)
