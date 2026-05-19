@@ -1,3 +1,7 @@
+#### 20260520 受粉しているマルハナバチ, イングランド (© SimonEastwood87/Shutterstock)
+
+![](images/2026-05/20260520_BumbleBee_1920x1080.jpg)
+
 #### 20260519 Formentor Lighthouse, Mallorca, Balearic Islands, Spain (© Allard Schager/Getty Images)
 
 ![](images/2026-05/20260519_SpainLighthouse_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260512 Des chaises attendent l'arrivée des célébrités et des cinéphiles au Festival de Cannes (© Christopher Furlong/Getty Images)
 
 ![](images/2026-05/20260512_ChairsCannes_1920x1080.jpg)
-
-#### 20260511 Great Barrier Reef from above, Queensland, Australia (© Francesco Riccardo Iacomino/Getty Images)
-
-![](images/2026-05/20260511_QueenslandReef_1920x1080.jpg)
 
 
 
