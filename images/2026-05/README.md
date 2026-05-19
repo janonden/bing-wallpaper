@@ -1,4 +1,4 @@
-#### 20260519 フォルメントール灯台, スペイン (© Allard Schager/Getty Images)
+#### 20260519 Formentor Lighthouse, Mallorca, Balearic Islands, Spain (© Allard Schager/Getty Images)
 
 ![](20260519_SpainLighthouse_1920x1080.jpg)
 
