@@ -1,4 +1,4 @@
-#### 20260520 受粉しているマルハナバチ, イングランド (© SimonEastwood87/Shutterstock)
+#### 20260520 Bumble bee pollinating, Worcester, England (© SimonEastwood87/Shutterstock)
 
 ![](images/2026-05/20260520_BumbleBee_1920x1080.jpg)
 
