@@ -1,3 +1,7 @@
+#### 20260521 四川省の茶畑, 中国 (© lzf/Shutterstock)
+
+![](images/2026-05/20260521_SichuanTea_1920x1080.jpg)
+
 #### 20260520 Bumble bee pollinating, Worcester, England (© SimonEastwood87/Shutterstock)
 
 ![](images/2026-05/20260520_BumbleBee_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260513 Arch and Milky Way, Alabama Hills, Sierra Nevada, California (© Tim Fitzharris/Minden Pictures)
 
 ![](images/2026-05/20260513_AlabamaHills_1920x1080.jpg)
-
-#### 20260512 Des chaises attendent l'arrivée des célébrités et des cinéphiles au Festival de Cannes (© Christopher Furlong/Getty Images)
-
-![](images/2026-05/20260512_ChairsCannes_1920x1080.jpg)
 
 
 

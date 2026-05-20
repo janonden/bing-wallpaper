@@ -1,3 +1,7 @@
+#### 20260521 四川省の茶畑, 中国 (© lzf/Shutterstock)
+
+![](20260521_SichuanTea_1920x1080.jpg)
+
 #### 20260520 Bumble bee pollinating, Worcester, England (© SimonEastwood87/Shutterstock)
 
 ![](20260520_BumbleBee_1920x1080.jpg)
