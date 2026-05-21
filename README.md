@@ -2,6 +2,10 @@
 
 ![](images/2026-05/20260522_TokyoSkyTreeDay_1920x1080.jpg)
 
+#### 20260522 埃希环礁，土阿莫土群岛，法属波利尼西亚 (© WaterFrame_dpr/Alamy)
+
+![](images/2026-05/20260522_KauehiAtollLagoon_1920x1080.jpg)
+
 #### 20260521 Tea terraces in Sichuan Province, China (© lzf/Shutterstock)
 
 ![](images/2026-05/20260521_SichuanTea_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260514 Medieval town of Pitigliano, Tuscany, Italy (© bluejayphoto/Getty Images Plus)
 
 ![](images/2026-05/20260514_Pitigliano_1920x1080.jpg)
-
-#### 20260514 Löwenmännchen mit Jungtier (© JasonPrince/iStock/Getty Images)
-
-![](images/2026-05/20260514_FathersDayItaly_1920x1080.jpg)
 
 
 
