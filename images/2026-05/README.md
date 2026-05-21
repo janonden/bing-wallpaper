@@ -1,3 +1,7 @@
+#### 20260522 東京スカイツリー, 東京 (© GoranQ/Getty Images)
+
+![](20260522_TokyoSkyTreeDay_1920x1080.jpg)
+
 #### 20260521 Tea terraces in Sichuan Province, China (© lzf/Shutterstock)
 
 ![](20260521_SichuanTea_1920x1080.jpg)

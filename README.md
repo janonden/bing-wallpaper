@@ -1,3 +1,7 @@
+#### 20260522 東京スカイツリー, 東京 (© GoranQ/Getty Images)
+
+![](images/2026-05/20260522_TokyoSkyTreeDay_1920x1080.jpg)
+
 #### 20260521 Tea terraces in Sichuan Province, China (© lzf/Shutterstock)
 
 ![](images/2026-05/20260521_SichuanTea_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260514 Löwenmännchen mit Jungtier (© JasonPrince/iStock/Getty Images)
 
 ![](images/2026-05/20260514_FathersDayItaly_1920x1080.jpg)
-
-#### 20260513 Arch and Milky Way, Alabama Hills, Sierra Nevada, California (© Tim Fitzharris/Minden Pictures)
-
-![](images/2026-05/20260513_AlabamaHills_1920x1080.jpg)
 
 
 
