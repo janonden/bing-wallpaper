@@ -1,4 +1,4 @@
-#### 20260521 四川省の茶畑, 中国 (© lzf/Shutterstock)
+#### 20260521 Tea terraces in Sichuan Province, China (© lzf/Shutterstock)
 
 ![](20260521_SichuanTea_1920x1080.jpg)
 
