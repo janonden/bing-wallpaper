@@ -1,8 +1,12 @@
+#### 20260523 Pont d'Arc, Ardèche, France (© Gael Fontaine/Getty Images)
+
+![](images/2026-05/20260523_PontArdeche_1920x1080.jpg)
+
 #### 20260522 東京スカイツリー, 東京 (© GoranQ/Getty Images)
 
 ![](images/2026-05/20260522_TokyoSkyTreeDay_1920x1080.jpg)
 
-#### 20260522 埃希环礁，土阿莫土群岛，法属波利尼西亚 (© WaterFrame_dpr/Alamy)
+#### 20260522 Kauehi Atoll, Tuamotu Archipelago, French Polynesia (© WaterFrame_dpr/Alamy)
 
 ![](images/2026-05/20260522_KauehiAtollLagoon_1920x1080.jpg)
 
@@ -53,10 +57,6 @@
 #### 20260515 A family of sperm whales, Indian Ocean (© Tony Wu/Nature Picture Library)
 
 ![](images/2026-05/20260515_EndangeredWhales_1920x1080.jpg)
-
-#### 20260514 Medieval town of Pitigliano, Tuscany, Italy (© bluejayphoto/Getty Images Plus)
-
-![](images/2026-05/20260514_Pitigliano_1920x1080.jpg)
 
 
 

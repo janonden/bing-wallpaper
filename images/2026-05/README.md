@@ -1,8 +1,12 @@
+#### 20260523 Pont d'Arc, Ardèche, France (© Gael Fontaine/Getty Images)
+
+![](20260523_PontArdeche_1920x1080.jpg)
+
 #### 20260522 東京スカイツリー, 東京 (© GoranQ/Getty Images)
 
 ![](20260522_TokyoSkyTreeDay_1920x1080.jpg)
 
-#### 20260522 埃希环礁，土阿莫土群岛，法属波利尼西亚 (© WaterFrame_dpr/Alamy)
+#### 20260522 Kauehi Atoll, Tuamotu Archipelago, French Polynesia (© WaterFrame_dpr/Alamy)
 
 ![](20260522_KauehiAtollLagoon_1920x1080.jpg)
 
