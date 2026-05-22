@@ -1,3 +1,7 @@
+#### 20260523 与蝴蝶在一起的乌龟 (© Patrick Gallet/Getty Images)
+
+![](images/2026-05/20260523_ThreeTurtlesButterflies_1920x1080.jpg)
+
 #### 20260523 Pont d'Arc, Ardèche, France (© Gael Fontaine/Getty Images)
 
 ![](images/2026-05/20260523_PontArdeche_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260516 Forêt de bouleaux, Bourgogne (© Wenphotos/Alamy)
 
 ![](images/2026-05/20260516_BirchForest_1920x1080.jpg)
-
-#### 20260515 A family of sperm whales, Indian Ocean (© Tony Wu/Nature Picture Library)
-
-![](images/2026-05/20260515_EndangeredWhales_1920x1080.jpg)
 
 
 
