@@ -1,4 +1,4 @@
-#### 20260523 与蝴蝶在一起的乌龟 (© Patrick Gallet/Getty Images)
+#### 20260523 Turtles with butterflies (© Patrick Gallet/Getty Images)
 
 ![](images/2026-05/20260523_ThreeTurtlesButterflies_1920x1080.jpg)
 
