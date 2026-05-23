@@ -1,3 +1,7 @@
+#### 20260524 三峰自然公园，南蒂罗尔，意大利 (© Adisorn Fineday Chutikunakorn/Getty Images)
+
+![](images/2026-05/20260524_DolomitesPark_1920x1080.jpg)
+
 #### 20260523 Turtles with butterflies (© Patrick Gallet/Getty Images)
 
 ![](images/2026-05/20260523_ThreeTurtlesButterflies_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260516 Argus‑Bläuling auf einer Blüte (© Remus86/Getty Images)
 
 ![](images/2026-05/20260516_ButterflyFlower_1920x1080.jpg)
-
-#### 20260516 Forêt de bouleaux, Bourgogne (© Wenphotos/Alamy)
-
-![](images/2026-05/20260516_BirchForest_1920x1080.jpg)
 
 
 
