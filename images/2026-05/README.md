@@ -1,4 +1,8 @@
-#### 20260524 三峰自然公园，南蒂罗尔，意大利 (© Adisorn Fineday Chutikunakorn/Getty Images)
+#### 20260524 A mute swan reflected on tranquil waters (© Don White/Getty Images)
+
+![](20260524_MuteSwanGI_1920x1080.jpg)
+
+#### 20260524 Tre Cime Nature Park, South Tyrol, Italy (© Adisorn Fineday Chutikunakorn/Getty Images)
 
 ![](20260524_DolomitesPark_1920x1080.jpg)
 
