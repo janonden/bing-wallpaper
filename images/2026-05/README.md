@@ -1,3 +1,11 @@
+#### 20260525 トゥール・マウル灯台, ウェールズ (© Lukas Bischoff/Getty Images)
+
+![](20260525_TwrMawrLighthouse_1920x1080.jpg)
+
+#### 20260525 从风之宫殿俯瞰斋浦尔市景，拉贾斯坦邦，印度 (© byheaven/Getty Images)
+
+![](20260525_HawaMahal_1920x1080.jpg)
+
 #### 20260524 A mute swan reflected on tranquil waters (© Don White/Getty Images)
 
 ![](20260524_MuteSwanGI_1920x1080.jpg)

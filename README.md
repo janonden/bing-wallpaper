@@ -1,3 +1,11 @@
+#### 20260525 トゥール・マウル灯台, ウェールズ (© Lukas Bischoff/Getty Images)
+
+![](images/2026-05/20260525_TwrMawrLighthouse_1920x1080.jpg)
+
+#### 20260525 从风之宫殿俯瞰斋浦尔市景，拉贾斯坦邦，印度 (© byheaven/Getty Images)
+
+![](images/2026-05/20260525_HawaMahal_1920x1080.jpg)
+
 #### 20260524 A mute swan reflected on tranquil waters (© Don White/Getty Images)
 
 ![](images/2026-05/20260524_MuteSwanGI_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20260518 Chapeaux de paille dans les tribunes de Roland-Garros, Paris (© Horacio Villalobos/Corbis)
 
 ![](images/2026-05/20260518_HatsRolandGarros_1920x1080.jpg)
-
-#### 20260517 Hawksbill Mountain in Shenandoah National Park, Virginia (© John Baggaley/Getty Images)
-
-![](images/2026-05/20260517_ShenandoahSunset_1920x1080.jpg)
-
-#### 20260516 Smith Rock State Park, Oregon (© Alex Ratson/Getty Images)
-
-![](images/2026-05/20260516_SmithRockPark_1920x1080.jpg)
 
 
 
