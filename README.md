@@ -1,3 +1,7 @@
+#### 20260526 盛开的羽扇豆，北加利福尼亚州，美国 (© Jeffrey Lewis/Tandem Stills + Motion)
+
+![](images/2026-05/20260526_LupineBloom_1920x1080.jpg)
+
 #### 20260525 トゥール・マウル灯台, ウェールズ (© Lukas Bischoff/Getty Images)
 
 ![](images/2026-05/20260525_TwrMawrLighthouse_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260519 Dolbadarn Castle, Llanberis, Wales (© Allan Hartley/Alamy)
 
 ![](images/2026-05/20260519_NPFortnight_1920x1080.jpg)
-
-#### 20260518 Natural History Museum, London, England (© Colm Keating/Tandem Stills + Motion)
-
-![](images/2026-05/20260518_MuseumLondon_1920x1080.jpg)
 
 
 
