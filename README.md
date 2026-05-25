@@ -2,6 +2,10 @@
 
 ![](images/2026-05/20260525_TwrMawrLighthouse_1920x1080.jpg)
 
+#### 20260525 Die Hexenlochmühle im Schwarzwald bei Furtwangen, Baden‑Württemberg (© Conny Pokorny/Shutterstock)
+
+![](images/2026-05/20260525_HexenlochMill_1920x1080.jpg)
+
 #### 20260525 从风之宫殿俯瞰斋浦尔市景，拉贾斯坦邦，印度 (© byheaven/Getty Images)
 
 ![](images/2026-05/20260525_HawaMahal_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260518 国立科学博物館, 東京 (© cowardlion/Shutterstock)
 
 ![](images/2026-05/20260518_MuseumDay_1920x1080.jpg)
-
-#### 20260518 Chapeaux de paille dans les tribunes de Roland-Garros, Paris (© Horacio Villalobos/Corbis)
-
-![](images/2026-05/20260518_HatsRolandGarros_1920x1080.jpg)
 
 
 
