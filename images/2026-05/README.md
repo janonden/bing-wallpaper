@@ -10,6 +10,10 @@
 
 ![](20260525_HawaMahal_1920x1080.jpg)
 
+#### 20260525 Memorial Amphitheater at Arlington National Cemetery, Arlington, Virginia (© idesignimages/Getty Images)
+
+![](20260525_ArlingtonAmphitheater_1920x1080.jpg)
+
 #### 20260524 A mute swan reflected on tranquil waters (© Don White/Getty Images)
 
 ![](20260524_MuteSwanGI_1920x1080.jpg)

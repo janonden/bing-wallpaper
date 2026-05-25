@@ -10,6 +10,10 @@
 
 ![](images/2026-05/20260525_HawaMahal_1920x1080.jpg)
 
+#### 20260525 Memorial Amphitheater at Arlington National Cemetery, Arlington, Virginia (© idesignimages/Getty Images)
+
+![](images/2026-05/20260525_ArlingtonAmphitheater_1920x1080.jpg)
+
 #### 20260524 A mute swan reflected on tranquil waters (© Don White/Getty Images)
 
 ![](images/2026-05/20260524_MuteSwanGI_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260518 Natural History Museum, London, England (© Colm Keating/Tandem Stills + Motion)
 
 ![](images/2026-05/20260518_MuseumLondon_1920x1080.jpg)
-
-#### 20260518 国立科学博物館, 東京 (© cowardlion/Shutterstock)
-
-![](images/2026-05/20260518_MuseumDay_1920x1080.jpg)
 
 
 
