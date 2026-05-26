@@ -1,3 +1,7 @@
+#### 20260527 ラッコ, 米国 アラスカ州 (© roclwyr/Getty Images)
+
+![](images/2026-05/20260527_OtterDay_1920x1080.jpg)
+
 #### 20260526 Lupine flowers in bloom, Northern California (© Jeffrey Lewis/Tandem Stills + Motion)
 
 ![](images/2026-05/20260526_LupineBloom_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260519 Formentor Lighthouse, Mallorca, Balearic Islands, Spain (© Allard Schager/Getty Images)
 
 ![](images/2026-05/20260519_SpainLighthouse_1920x1080.jpg)
-
-#### 20260519 Dolbadarn Castle, Llanberis, Wales (© Allan Hartley/Alamy)
-
-![](images/2026-05/20260519_NPFortnight_1920x1080.jpg)
 
 
 

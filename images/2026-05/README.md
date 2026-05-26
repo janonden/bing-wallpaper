@@ -1,3 +1,7 @@
+#### 20260527 ラッコ, 米国 アラスカ州 (© roclwyr/Getty Images)
+
+![](20260527_OtterDay_1920x1080.jpg)
+
 #### 20260526 Lupine flowers in bloom, Northern California (© Jeffrey Lewis/Tandem Stills + Motion)
 
 ![](20260526_LupineBloom_1920x1080.jpg)
