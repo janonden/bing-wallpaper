@@ -1,4 +1,4 @@
-#### 20260527 ラッコ, 米国 アラスカ州 (© roclwyr/Getty Images)
+#### 20260527 Sea otter, Kachemak Bay, Homer, Alaska (© roclwyr/Getty Images)
 
 ![](20260527_OtterDay_1920x1080.jpg)
 
