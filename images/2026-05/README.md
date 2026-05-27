@@ -1,3 +1,7 @@
+#### 20260528 スウォンファソン, 韓国 水原市 (© aomam/Getty Images)
+
+![](20260528_HwaesongFortress_1920x1080.jpg)
+
 #### 20260527 Sea otter, Kachemak Bay, Homer, Alaska (© roclwyr/Getty Images)
 
 ![](20260527_OtterDay_1920x1080.jpg)

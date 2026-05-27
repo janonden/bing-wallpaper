@@ -1,3 +1,7 @@
+#### 20260528 スウォンファソン, 韓国 水原市 (© aomam/Getty Images)
+
+![](images/2026-05/20260528_HwaesongFortress_1920x1080.jpg)
+
 #### 20260527 Sea otter, Kachemak Bay, Homer, Alaska (© roclwyr/Getty Images)
 
 ![](images/2026-05/20260527_OtterDay_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260520 Bumble bee pollinating, Worcester, England (© SimonEastwood87/Shutterstock)
 
 ![](images/2026-05/20260520_BumbleBee_1920x1080.jpg)
-
-#### 20260519 Formentor Lighthouse, Mallorca, Balearic Islands, Spain (© Allard Schager/Getty Images)
-
-![](images/2026-05/20260519_SpainLighthouse_1920x1080.jpg)
 
 
 
