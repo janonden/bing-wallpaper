@@ -1,4 +1,4 @@
-#### 20260528 スウォンファソン, 韓国 水原市 (© aomam/Getty Images)
+#### 20260528 Old city wall of Hwaseong Fortress, Suwon, South Korea (© aomam/Getty Images)
 
 ![](20260528_HwaesongFortress_1920x1080.jpg)
 
