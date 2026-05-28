@@ -1,3 +1,7 @@
+#### 20260529 珠穆朗玛峰峰顶，萨加玛塔国家公园，尼泊尔 (© fotoVoyager/Getty Images)
+
+![](images/2026-05/20260529_SummitEverest_1920x1080.jpg)
+
 #### 20260528 Old city wall of Hwaseong Fortress, Suwon, South Korea (© aomam/Getty Images)
 
 ![](images/2026-05/20260528_HwaesongFortress_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260521 Tea terraces in Sichuan Province, China (© lzf/Shutterstock)
 
 ![](images/2026-05/20260521_SichuanTea_1920x1080.jpg)
-
-#### 20260520 Bumble bee pollinating, Worcester, England (© SimonEastwood87/Shutterstock)
-
-![](images/2026-05/20260520_BumbleBee_1920x1080.jpg)
 
 
 
