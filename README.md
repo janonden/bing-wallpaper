@@ -1,4 +1,4 @@
-#### 20260529 珠穆朗玛峰峰顶，萨加玛塔国家公园，尼泊尔 (© fotoVoyager/Getty Images)
+#### 20260529 Mount Everest summit, Sagarmatha National Park, Nepal (© fotoVoyager/Getty Images)
 
 ![](images/2026-05/20260529_SummitEverest_1920x1080.jpg)
 
