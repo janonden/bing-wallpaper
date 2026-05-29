@@ -1,3 +1,7 @@
+#### 20260530 サバンナシマウマの子馬, ナミビア (© Sharon Heald/Nature Picture Library)
+
+![](20260530_EquusQuagga_1920x1080.jpg)
+
 #### 20260529 Mount Everest summit, Sagarmatha National Park, Nepal (© fotoVoyager/Getty Images)
 
 ![](20260529_SummitEverest_1920x1080.jpg)

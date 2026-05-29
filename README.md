@@ -1,3 +1,7 @@
+#### 20260530 サバンナシマウマの子馬, ナミビア (© Sharon Heald/Nature Picture Library)
+
+![](images/2026-05/20260530_EquusQuagga_1920x1080.jpg)
+
 #### 20260529 Mount Everest summit, Sagarmatha National Park, Nepal (© fotoVoyager/Getty Images)
 
 ![](images/2026-05/20260529_SummitEverest_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260522 Kauehi Atoll, Tuamotu Archipelago, French Polynesia (© WaterFrame_dpr/Alamy)
 
 ![](images/2026-05/20260522_KauehiAtollLagoon_1920x1080.jpg)
-
-#### 20260521 Tea terraces in Sichuan Province, China (© lzf/Shutterstock)
-
-![](images/2026-05/20260521_SichuanTea_1920x1080.jpg)
 
 
 
