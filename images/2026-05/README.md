@@ -1,4 +1,4 @@
-#### 20260530 サバンナシマウマの子馬, ナミビア (© Sharon Heald/Nature Picture Library)
+#### 20260530 Plains zebra foal in Etosha National Park, Namibia (© Sharon Heald/Nature Picture Library)
 
 ![](20260530_EquusQuagga_1920x1080.jpg)
 
