@@ -6,7 +6,7 @@
 
 ![](images/2026-05/20260531_HumberRiverTrails_1920x1080.jpg)
 
-#### 20260531 大沼泽地国家公园航拍景观，佛罗里达州，美国 (© Tetra Images/Getty Images)
+#### 20260531 Aerial view of Everglades National Park, Florida (© Tetra Images/Getty Images)
 
 ![](images/2026-05/20260531_EvergladesWetlands_1920x1080.jpg)
 
