@@ -1,3 +1,11 @@
+#### 20260601 西タイジナール湖, 中国 (© Kaicheng Xu/Getty Images)
+
+![](images/2026-06/20260601_Qinghai_1920x1080.jpg)
+
+#### 20260601 巴勒莫暮色下的天际线，西西里岛，意大利 (© Sean Pavone/Getty Images)
+
+![](images/2026-06/20260601_OlivaPalermo_1920x1080.jpg)
+
 #### 20260531 Rapsfelder vor der Festung Königstein, Sächsische Schweiz, Sachsen (© Frank Bienewald/Getty Images)
 
 ![](images/2026-05/20260531_RapeseedField_1920x1080.jpg)
@@ -50,14 +58,6 @@
 
 ![](images/2026-05/20260525_ArlingtonAmphitheater_1920x1080.jpg)
 
-#### 20260524 A mute swan reflected on tranquil waters (© Don White/Getty Images)
-
-![](images/2026-05/20260524_MuteSwanGI_1920x1080.jpg)
-
-#### 20260524 Tre Cime Nature Park, South Tyrol, Italy (© Adisorn Fineday Chutikunakorn/Getty Images)
-
-![](images/2026-05/20260524_DolomitesPark_1920x1080.jpg)
-
 
 
 
@@ -66,7 +66,7 @@
 
 
 
-- 2026&emsp;&emsp;[05](images/2026-05/README.md) &emsp;&emsp;[04](images/2026-04/README.md) &emsp;&emsp;[03](images/2026-03/README.md) &emsp;&emsp;[02](images/2026-02/README.md) &emsp;&emsp;[01](images/2026-01/README.md) 
+- 2026&emsp;&emsp;[06](images/2026-06/README.md) &emsp;&emsp;[05](images/2026-05/README.md) &emsp;&emsp;[04](images/2026-04/README.md) &emsp;&emsp;[03](images/2026-03/README.md) &emsp;&emsp;[02](images/2026-02/README.md) &emsp;&emsp;[01](images/2026-01/README.md) 
 
 - 2025&emsp;&emsp;[12](https://github.com/janonden/bing-wallpaper/blob/2025/images/2025-12/README.md) &emsp;&emsp;[11](https://github.com/janonden/bing-wallpaper/blob/2025/images/2025-11/README.md) &emsp;&emsp;[10](https://github.com/janonden/bing-wallpaper/blob/2025/images/2025-10/README.md) &emsp;&emsp;[09](https://github.com/janonden/bing-wallpaper/blob/2025/images/2025-09/README.md) &emsp;&emsp;[08](https://github.com/janonden/bing-wallpaper/blob/2025/images/2025-08/README.md) &emsp;&emsp;[07](https://github.com/janonden/bing-wallpaper/blob/2025/images/2025-07/README.md) &emsp;&emsp;[06](https://github.com/janonden/bing-wallpaper/blob/2025/images/2025-06/README.md) &emsp;&emsp;[05](https://github.com/janonden/bing-wallpaper/blob/2025/images/2025-05/README.md) &emsp;&emsp;[04](https://github.com/janonden/bing-wallpaper/blob/2025/images/2025-04/README.md) &emsp;&emsp;[03](https://github.com/janonden/bing-wallpaper/blob/2025/images/2025-03/README.md) &emsp;&emsp;[02](https://github.com/janonden/bing-wallpaper/blob/2025/images/2025-02/README.md) &emsp;&emsp;[01](https://github.com/janonden/bing-wallpaper/blob/2025/images/2025-01/README.md) 
 
