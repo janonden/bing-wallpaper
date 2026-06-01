@@ -1,3 +1,7 @@
+#### 20260601 Rainbow flags at Rockefeller Center on June 28, 2020, New York City (© Noam Galai/Getty Images)
+
+![](images/2026-06/20260601_RockefellerPride_1920x1080.jpg)
+
 #### 20260601 西タイジナール湖, 中国 (© Kaicheng Xu/Getty Images)
 
 ![](images/2026-06/20260601_Qinghai_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260525 从风之宫殿俯瞰斋浦尔市景，拉贾斯坦邦，印度 (© byheaven/Getty Images)
 
 ![](images/2026-05/20260525_HawaMahal_1920x1080.jpg)
-
-#### 20260525 Memorial Amphitheater at Arlington National Cemetery, Arlington, Virginia (© idesignimages/Getty Images)
-
-![](images/2026-05/20260525_ArlingtonAmphitheater_1920x1080.jpg)
 
 
 

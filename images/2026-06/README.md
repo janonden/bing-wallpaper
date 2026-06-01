@@ -1,3 +1,7 @@
+#### 20260601 Rainbow flags at Rockefeller Center on June 28, 2020, New York City (© Noam Galai/Getty Images)
+
+![](20260601_RockefellerPride_1920x1080.jpg)
+
 #### 20260601 西タイジナール湖, 中国 (© Kaicheng Xu/Getty Images)
 
 ![](20260601_Qinghai_1920x1080.jpg)
