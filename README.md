@@ -1,3 +1,7 @@
+#### 20260602 みなとみらい 21 地区, 神奈川県 横浜市 (© simpletun/Shutterstock)
+
+![](images/2026-06/20260602_YokohamaPort_1920x1080.jpg)
+
 #### 20260601 Rainbow flags at Rockefeller Center on June 28, 2020, New York City (© Noam Galai/Getty Images)
 
 ![](images/2026-06/20260601_RockefellerPride_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260525 Die Hexenlochmühle im Schwarzwald bei Furtwangen, Baden‑Württemberg (© Conny Pokorny/Shutterstock)
 
 ![](images/2026-05/20260525_HexenlochMill_1920x1080.jpg)
-
-#### 20260525 从风之宫殿俯瞰斋浦尔市景，拉贾斯坦邦，印度 (© byheaven/Getty Images)
-
-![](images/2026-05/20260525_HawaMahal_1920x1080.jpg)
 
 
 
