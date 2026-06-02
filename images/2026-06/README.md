@@ -6,7 +6,7 @@
 
 ![](20260601_RockefellerPride_1920x1080.jpg)
 
-#### 20260601 西タイジナール湖, 中国 (© Kaicheng Xu/Getty Images)
+#### 20260601 Highway through Xitai Jinaier Lake, Qinghai Province, China (© Kaicheng Xu/Getty Images)
 
 ![](20260601_Qinghai_1920x1080.jpg)
 
