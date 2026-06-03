@@ -1,4 +1,4 @@
-#### 20260603 骑行者，巴德纳斯雷亚莱斯自然公园与生物圈保护区，纳瓦拉，西班牙 (© Artur Debat/Getty Images)
+#### 20260603 Cyclist in Bardenas Reales Natural Park and Biosphere Reserve, Navarra, Spain (© Artur Debat/Getty Images)
 
 ![](20260603_BardenasReales_1920x1080.jpg)
 
