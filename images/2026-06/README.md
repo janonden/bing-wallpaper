@@ -1,3 +1,7 @@
+#### 20260604 梳理羽毛的雪鹭，佛罗里达州中部，美国 (© Donald M. Jones/Minden Pictures)
+
+![](20260604_PreeningEgret_1920x1080.jpg)
+
 #### 20260603 Cyclist in Bardenas Reales Natural Park and Biosphere Reserve, Navarra, Spain (© Artur Debat/Getty Images)
 
 ![](20260603_BardenasReales_1920x1080.jpg)

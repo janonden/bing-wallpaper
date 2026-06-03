@@ -1,3 +1,7 @@
+#### 20260604 梳理羽毛的雪鹭，佛罗里达州中部，美国 (© Donald M. Jones/Minden Pictures)
+
+![](images/2026-06/20260604_PreeningEgret_1920x1080.jpg)
+
 #### 20260603 Cyclist in Bardenas Reales Natural Park and Biosphere Reserve, Navarra, Spain (© Artur Debat/Getty Images)
 
 ![](images/2026-06/20260603_BardenasReales_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260526 Lupine flowers in bloom, Northern California (© Jeffrey Lewis/Tandem Stills + Motion)
 
 ![](images/2026-05/20260526_LupineBloom_1920x1080.jpg)
-
-#### 20260525 トゥール・マウル灯台, ウェールズ (© Lukas Bischoff/Getty Images)
-
-![](images/2026-05/20260525_TwrMawrLighthouse_1920x1080.jpg)
 
 
 
