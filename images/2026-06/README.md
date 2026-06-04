@@ -1,4 +1,4 @@
-#### 20260604 梳理羽毛的雪鹭，佛罗里达州中部，美国 (© Donald M. Jones/Minden Pictures)
+#### 20260604 Snowy egret preening, central Florida, USA (© Donald M. Jones/Minden Pictures)
 
 ![](20260604_PreeningEgret_1920x1080.jpg)
 
