@@ -1,3 +1,7 @@
+#### 20260605 サーレク国立公園, スウェーデン (© Robert Haasmann/Getty Images)
+
+![](20260605_WedLapland_1920x1080.jpg)
+
 #### 20260604 Snowy egret preening, central Florida, USA (© Donald M. Jones/Minden Pictures)
 
 ![](20260604_PreeningEgret_1920x1080.jpg)

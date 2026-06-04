@@ -1,3 +1,7 @@
+#### 20260605 サーレク国立公園, スウェーデン (© Robert Haasmann/Getty Images)
+
+![](images/2026-06/20260605_WedLapland_1920x1080.jpg)
+
 #### 20260604 Snowy egret preening, central Florida, USA (© Donald M. Jones/Minden Pictures)
 
 ![](images/2026-06/20260604_PreeningEgret_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260527 Sea otter, Kachemak Bay, Homer, Alaska (© roclwyr/Getty Images)
 
 ![](images/2026-05/20260527_OtterDay_1920x1080.jpg)
-
-#### 20260526 Lupine flowers in bloom, Northern California (© Jeffrey Lewis/Tandem Stills + Motion)
-
-![](images/2026-05/20260526_LupineBloom_1920x1080.jpg)
 
 
 
