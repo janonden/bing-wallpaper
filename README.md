@@ -1,4 +1,4 @@
-#### 20260605 サーレク国立公園, スウェーデン (© Robert Haasmann/Getty Images)
+#### 20260605 View from Skierffe Mountain over the Rapadalen river delta, Sarek National Park, Laponia, Lapland, Sweden (© Robert Haasmann/Getty Images)
 
 ![](images/2026-06/20260605_WedLapland_1920x1080.jpg)
 
