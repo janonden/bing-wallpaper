@@ -1,3 +1,7 @@
+#### 20260606 纳奇兹小径公园大道, 图珀洛, 密西西比州, 美国 (© The best photo is earned/Getty Images Plus)
+
+![](images/2026-06/20260606_HikingNatchez_1920x1080.jpg)
+
 #### 20260605 View from Skierffe Mountain over the Rapadalen river delta, Sarek National Park, Laponia, Lapland, Sweden (© Robert Haasmann/Getty Images)
 
 ![](images/2026-06/20260605_WedLapland_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260528 Old city wall of Hwaseong Fortress, Suwon, South Korea (© aomam/Getty Images)
 
 ![](images/2026-05/20260528_HwaesongFortress_1920x1080.jpg)
-
-#### 20260527 Sea otter, Kachemak Bay, Homer, Alaska (© roclwyr/Getty Images)
-
-![](images/2026-05/20260527_OtterDay_1920x1080.jpg)
 
 
 
