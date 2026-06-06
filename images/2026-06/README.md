@@ -1,3 +1,11 @@
+#### 20260607 プラヤ・ダ・ウルサ, ポルトガル (© Theo Bosboom/Nature Picture Library)
+
+![](20260607_Limpets_1920x1080.jpg)
+
+#### 20260607 邓塞弗里克城堡遗址, 安特里姆郡, 北爱尔兰 (© Krzysztof Rogalski/Getty Images)
+
+![](20260607_DunseverickCastle_1920x1080.jpg)
+
 #### 20260606 Plönlein mit Siebersturm und Kobolzeller Tor, Rothenburg ob der Tauber, Bayern (© Harald Nachtmann/Getty Images)
 
 ![](20260606_RothenburgPloenlein_1920x1080.jpg)
