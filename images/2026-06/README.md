@@ -1,6 +1,14 @@
+#### 20260606 Plönlein mit Siebersturm und Kobolzeller Tor, Rothenburg ob der Tauber, Bayern (© Harald Nachtmann/Getty Images)
+
+![](20260606_RothenburgPloenlein_1920x1080.jpg)
+
 #### 20260606 纳奇兹小径公园大道, 图珀洛, 密西西比州, 美国 (© The best photo is earned/Getty Images Plus)
 
 ![](20260606_HikingNatchez_1920x1080.jpg)
+
+#### 20260606 Méduse crinière de lion (© Alexander Semenov Images/Shutterstock)
+
+![](20260606_Cyanea_1920x1080.jpg)
 
 #### 20260605 View from Skierffe Mountain over the Rapadalen river delta, Sarek National Park, Laponia, Lapland, Sweden (© Robert Haasmann/Getty Images)
 

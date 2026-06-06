@@ -1,6 +1,14 @@
+#### 20260606 Plönlein mit Siebersturm und Kobolzeller Tor, Rothenburg ob der Tauber, Bayern (© Harald Nachtmann/Getty Images)
+
+![](images/2026-06/20260606_RothenburgPloenlein_1920x1080.jpg)
+
 #### 20260606 纳奇兹小径公园大道, 图珀洛, 密西西比州, 美国 (© The best photo is earned/Getty Images Plus)
 
 ![](images/2026-06/20260606_HikingNatchez_1920x1080.jpg)
+
+#### 20260606 Méduse crinière de lion (© Alexander Semenov Images/Shutterstock)
+
+![](images/2026-06/20260606_Cyanea_1920x1080.jpg)
 
 #### 20260605 View from Skierffe Mountain over the Rapadalen river delta, Sarek National Park, Laponia, Lapland, Sweden (© Robert Haasmann/Getty Images)
 
@@ -49,14 +57,6 @@
 #### 20260530 Plains zebra foal in Etosha National Park, Namibia (© Sharon Heald/Nature Picture Library)
 
 ![](images/2026-05/20260530_EquusQuagga_1920x1080.jpg)
-
-#### 20260529 Mount Everest summit, Sagarmatha National Park, Nepal (© fotoVoyager/Getty Images)
-
-![](images/2026-05/20260529_SummitEverest_1920x1080.jpg)
-
-#### 20260528 Old city wall of Hwaseong Fortress, Suwon, South Korea (© aomam/Getty Images)
-
-![](images/2026-05/20260528_HwaesongFortress_1920x1080.jpg)
 
 
 
