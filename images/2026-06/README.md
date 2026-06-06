@@ -2,7 +2,7 @@
 
 ![](20260606_RothenburgPloenlein_1920x1080.jpg)
 
-#### 20260606 纳奇兹小径公园大道, 图珀洛, 密西西比州, 美国 (© The best photo is earned/Getty Images Plus)
+#### 20260606 Natchez Trace Parkway, Tupelo, Mississippi, USA (© The best photo is earned/Getty Images Plus)
 
 ![](20260606_HikingNatchez_1920x1080.jpg)
 
