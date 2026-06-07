@@ -2,6 +2,10 @@
 
 ![](20260607_Limpets_1920x1080.jpg)
 
+#### 20260607 Atlanta Botanical Garden, Atlanta, Georgia (© Marcus E Jones/Shutterstock)
+
+![](20260607_GardenAtlanta_1920x1080.jpg)
+
 #### 20260607 邓塞弗里克城堡遗址, 安特里姆郡, 北爱尔兰 (© Krzysztof Rogalski/Getty Images)
 
 ![](20260607_DunseverickCastle_1920x1080.jpg)

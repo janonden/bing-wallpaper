@@ -2,6 +2,10 @@
 
 ![](images/2026-06/20260607_Limpets_1920x1080.jpg)
 
+#### 20260607 Atlanta Botanical Garden, Atlanta, Georgia (© Marcus E Jones/Shutterstock)
+
+![](images/2026-06/20260607_GardenAtlanta_1920x1080.jpg)
+
 #### 20260607 邓塞弗里克城堡遗址, 安特里姆郡, 北爱尔兰 (© Krzysztof Rogalski/Getty Images)
 
 ![](images/2026-06/20260607_DunseverickCastle_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260531 Humber River winding through Boyd Conservation Area, Woodbridge, Vaughan, Ontario (© jimfeng/Getty Images)
 
 ![](images/2026-05/20260531_HumberRiverTrails_1920x1080.jpg)
-
-#### 20260531 Aerial view of Everglades National Park, Florida (© Tetra Images/Getty Images)
-
-![](images/2026-05/20260531_EvergladesWetlands_1920x1080.jpg)
 
 
 
