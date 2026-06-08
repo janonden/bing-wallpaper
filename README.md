@@ -22,7 +22,7 @@
 
 ![](images/2026-06/20260606_HikingNatchez_1920x1080.jpg)
 
-#### 20260606 Méduse crinière de lion (© Alexander Semenov Images/Shutterstock)
+#### 20260606 Lion's mane jellyfish swimming in the ocean (© Alexander Semenov Images/Shutterstock)
 
 ![](images/2026-06/20260606_Cyanea_1920x1080.jpg)
 
