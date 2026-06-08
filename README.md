@@ -1,3 +1,7 @@
+#### 20260609 韦尔纳扎, 五渔村, 利古里亚, 意大利 (© Kelly Cheng/Getty Images)
+
+![](images/2026-06/20260609_CTNPVernazza_1920x1080.jpg)
+
 #### 20260608 Le Panthéon de nuit, Paris (© Don White/Getty Images)
 
 ![](images/2026-06/20260608_PantheonParisNight_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260601 巴勒莫暮色下的天际线，西西里岛，意大利 (© Sean Pavone/Getty Images)
 
 ![](images/2026-06/20260601_OlivaPalermo_1920x1080.jpg)
-
-#### 20260531 Rapsfelder vor der Festung Königstein, Sächsische Schweiz, Sachsen (© Frank Bienewald/Getty Images)
-
-![](images/2026-05/20260531_RapeseedField_1920x1080.jpg)
 
 
 
