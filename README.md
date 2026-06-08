@@ -1,3 +1,7 @@
+#### 20260608 Le Panthéon de nuit, Paris (© Don White/Getty Images)
+
+![](images/2026-06/20260608_PantheonParisNight_1920x1080.jpg)
+
 #### 20260607 プラヤ・ダ・ウルサ, ポルトガル (© Theo Bosboom/Nature Picture Library)
 
 ![](images/2026-06/20260607_Limpets_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260531 Rapsfelder vor der Festung Königstein, Sächsische Schweiz, Sachsen (© Frank Bienewald/Getty Images)
 
 ![](images/2026-05/20260531_RapeseedField_1920x1080.jpg)
-
-#### 20260531 Humber River winding through Boyd Conservation Area, Woodbridge, Vaughan, Ontario (© jimfeng/Getty Images)
-
-![](images/2026-05/20260531_HumberRiverTrails_1920x1080.jpg)
 
 
 
