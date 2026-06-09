@@ -1,4 +1,4 @@
-#### 20260609 韦尔纳扎, 五渔村, 利古里亚, 意大利 (© Kelly Cheng/Getty Images)
+#### 20260609 Vernazza, Cinque Terre, Liguria, Italy (© Kelly Cheng/Getty Images)
 
 ![](20260609_CTNPVernazza_1920x1080.jpg)
 
