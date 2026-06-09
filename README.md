@@ -1,3 +1,7 @@
+#### 20260610 赫瑙萨波鲁尔火山口, 菲亚拉巴克自然保护区, 兰德曼纳劳加尔, 冰岛 (© Juan Maria Coy Vergara/Getty Images)
+
+![](images/2026-06/20260610_Hnausapollur_1920x1080.jpg)
+
 #### 20260609 Vernazza, Cinque Terre, Liguria, Italy (© Kelly Cheng/Getty Images)
 
 ![](images/2026-06/20260609_CTNPVernazza_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260601 Highway through Xitai Jinaier Lake, Qinghai Province, China (© Kaicheng Xu/Getty Images)
 
 ![](images/2026-06/20260601_Qinghai_1920x1080.jpg)
-
-#### 20260601 巴勒莫暮色下的天际线，西西里岛，意大利 (© Sean Pavone/Getty Images)
-
-![](images/2026-06/20260601_OlivaPalermo_1920x1080.jpg)
 
 
 

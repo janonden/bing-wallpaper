@@ -1,3 +1,7 @@
+#### 20260610 赫瑙萨波鲁尔火山口, 菲亚拉巴克自然保护区, 兰德曼纳劳加尔, 冰岛 (© Juan Maria Coy Vergara/Getty Images)
+
+![](20260610_Hnausapollur_1920x1080.jpg)
+
 #### 20260609 Vernazza, Cinque Terre, Liguria, Italy (© Kelly Cheng/Getty Images)
 
 ![](20260609_CTNPVernazza_1920x1080.jpg)
