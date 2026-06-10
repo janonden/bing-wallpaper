@@ -1,3 +1,7 @@
+#### 20260611 蛍の光がきらめく森, 日本 (© tdub303/Getty Images)
+
+![](20260611_FireflySeason_1920x1080.jpg)
+
 #### 20260610 Hnausapollur volcanic crater lake, Fjallabak Nature Reserve, Landmannalaugar, Iceland (© Juan Maria Coy Vergara/Getty Images)
 
 ![](20260610_Hnausapollur_1920x1080.jpg)

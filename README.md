@@ -1,3 +1,7 @@
+#### 20260611 蛍の光がきらめく森, 日本 (© tdub303/Getty Images)
+
+![](images/2026-06/20260611_FireflySeason_1920x1080.jpg)
+
 #### 20260610 Hnausapollur volcanic crater lake, Fjallabak Nature Reserve, Landmannalaugar, Iceland (© Juan Maria Coy Vergara/Getty Images)
 
 ![](images/2026-06/20260610_Hnausapollur_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260601 Rainbow flags at Rockefeller Center on June 28, 2020, New York City (© Noam Galai/Getty Images)
 
 ![](images/2026-06/20260601_RockefellerPride_1920x1080.jpg)
-
-#### 20260601 Highway through Xitai Jinaier Lake, Qinghai Province, China (© Kaicheng Xu/Getty Images)
-
-![](images/2026-06/20260601_Qinghai_1920x1080.jpg)
 
 
 
