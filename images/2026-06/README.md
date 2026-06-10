@@ -1,4 +1,4 @@
-#### 20260610 赫瑙萨波鲁尔火山口, 菲亚拉巴克自然保护区, 兰德曼纳劳加尔, 冰岛 (© Juan Maria Coy Vergara/Getty Images)
+#### 20260610 Hnausapollur volcanic crater lake, Fjallabak Nature Reserve, Landmannalaugar, Iceland (© Juan Maria Coy Vergara/Getty Images)
 
 ![](20260610_Hnausapollur_1920x1080.jpg)
 
