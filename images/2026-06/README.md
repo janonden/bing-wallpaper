@@ -14,7 +14,7 @@
 
 ![](20260608_PantheonParisNight_1920x1080.jpg)
 
-#### 20260607 プラヤ・ダ・ウルサ, ポルトガル (© Theo Bosboom/Nature Picture Library)
+#### 20260607 Limpets exposed at low tide on the coast of Praia da Ursa, Portugal (© Theo Bosboom/Nature Picture Library)
 
 ![](20260607_Limpets_1920x1080.jpg)
 
