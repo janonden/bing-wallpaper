@@ -1,3 +1,7 @@
+#### 20260612 黄喉蜂虎，格拉萨莱马山自然公园，加的斯，西班牙 (© Andres M. Dominguez/Nature Picture Library)
+
+![](images/2026-06/20260612_SpainBeeEater_1920x1080.jpg)
+
 #### 20260611 蛍の光がきらめく森, 日本 (© tdub303/Getty Images)
 
 ![](images/2026-06/20260611_FireflySeason_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260602 みなとみらい 21 地区, 神奈川県 横浜市 (© simpletun/Shutterstock)
 
 ![](images/2026-06/20260602_YokohamaPort_1920x1080.jpg)
-
-#### 20260601 Rainbow flags at Rockefeller Center on June 28, 2020, New York City (© Noam Galai/Getty Images)
-
-![](images/2026-06/20260601_RockefellerPride_1920x1080.jpg)
 
 
 
