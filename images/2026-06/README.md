@@ -1,4 +1,4 @@
-#### 20260612 黄喉蜂虎，格拉萨莱马山自然公园，加的斯，西班牙 (© Andres M. Dominguez/Nature Picture Library)
+#### 20260612 European bee-eater, Sierra de Grazalema Natural Park, Cádiz, Spain (© Andres M. Dominguez/Nature Picture Library)
 
 ![](20260612_SpainBeeEater_1920x1080.jpg)
 
