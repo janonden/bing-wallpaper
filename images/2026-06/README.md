@@ -1,3 +1,7 @@
+#### 20260613 はやぶさ 2 から切り離されたカプセル (© MORGAN SETTE/Getty Images)
+
+![](20260613_HayabusaDay_1920x1080.jpg)
+
 #### 20260612 European bee-eater, Sierra de Grazalema Natural Park, Cádiz, Spain (© Andres M. Dominguez/Nature Picture Library)
 
 ![](20260612_SpainBeeEater_1920x1080.jpg)

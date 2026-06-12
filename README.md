@@ -1,3 +1,7 @@
+#### 20260613 はやぶさ 2 から切り離されたカプセル (© MORGAN SETTE/Getty Images)
+
+![](images/2026-06/20260613_HayabusaDay_1920x1080.jpg)
+
 #### 20260612 European bee-eater, Sierra de Grazalema Natural Park, Cádiz, Spain (© Andres M. Dominguez/Nature Picture Library)
 
 ![](images/2026-06/20260612_SpainBeeEater_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260603 Cyclist in Bardenas Reales Natural Park and Biosphere Reserve, Navarra, Spain (© Artur Debat/Getty Images)
 
 ![](images/2026-06/20260603_BardenasReales_1920x1080.jpg)
-
-#### 20260602 みなとみらい 21 地区, 神奈川県 横浜市 (© simpletun/Shutterstock)
-
-![](images/2026-06/20260602_YokohamaPort_1920x1080.jpg)
 
 
 
