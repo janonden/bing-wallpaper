@@ -2,6 +2,10 @@
 
 ![](20260613_HayabusaDay_1920x1080.jpg)
 
+#### 20260613 落日，恶地国家公园，南达科他州，美国 (© Troy Harrison/Getty Images)
+
+![](20260613_BadSunset_1920x1080.jpg)
+
 #### 20260612 European bee-eater, Sierra de Grazalema Natural Park, Cádiz, Spain (© Andres M. Dominguez/Nature Picture Library)
 
 ![](20260612_SpainBeeEater_1920x1080.jpg)
