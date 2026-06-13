@@ -1,3 +1,7 @@
+#### 20260614 绿头鸭 (© Philippe Paternolli/Getty Images)
+
+![](20260614_DuckPond_1920x1080.jpg)
+
 #### 20260613 はやぶさ 2 から切り離されたカプセル (© MORGAN SETTE/Getty Images)
 
 ![](20260613_HayabusaDay_1920x1080.jpg)

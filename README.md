@@ -1,3 +1,7 @@
+#### 20260614 绿头鸭 (© Philippe Paternolli/Getty Images)
+
+![](images/2026-06/20260614_DuckPond_1920x1080.jpg)
+
 #### 20260613 はやぶさ 2 から切り離されたカプセル (© MORGAN SETTE/Getty Images)
 
 ![](images/2026-06/20260613_HayabusaDay_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260605 View from Skierffe Mountain over the Rapadalen river delta, Sarek National Park, Laponia, Lapland, Sweden (© Robert Haasmann/Getty Images)
 
 ![](images/2026-06/20260605_WedLapland_1920x1080.jpg)
-
-#### 20260604 Snowy egret preening, central Florida, USA (© Donald M. Jones/Minden Pictures)
-
-![](images/2026-06/20260604_PreeningEgret_1920x1080.jpg)
 
 
 
