@@ -1,3 +1,7 @@
+#### 20260615 大烟山国家公园，田纳西州，美国 (© Mint Images/Getty Images)
+
+![](images/2026-06/20260615_ParkEstd_1920x1080.jpg)
+
 #### 20260614 Blumengarten auf der Insel Mainau im Bodensee, Baden-Württemberg (© toriru/Shutterstock)
 
 ![](images/2026-06/20260614_MainauFlowers_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260606 Plönlein mit Siebersturm und Kobolzeller Tor, Rothenburg ob der Tauber, Bayern (© Harald Nachtmann/Getty Images)
 
 ![](images/2026-06/20260606_RothenburgPloenlein_1920x1080.jpg)
-
-#### 20260606 Natchez Trace Parkway, Tupelo, Mississippi, USA (© The best photo is earned/Getty Images Plus)
-
-![](images/2026-06/20260606_HikingNatchez_1920x1080.jpg)
 
 
 

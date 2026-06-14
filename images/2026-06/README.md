@@ -1,3 +1,7 @@
+#### 20260615 大烟山国家公园，田纳西州，美国 (© Mint Images/Getty Images)
+
+![](20260615_ParkEstd_1920x1080.jpg)
+
 #### 20260614 Blumengarten auf der Insel Mainau im Bodensee, Baden-Württemberg (© toriru/Shutterstock)
 
 ![](20260614_MainauFlowers_1920x1080.jpg)
