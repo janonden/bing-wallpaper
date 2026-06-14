@@ -1,3 +1,7 @@
+#### 20260614 Blumengarten auf der Insel Mainau im Bodensee, Baden-Württemberg (© toriru/Shutterstock)
+
+![](images/2026-06/20260614_MainauFlowers_1920x1080.jpg)
+
 #### 20260614 绿头鸭 (© Philippe Paternolli/Getty Images)
 
 ![](images/2026-06/20260614_DuckPond_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260606 Lion's mane jellyfish swimming in the ocean (© Alexander Semenov Images/Shutterstock)
 
 ![](images/2026-06/20260606_Cyanea_1920x1080.jpg)
-
-#### 20260605 View from Skierffe Mountain over the Rapadalen river delta, Sarek National Park, Laponia, Lapland, Sweden (© Robert Haasmann/Getty Images)
-
-![](images/2026-06/20260605_WedLapland_1920x1080.jpg)
 
 
 

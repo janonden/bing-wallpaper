@@ -1,3 +1,7 @@
+#### 20260614 Blumengarten auf der Insel Mainau im Bodensee, Baden-Württemberg (© toriru/Shutterstock)
+
+![](20260614_MainauFlowers_1920x1080.jpg)
+
 #### 20260614 绿头鸭 (© Philippe Paternolli/Getty Images)
 
 ![](20260614_DuckPond_1920x1080.jpg)
