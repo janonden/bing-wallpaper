@@ -2,6 +2,10 @@
 
 ![](images/2026-06/20260614_MainauFlowers_1920x1080.jpg)
 
+#### 20260614 US flags surrounding the Washington Monument, Washington, DC  (© Orhan Cam/Shutterstock)
+
+![](images/2026-06/20260614_FlagsMonument_1920x1080.jpg)
+
 #### 20260614 绿头鸭 (© Philippe Paternolli/Getty Images)
 
 ![](images/2026-06/20260614_DuckPond_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260606 Natchez Trace Parkway, Tupelo, Mississippi, USA (© The best photo is earned/Getty Images Plus)
 
 ![](images/2026-06/20260606_HikingNatchez_1920x1080.jpg)
-
-#### 20260606 Lion's mane jellyfish swimming in the ocean (© Alexander Semenov Images/Shutterstock)
-
-![](images/2026-06/20260606_Cyanea_1920x1080.jpg)
 
 
 
