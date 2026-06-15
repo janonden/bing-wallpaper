@@ -1,3 +1,7 @@
+#### 20260616 七英里海滩附近的玳瑁海龟伴侣，大开曼岛，开曼群岛 (© Alex Mustard/Nature Picture Library)
+
+![](images/2026-06/20260616_SevenMileTurtle_1920x1080.jpg)
+
 #### 20260615 Great Smoky Mountains National Park, Tennessee (© Mint Images/Getty Images)
 
 ![](images/2026-06/20260615_ParkEstd_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260607 邓塞弗里克城堡遗址, 安特里姆郡, 北爱尔兰 (© Krzysztof Rogalski/Getty Images)
 
 ![](images/2026-06/20260607_DunseverickCastle_1920x1080.jpg)
-
-#### 20260606 Plönlein mit Siebersturm und Kobolzeller Tor, Rothenburg ob der Tauber, Bayern (© Harald Nachtmann/Getty Images)
-
-![](images/2026-06/20260606_RothenburgPloenlein_1920x1080.jpg)
 
 
 

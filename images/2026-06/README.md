@@ -1,3 +1,7 @@
+#### 20260616 七英里海滩附近的玳瑁海龟伴侣，大开曼岛，开曼群岛 (© Alex Mustard/Nature Picture Library)
+
+![](20260616_SevenMileTurtle_1920x1080.jpg)
+
 #### 20260615 Great Smoky Mountains National Park, Tennessee (© Mint Images/Getty Images)
 
 ![](20260615_ParkEstd_1920x1080.jpg)
