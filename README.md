@@ -1,4 +1,4 @@
-#### 20260615 大烟山国家公园，田纳西州，美国 (© Mint Images/Getty Images)
+#### 20260615 Great Smoky Mountains National Park, Tennessee (© Mint Images/Getty Images)
 
 ![](images/2026-06/20260615_ParkEstd_1920x1080.jpg)
 
