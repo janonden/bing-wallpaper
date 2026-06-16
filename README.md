@@ -1,3 +1,7 @@
+#### 20260617 特雷莫拉公路在圣哥达山口，艾罗洛，瑞士 (© Sandro Bisaro/Getty Images)
+
+![](images/2026-06/20260617_TremolaRoad_1920x1080.jpg)
+
 #### 20260616 Hawksbill sea turtle pair near Seven Mile Beach, Grand Cayman, Cayman Islands (© Alex Mustard/Nature Picture Library)
 
 ![](images/2026-06/20260616_SevenMileTurtle_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260607 Atlanta Botanical Garden, Atlanta, Georgia (© Marcus E Jones/Shutterstock)
 
 ![](images/2026-06/20260607_GardenAtlanta_1920x1080.jpg)
-
-#### 20260607 邓塞弗里克城堡遗址, 安特里姆郡, 北爱尔兰 (© Krzysztof Rogalski/Getty Images)
-
-![](images/2026-06/20260607_DunseverickCastle_1920x1080.jpg)
 
 
 
