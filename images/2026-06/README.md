@@ -1,4 +1,4 @@
-#### 20260616 七英里海滩附近的玳瑁海龟伴侣，大开曼岛，开曼群岛 (© Alex Mustard/Nature Picture Library)
+#### 20260616 Hawksbill sea turtle pair near Seven Mile Beach, Grand Cayman, Cayman Islands (© Alex Mustard/Nature Picture Library)
 
 ![](20260616_SevenMileTurtle_1920x1080.jpg)
 
