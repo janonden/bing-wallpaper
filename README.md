@@ -1,4 +1,4 @@
-#### 20260617 特雷莫拉公路在圣哥达山口，艾罗洛，瑞士 (© Sandro Bisaro/Getty Images)
+#### 20260617 Tremola Road on the Saint Gotthard Pass in Airolo, Switzerland (© Sandro Bisaro/Getty Images)
 
 ![](images/2026-06/20260617_TremolaRoad_1920x1080.jpg)
 
