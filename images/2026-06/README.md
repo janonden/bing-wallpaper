@@ -1,3 +1,7 @@
+#### 20260618 萨克赛瓦曼遗址俯瞰图，库斯科，秘鲁 (© Creative-Family/Getty Images Plus)
+
+![](20260618_Saqsaywaman_1920x1080.jpg)
+
 #### 20260617 Tremola Road on the Saint Gotthard Pass in Airolo, Switzerland (© Sandro Bisaro/Getty Images)
 
 ![](20260617_TremolaRoad_1920x1080.jpg)
