@@ -1,4 +1,4 @@
-#### 20260618 萨克赛瓦曼遗址俯瞰图，库斯科，秘鲁 (© Creative-Family/Getty Images Plus)
+#### 20260618 Aerial view of the ruins of Sacsayhuamán, Cusco, Peru (© Creative-Family/Getty Images Plus)
 
 ![](images/2026-06/20260618_Saqsaywaman_1920x1080.jpg)
 
