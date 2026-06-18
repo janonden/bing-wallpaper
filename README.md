@@ -1,3 +1,7 @@
+#### 20260619 グラン＝プラス, ベルギー (© Vladislav Zolotov/Getty Images Plus)
+
+![](images/2026-06/20260619_GrandPlace_1920x1080.jpg)
+
 #### 20260618 Aerial view of the ruins of Sacsayhuamán, Cusco, Peru (© Creative-Family/Getty Images Plus)
 
 ![](images/2026-06/20260618_Saqsaywaman_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260608 Le Panthéon de nuit, Paris (© Don White/Getty Images)
 
 ![](images/2026-06/20260608_PantheonParisNight_1920x1080.jpg)
-
-#### 20260607 Limpets exposed at low tide on the coast of Praia da Ursa, Portugal (© Theo Bosboom/Nature Picture Library)
-
-![](images/2026-06/20260607_Limpets_1920x1080.jpg)
 
 
 

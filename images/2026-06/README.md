@@ -1,3 +1,7 @@
+#### 20260619 グラン＝プラス, ベルギー (© Vladislav Zolotov/Getty Images Plus)
+
+![](20260619_GrandPlace_1920x1080.jpg)
+
 #### 20260618 Aerial view of the ruins of Sacsayhuamán, Cusco, Peru (© Creative-Family/Getty Images Plus)
 
 ![](20260618_Saqsaywaman_1920x1080.jpg)
