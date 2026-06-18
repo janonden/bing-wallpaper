@@ -1,3 +1,7 @@
+#### 20260619 Leuchtturm „La Rocchetta“, Piombino, Italien (© StevanZZ/Getty Images)
+
+![](images/2026-06/20260619_IsolaElba_1920x1080.jpg)
+
 #### 20260619 グラン＝プラス, ベルギー (© Vladislav Zolotov/Getty Images Plus)
 
 ![](images/2026-06/20260619_GrandPlace_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260610 Hnausapollur volcanic crater lake, Fjallabak Nature Reserve, Landmannalaugar, Iceland (© Juan Maria Coy Vergara/Getty Images)
 
 ![](images/2026-06/20260610_Hnausapollur_1920x1080.jpg)
-
-#### 20260609 Vernazza, Cinque Terre, Liguria, Italy (© Kelly Cheng/Getty Images)
-
-![](images/2026-06/20260609_CTNPVernazza_1920x1080.jpg)
 
 
 

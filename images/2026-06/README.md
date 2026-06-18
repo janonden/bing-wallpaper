@@ -1,3 +1,7 @@
+#### 20260619 Leuchtturm „La Rocchetta“, Piombino, Italien (© StevanZZ/Getty Images)
+
+![](20260619_IsolaElba_1920x1080.jpg)
+
 #### 20260619 グラン＝プラス, ベルギー (© Vladislav Zolotov/Getty Images Plus)
 
 ![](20260619_GrandPlace_1920x1080.jpg)
