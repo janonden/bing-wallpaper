@@ -2,6 +2,10 @@
 
 ![](20260619_GrandPlace_1920x1080.jpg)
 
+#### 20260619 湖中的龙舟，中国 (©  Zhonghui Bao/Getty Images)
+
+![](20260619_DragonBoatFestivalY_1920x1080.jpg)
+
 #### 20260618 Aerial view of the ruins of Sacsayhuamán, Cusco, Peru (© Creative-Family/Getty Images Plus)
 
 ![](20260618_Saqsaywaman_1920x1080.jpg)

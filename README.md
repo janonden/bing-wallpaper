@@ -2,6 +2,10 @@
 
 ![](images/2026-06/20260619_GrandPlace_1920x1080.jpg)
 
+#### 20260619 湖中的龙舟，中国 (©  Zhonghui Bao/Getty Images)
+
+![](images/2026-06/20260619_DragonBoatFestivalY_1920x1080.jpg)
+
 #### 20260618 Aerial view of the ruins of Sacsayhuamán, Cusco, Peru (© Creative-Family/Getty Images Plus)
 
 ![](images/2026-06/20260618_Saqsaywaman_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260609 Vernazza, Cinque Terre, Liguria, Italy (© Kelly Cheng/Getty Images)
 
 ![](images/2026-06/20260609_CTNPVernazza_1920x1080.jpg)
-
-#### 20260608 Le Panthéon de nuit, Paris (© Don White/Getty Images)
-
-![](images/2026-06/20260608_PantheonParisNight_1920x1080.jpg)
 
 
 
