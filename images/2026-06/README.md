@@ -1,3 +1,7 @@
+#### 20260619 National Museum of African American History and Culture, Washington, DC (© Walter Bibikow/Alamy)
+
+![](20260619_JuneteenthNMAAHC_1920x1080.jpg)
+
 #### 20260619 Leuchtturm „La Rocchetta“, Piombino, Italien (© StevanZZ/Getty Images)
 
 ![](20260619_IsolaElba_1920x1080.jpg)
