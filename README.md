@@ -1,3 +1,7 @@
+#### 20260620 漂浮在南极半岛西部海域的拱形冰山, 南大洋 (© Steven Kazlowski/Nature Picture Library)
+
+![](images/2026-06/20260620_ArchedIceberg_1920x1080.jpg)
+
 #### 20260619 National Museum of African American History and Culture, Washington, DC (© Walter Bibikow/Alamy)
 
 ![](images/2026-06/20260619_JuneteenthNMAAHC_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260612 European bee-eater, Sierra de Grazalema Natural Park, Cádiz, Spain (© Andres M. Dominguez/Nature Picture Library)
 
 ![](images/2026-06/20260612_SpainBeeEater_1920x1080.jpg)
-
-#### 20260611 蛍の光がきらめく森, 日本 (© tdub303/Getty Images)
-
-![](images/2026-06/20260611_FireflySeason_1920x1080.jpg)
 
 
 

@@ -1,3 +1,7 @@
+#### 20260620 漂浮在南极半岛西部海域的拱形冰山, 南大洋 (© Steven Kazlowski/Nature Picture Library)
+
+![](20260620_ArchedIceberg_1920x1080.jpg)
+
 #### 20260619 National Museum of African American History and Culture, Washington, DC (© Walter Bibikow/Alamy)
 
 ![](20260619_JuneteenthNMAAHC_1920x1080.jpg)
