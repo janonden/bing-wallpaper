@@ -1,3 +1,7 @@
+#### 20260621 企鹅爸爸正在检查蛋的情况 (© McDonald Wildlife Photography Inc./Getty Images)
+
+![](images/2026-06/20260621_EggDad_1920x1080.jpg)
+
 #### 20260620 Windjammerparade zur Kieler Woche in Kiel, Schleswig-Holstein (© Snapshot freddy/Shutterstock)
 
 ![](images/2026-06/20260620_KielSailing_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260613 はやぶさ 2 から切り離されたカプセル (© MORGAN SETTE/Getty Images)
 
 ![](images/2026-06/20260613_HayabusaDay_1920x1080.jpg)
-
-#### 20260613 Sunset in Badlands National Park, South Dakota, USA (© Troy Harrison/Getty Images)
-
-![](images/2026-06/20260613_BadSunset_1920x1080.jpg)
 
 
 

@@ -1,3 +1,7 @@
+#### 20260621 企鹅爸爸正在检查蛋的情况 (© McDonald Wildlife Photography Inc./Getty Images)
+
+![](20260621_EggDad_1920x1080.jpg)
+
 #### 20260620 Windjammerparade zur Kieler Woche in Kiel, Schleswig-Holstein (© Snapshot freddy/Shutterstock)
 
 ![](20260620_KielSailing_1920x1080.jpg)
