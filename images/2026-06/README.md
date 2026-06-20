@@ -1,3 +1,7 @@
+#### 20260620 Windjammerparade zur Kieler Woche in Kiel, Schleswig-Holstein (© Snapshot freddy/Shutterstock)
+
+![](20260620_KielSailing_1920x1080.jpg)
+
 #### 20260620 漂浮在南极半岛西部海域的拱形冰山, 南大洋 (© Steven Kazlowski/Nature Picture Library)
 
 ![](20260620_ArchedIceberg_1920x1080.jpg)

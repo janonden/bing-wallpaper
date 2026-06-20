@@ -1,3 +1,7 @@
+#### 20260620 Windjammerparade zur Kieler Woche in Kiel, Schleswig-Holstein (© Snapshot freddy/Shutterstock)
+
+![](images/2026-06/20260620_KielSailing_1920x1080.jpg)
+
 #### 20260620 漂浮在南极半岛西部海域的拱形冰山, 南大洋 (© Steven Kazlowski/Nature Picture Library)
 
 ![](images/2026-06/20260620_ArchedIceberg_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260613 Sunset in Badlands National Park, South Dakota, USA (© Troy Harrison/Getty Images)
 
 ![](images/2026-06/20260613_BadSunset_1920x1080.jpg)
-
-#### 20260612 European bee-eater, Sierra de Grazalema Natural Park, Cádiz, Spain (© Andres M. Dominguez/Nature Picture Library)
-
-![](images/2026-06/20260612_SpainBeeEater_1920x1080.jpg)
 
 
 
