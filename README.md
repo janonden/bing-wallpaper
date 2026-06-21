@@ -1,3 +1,7 @@
+#### 20260622 Millau Viaduct, France (© Sergi Reboredo/Alamy)
+
+![](images/2026-06/20260622_MillauViaductFrance_1920x1080.jpg)
+
 #### 20260621 Notre-Dame de Paris et les quais de Seine, Paris (© RudyBalasko/Getty Images)
 
 ![](images/2026-06/20260621_SeineRiverside_1920x1080.jpg)
@@ -6,7 +10,7 @@
 
 ![](images/2026-06/20260621_IndigenousMaple_1920x1080.jpg)
 
-#### 20260621 企鹅爸爸正在检查蛋的情况 (© McDonald Wildlife Photography Inc./Getty Images)
+#### 20260621 King penguin father checking egg (© McDonald Wildlife Photography Inc./Getty Images)
 
 ![](images/2026-06/20260621_EggDad_1920x1080.jpg)
 
@@ -53,10 +57,6 @@
 #### 20260614 Blumengarten auf der Insel Mainau im Bodensee, Baden-Württemberg (© toriru/Shutterstock)
 
 ![](images/2026-06/20260614_MainauFlowers_1920x1080.jpg)
-
-#### 20260614 US flags surrounding the Washington Monument, Washington, DC  (© Orhan Cam/Shutterstock)
-
-![](images/2026-06/20260614_FlagsMonument_1920x1080.jpg)
 
 
 
