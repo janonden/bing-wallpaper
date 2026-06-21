@@ -1,6 +1,14 @@
+#### 20260622 奎诺尔特雨林, 奥林匹克国家公园, 华盛顿州, 美国 (© Chris Moore/Tandem Stills + Motion)
+
+![](images/2026-06/20260622_QuinaultFerns_1920x1080.jpg)
+
 #### 20260622 Millau Viaduct, France (© Sergi Reboredo/Alamy)
 
 ![](images/2026-06/20260622_MillauViaductFrance_1920x1080.jpg)
+
+#### 20260622 富士山 (© phutthiseth thongtae/Getty Images)
+
+![](images/2026-06/20260622_Fujisan_1920x1080.jpg)
 
 #### 20260621 Notre-Dame de Paris et les quais de Seine, Paris (© RudyBalasko/Getty Images)
 
@@ -49,14 +57,6 @@
 #### 20260616 Hawksbill sea turtle pair near Seven Mile Beach, Grand Cayman, Cayman Islands (© Alex Mustard/Nature Picture Library)
 
 ![](images/2026-06/20260616_SevenMileTurtle_1920x1080.jpg)
-
-#### 20260615 Great Smoky Mountains National Park, Tennessee (© Mint Images/Getty Images)
-
-![](images/2026-06/20260615_ParkEstd_1920x1080.jpg)
-
-#### 20260614 Blumengarten auf der Insel Mainau im Bodensee, Baden-Württemberg (© toriru/Shutterstock)
-
-![](images/2026-06/20260614_MainauFlowers_1920x1080.jpg)
 
 
 

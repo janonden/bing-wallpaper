@@ -1,6 +1,14 @@
+#### 20260622 奎诺尔特雨林, 奥林匹克国家公园, 华盛顿州, 美国 (© Chris Moore/Tandem Stills + Motion)
+
+![](20260622_QuinaultFerns_1920x1080.jpg)
+
 #### 20260622 Millau Viaduct, France (© Sergi Reboredo/Alamy)
 
 ![](20260622_MillauViaductFrance_1920x1080.jpg)
+
+#### 20260622 富士山 (© phutthiseth thongtae/Getty Images)
+
+![](20260622_Fujisan_1920x1080.jpg)
 
 #### 20260621 Notre-Dame de Paris et les quais de Seine, Paris (© RudyBalasko/Getty Images)
 
