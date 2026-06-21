@@ -1,3 +1,11 @@
+#### 20260621 Notre-Dame de Paris et les quais de Seine, Paris (© RudyBalasko/Getty Images)
+
+![](20260621_SeineRiverside_1920x1080.jpg)
+
+#### 20260621 Red maple leaf, symbol of Canada (© namaki/Getty Images)
+
+![](20260621_IndigenousMaple_1920x1080.jpg)
+
 #### 20260621 企鹅爸爸正在检查蛋的情况 (© McDonald Wildlife Photography Inc./Getty Images)
 
 ![](20260621_EggDad_1920x1080.jpg)

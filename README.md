@@ -1,3 +1,11 @@
+#### 20260621 Notre-Dame de Paris et les quais de Seine, Paris (© RudyBalasko/Getty Images)
+
+![](images/2026-06/20260621_SeineRiverside_1920x1080.jpg)
+
+#### 20260621 Red maple leaf, symbol of Canada (© namaki/Getty Images)
+
+![](images/2026-06/20260621_IndigenousMaple_1920x1080.jpg)
+
 #### 20260621 企鹅爸爸正在检查蛋的情况 (© McDonald Wildlife Photography Inc./Getty Images)
 
 ![](images/2026-06/20260621_EggDad_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20260614 US flags surrounding the Washington Monument, Washington, DC  (© Orhan Cam/Shutterstock)
 
 ![](images/2026-06/20260614_FlagsMonument_1920x1080.jpg)
-
-#### 20260614 绿头鸭 (© Philippe Paternolli/Getty Images)
-
-![](images/2026-06/20260614_DuckPond_1920x1080.jpg)
-
-#### 20260613 はやぶさ 2 から切り離されたカプセル (© MORGAN SETTE/Getty Images)
-
-![](images/2026-06/20260613_HayabusaDay_1920x1080.jpg)
 
 
 
