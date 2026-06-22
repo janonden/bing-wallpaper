@@ -1,4 +1,4 @@
-#### 20260622 奎诺尔特雨林, 奥林匹克国家公园, 华盛顿州, 美国 (© Chris Moore/Tandem Stills + Motion)
+#### 20260622 Quinault rainforest, Olympic National Park, Washington state (© Chris Moore/Tandem Stills + Motion)
 
 ![](images/2026-06/20260622_QuinaultFerns_1920x1080.jpg)
 
