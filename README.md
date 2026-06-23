@@ -6,7 +6,7 @@
 
 ![](images/2026-06/20260622_MillauViaductFrance_1920x1080.jpg)
 
-#### 20260622 富士山 (© phutthiseth thongtae/Getty Images)
+#### 20260622 Mount Fuji on Honshu Island, Japan (© phutthiseth thongtae/Getty Images)
 
 ![](images/2026-06/20260622_Fujisan_1920x1080.jpg)
 
