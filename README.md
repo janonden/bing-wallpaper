@@ -1,3 +1,7 @@
+#### 20260624 蝴蝶正在黄花上授粉 (© lzh/Getty Images)
+
+![](images/2026-06/20260624_BFPollin_1920x1080.jpg)
+
 #### 20260622 Quinault rainforest, Olympic National Park, Washington state (© Chris Moore/Tandem Stills + Motion)
 
 ![](images/2026-06/20260622_QuinaultFerns_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260617 Tremola Road on the Saint Gotthard Pass in Airolo, Switzerland (© Sandro Bisaro/Getty Images)
 
 ![](images/2026-06/20260617_TremolaRoad_1920x1080.jpg)
-
-#### 20260616 Hawksbill sea turtle pair near Seven Mile Beach, Grand Cayman, Cayman Islands (© Alex Mustard/Nature Picture Library)
-
-![](images/2026-06/20260616_SevenMileTurtle_1920x1080.jpg)
 
 
 
