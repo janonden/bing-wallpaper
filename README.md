@@ -1,4 +1,4 @@
-#### 20260624 蝴蝶正在黄花上授粉 (© lzh/Getty Images)
+#### 20260624 Butterfly pollinating on yellow flower (© lzh/Getty Images)
 
 ![](images/2026-06/20260624_BFPollin_1920x1080.jpg)
 
