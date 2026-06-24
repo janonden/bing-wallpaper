@@ -1,3 +1,7 @@
+#### 20260625 ラベンダー畑, 北海道 中富良野町 (© Weiheng Pan/Getty Images Plus)
+
+![](20260625_LavenderSeason_1920x1080.jpg)
+
 #### 20260624 Butterfly pollinating on yellow flower (© lzh/Getty Images)
 
 ![](20260624_BFPollin_1920x1080.jpg)

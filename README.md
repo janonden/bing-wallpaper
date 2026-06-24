@@ -1,3 +1,7 @@
+#### 20260625 ラベンダー畑, 北海道 中富良野町 (© Weiheng Pan/Getty Images Plus)
+
+![](images/2026-06/20260625_LavenderSeason_1920x1080.jpg)
+
 #### 20260624 Butterfly pollinating on yellow flower (© lzh/Getty Images)
 
 ![](images/2026-06/20260624_BFPollin_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260618 Aerial view of the ruins of Sacsayhuamán, Cusco, Peru (© Creative-Family/Getty Images Plus)
 
 ![](images/2026-06/20260618_Saqsaywaman_1920x1080.jpg)
-
-#### 20260617 Tremola Road on the Saint Gotthard Pass in Airolo, Switzerland (© Sandro Bisaro/Getty Images)
-
-![](images/2026-06/20260617_TremolaRoad_1920x1080.jpg)
 
 
 
