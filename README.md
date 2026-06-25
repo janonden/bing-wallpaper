@@ -46,7 +46,7 @@
 
 ![](images/2026-06/20260619_IsolaElba_1920x1080.jpg)
 
-#### 20260619 グラン＝プラス, ベルギー (© Vladislav Zolotov/Getty Images Plus)
+#### 20260619 Buildings on Grand-Place Square in Brussels, Belgium (© Vladislav Zolotov/Getty Images Plus)
 
 ![](images/2026-06/20260619_GrandPlace_1920x1080.jpg)
 
