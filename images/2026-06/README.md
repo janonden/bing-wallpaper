@@ -1,3 +1,7 @@
+#### 20260626 泰晤士河, 伦敦, 英格兰 (© Daniel Lange/Getty Images)
+
+![](20260626_ThamesSummer_1920x1080.jpg)
+
 #### 20260625 ラベンダー畑, 北海道 中富良野町 (© Weiheng Pan/Getty Images Plus)
 
 ![](20260625_LavenderSeason_1920x1080.jpg)
