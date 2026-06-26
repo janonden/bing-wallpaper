@@ -1,4 +1,4 @@
-#### 20260626 泰晤士河, 伦敦, 英格兰 (© Daniel Lange/Getty Images)
+#### 20260626 The River Thames, London, England (© Daniel Lange/Getty Images)
 
 ![](images/2026-06/20260626_ThamesSummer_1920x1080.jpg)
 
