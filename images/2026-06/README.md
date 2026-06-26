@@ -1,3 +1,11 @@
+#### 20260627 博尼亚德海滩上的漂流木, 亨廷岛, 南卡罗来纳州, 美国 (© Frances/Adobe Stock)
+
+![](20260627_BoneyardBeach_1920x1080.jpg)
+
+#### 20260627 あじさいの花房, 岩手県 奥州市 (© nattya3714/Getty Images)
+
+![](20260627_Ajisai_1920x1080.jpg)
+
 #### 20260626 The River Thames, London, England (© Daniel Lange/Getty Images)
 
 ![](20260626_ThamesSummer_1920x1080.jpg)

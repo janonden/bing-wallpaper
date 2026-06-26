@@ -1,3 +1,11 @@
+#### 20260627 博尼亚德海滩上的漂流木, 亨廷岛, 南卡罗来纳州, 美国 (© Frances/Adobe Stock)
+
+![](images/2026-06/20260627_BoneyardBeach_1920x1080.jpg)
+
+#### 20260627 あじさいの花房, 岩手県 奥州市 (© nattya3714/Getty Images)
+
+![](images/2026-06/20260627_Ajisai_1920x1080.jpg)
+
 #### 20260626 The River Thames, London, England (© Daniel Lange/Getty Images)
 
 ![](images/2026-06/20260626_ThamesSummer_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20260619 Leuchtturm „La Rocchetta“, Piombino, Italien (© StevanZZ/Getty Images)
 
 ![](images/2026-06/20260619_IsolaElba_1920x1080.jpg)
-
-#### 20260619 Buildings on Grand-Place Square in Brussels, Belgium (© Vladislav Zolotov/Getty Images Plus)
-
-![](images/2026-06/20260619_GrandPlace_1920x1080.jpg)
-
-#### 20260619 湖中的龙舟，中国 (©  Zhonghui Bao/Getty Images)
-
-![](images/2026-06/20260619_DragonBoatFestivalY_1920x1080.jpg)
 
 
 
