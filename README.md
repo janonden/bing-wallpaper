@@ -1,3 +1,7 @@
+#### 20260628 温德盖特山口附近的巨柱仙人掌, 麦克道尔山脉, 亚利桑那州, 美国 (© Eric Mischke/Getty Images)
+
+![](images/2026-06/20260628_SaguaroSun_1920x1080.jpg)
+
 #### 20260627 Leuchtturm Westerheversand, Nordsee, Schleswig-Holstein (© bluejayphoto/Getty Images)
 
 ![](images/2026-06/20260627_Westerheversand_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260620 Windjammerparade zur Kieler Woche in Kiel, Schleswig-Holstein (© Snapshot freddy/Shutterstock)
 
 ![](images/2026-06/20260620_KielSailing_1920x1080.jpg)
-
-#### 20260620 Arched iceberg floating off the western Antarctic Peninsula, Southern Ocean (© Steven Kazlowski/Nature Picture Library)
-
-![](images/2026-06/20260620_ArchedIceberg_1920x1080.jpg)
 
 
 
