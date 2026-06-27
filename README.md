@@ -1,3 +1,7 @@
+#### 20260627 Leuchtturm Westerheversand, Nordsee, Schleswig-Holstein (© bluejayphoto/Getty Images)
+
+![](images/2026-06/20260627_Westerheversand_1920x1080.jpg)
+
 #### 20260627 博尼亚德海滩上的漂流木, 亨廷岛, 南卡罗来纳州, 美国 (© Frances/Adobe Stock)
 
 ![](images/2026-06/20260627_BoneyardBeach_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260619 National Museum of African American History and Culture, Washington, DC (© Walter Bibikow/Alamy)
 
 ![](images/2026-06/20260619_JuneteenthNMAAHC_1920x1080.jpg)
-
-#### 20260619 Leuchtturm „La Rocchetta“, Piombino, Italien (© StevanZZ/Getty Images)
-
-![](images/2026-06/20260619_IsolaElba_1920x1080.jpg)
 
 
 
