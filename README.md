@@ -2,6 +2,10 @@
 
 ![](images/2026-06/20260627_Westerheversand_1920x1080.jpg)
 
+#### 20260627 Dramatic sky over Montreal, Quebec (© d3sign/Getty Images)
+
+![](images/2026-06/20260627_MulticulturalismDY_1920x1080.jpg)
+
 #### 20260627 博尼亚德海滩上的漂流木, 亨廷岛, 南卡罗来纳州, 美国 (© Frances/Adobe Stock)
 
 ![](images/2026-06/20260627_BoneyardBeach_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260620 Arched iceberg floating off the western Antarctic Peninsula, Southern Ocean (© Steven Kazlowski/Nature Picture Library)
 
 ![](images/2026-06/20260620_ArchedIceberg_1920x1080.jpg)
-
-#### 20260619 National Museum of African American History and Culture, Washington, DC (© Walter Bibikow/Alamy)
-
-![](images/2026-06/20260619_JuneteenthNMAAHC_1920x1080.jpg)
 
 
 
