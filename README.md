@@ -1,3 +1,7 @@
+#### 20260629 波拉波拉岛及其泻湖, 南太平洋, 法属波利尼西亚 (© Frederick Millett/Shutterstock)
+
+![](images/2026-06/20260629_BoraBoraLagoon_1920x1080.jpg)
+
 #### 20260628 Saguaro cacti near Windgate Pass, McDowell Range, Arizona, USA (© Eric Mischke/Getty Images)
 
 ![](images/2026-06/20260628_SaguaroSun_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260621 King penguin father checking egg (© McDonald Wildlife Photography Inc./Getty Images)
 
 ![](images/2026-06/20260621_EggDad_1920x1080.jpg)
-
-#### 20260620 Windjammerparade zur Kieler Woche in Kiel, Schleswig-Holstein (© Snapshot freddy/Shutterstock)
-
-![](images/2026-06/20260620_KielSailing_1920x1080.jpg)
 
 
 

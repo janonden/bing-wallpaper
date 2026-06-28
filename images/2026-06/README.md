@@ -1,3 +1,7 @@
+#### 20260629 波拉波拉岛及其泻湖, 南太平洋, 法属波利尼西亚 (© Frederick Millett/Shutterstock)
+
+![](20260629_BoraBoraLagoon_1920x1080.jpg)
+
 #### 20260628 Saguaro cacti near Windgate Pass, McDowell Range, Arizona, USA (© Eric Mischke/Getty Images)
 
 ![](20260628_SaguaroSun_1920x1080.jpg)
