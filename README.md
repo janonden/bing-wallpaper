@@ -1,4 +1,4 @@
-#### 20260628 温德盖特山口附近的巨柱仙人掌, 麦克道尔山脉, 亚利桑那州, 美国 (© Eric Mischke/Getty Images)
+#### 20260628 Saguaro cacti near Windgate Pass, McDowell Range, Arizona, USA (© Eric Mischke/Getty Images)
 
 ![](images/2026-06/20260628_SaguaroSun_1920x1080.jpg)
 
