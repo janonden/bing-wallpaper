@@ -1,3 +1,7 @@
+#### 20260630 马赛马拉国家保护区日落时分的长颈鹿, 肯尼亚 (© danm/Getty Images)
+
+![](20260630_MasaiGiraffe_1920x1080.jpg)
+
 #### 20260629 Bora Bora and its lagoon, South Pacific, French Polynesia (© Frederick Millett/Shutterstock)
 
 ![](20260629_BoraBoraLagoon_1920x1080.jpg)
