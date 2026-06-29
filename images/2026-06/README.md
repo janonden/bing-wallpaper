@@ -1,4 +1,4 @@
-#### 20260629 波拉波拉岛及其泻湖, 南太平洋, 法属波利尼西亚 (© Frederick Millett/Shutterstock)
+#### 20260629 Bora Bora and its lagoon, South Pacific, French Polynesia (© Frederick Millett/Shutterstock)
 
 ![](20260629_BoraBoraLagoon_1920x1080.jpg)
 
