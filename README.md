@@ -34,6 +34,10 @@
 
 ![](images/2026-06/20260625_LavenderSeason_1920x1080.jpg)
 
+#### 20260625 Buildings on Grand-Place Square in Brussels, Belgium (© Vladislav Zolotov/Getty Images Plus)
+
+![](images/2026-06/20260625_GrandPlace_1920x1080.jpg)
+
 #### 20260624 Butterfly pollinating on yellow flower (© lzh/Getty Images)
 
 ![](images/2026-06/20260624_BFPollin_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260621 Notre-Dame de Paris et les quais de Seine, Paris (© RudyBalasko/Getty Images)
 
 ![](images/2026-06/20260621_SeineRiverside_1920x1080.jpg)
-
-#### 20260621 Red maple leaf, symbol of Canada (© namaki/Getty Images)
-
-![](images/2026-06/20260621_IndigenousMaple_1920x1080.jpg)
 
 
 

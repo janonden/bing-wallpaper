@@ -34,6 +34,10 @@
 
 ![](20260625_LavenderSeason_1920x1080.jpg)
 
+#### 20260625 Buildings on Grand-Place Square in Brussels, Belgium (© Vladislav Zolotov/Getty Images Plus)
+
+![](20260625_GrandPlace_1920x1080.jpg)
+
 #### 20260624 Butterfly pollinating on yellow flower (© lzh/Getty Images)
 
 ![](20260624_BFPollin_1920x1080.jpg)
