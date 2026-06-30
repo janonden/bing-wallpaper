@@ -1,4 +1,4 @@
-#### 20260630 马赛马拉国家保护区日落时分的长颈鹿, 肯尼亚 (© danm/Getty Images)
+#### 20260630 Giraffes at sunset in the Masai Mara National Reserve, Kenya (© danm/Getty Images)
 
 ![](20260630_MasaiGiraffe_1920x1080.jpg)
 
