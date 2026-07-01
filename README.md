@@ -1,3 +1,7 @@
+#### 20260701 Sonnenuntergang über den Weinbergen von Steinhaldenfeld im Neckartal bei Stuttgart, Baden-Württemberg (© Cyril Gosselin/Getty Images)
+
+![](images/2026-07/20260701_NeckarVineyards_1920x1080.jpg)
+
 #### 20260701 地牢省立公园, 纽芬兰和拉布拉多省, 加拿大 (© Kaitlyn McLachlan/Getty Images)
 
 ![](images/2026-07/20260701_DungeonPark_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260622 Millau Viaduct, France (© Sergi Reboredo/Alamy)
 
 ![](images/2026-06/20260622_MillauViaductFrance_1920x1080.jpg)
-
-#### 20260622 Mount Fuji on Honshu Island, Japan (© phutthiseth thongtae/Getty Images)
-
-![](images/2026-06/20260622_Fujisan_1920x1080.jpg)
 
 
 
