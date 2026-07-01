@@ -1,3 +1,7 @@
+#### 20260702 埃斯纳神庙穹顶天花板, 埃及 (© Nick Brundle Photography/Getty Images)
+
+![](images/2026-07/20260702_TempleEsna_1920x1080.jpg)
+
 #### 20260701 Sonnenuntergang über den Weinbergen von Steinhaldenfeld im Neckartal bei Stuttgart, Baden-Württemberg (© Cyril Gosselin/Getty Images)
 
 ![](images/2026-07/20260701_NeckarVineyards_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260622 Quinault rainforest, Olympic National Park, Washington state (© Chris Moore/Tandem Stills + Motion)
 
 ![](images/2026-06/20260622_QuinaultFerns_1920x1080.jpg)
-
-#### 20260622 Millau Viaduct, France (© Sergi Reboredo/Alamy)
-
-![](images/2026-06/20260622_MillauViaductFrance_1920x1080.jpg)
 
 
 
