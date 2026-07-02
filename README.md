@@ -1,3 +1,7 @@
+#### 20260703 小溪上方的萤火虫，冈山县，日本 (© tdub303/Getty Images)
+
+![](images/2026-07/20260703_FirefliesJapan_1920x1080.jpg)
+
 #### 20260702 Ceiling of the Temple of Esna, Egypt (© Nick Brundle Photography/Getty Images)
 
 ![](images/2026-07/20260702_TempleEsna_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260624 Butterfly pollinating on yellow flower (© lzh/Getty Images)
 
 ![](images/2026-06/20260624_BFPollin_1920x1080.jpg)
-
-#### 20260622 Quinault rainforest, Olympic National Park, Washington state (© Chris Moore/Tandem Stills + Motion)
-
-![](images/2026-06/20260622_QuinaultFerns_1920x1080.jpg)
 
 
 
