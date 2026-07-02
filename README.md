@@ -1,4 +1,4 @@
-#### 20260702 埃斯纳神庙穹顶天花板, 埃及 (© Nick Brundle Photography/Getty Images)
+#### 20260702 Ceiling of the Temple of Esna, Egypt (© Nick Brundle Photography/Getty Images)
 
 ![](images/2026-07/20260702_TempleEsna_1920x1080.jpg)
 
