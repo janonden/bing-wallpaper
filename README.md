@@ -1,3 +1,11 @@
+#### 20260704 イタハシヤマオオハシ, エクアドル (© Murray Cooper/Minden Pictures)
+
+![](images/2026-07/20260704_MountainToucanOrchids_1920x1080.jpg)
+
+#### 20260704 凯泽斯堡，阿尔萨斯，法国 (© Federica Gentile/Getty Images)
+
+![](images/2026-07/20260704_KaysersbergVillage_1920x1080.jpg)
+
 #### 20260703 Fireflies glowing above a stream, Okayama Prefecture, Japan (© tdub303/Getty Images)
 
 ![](images/2026-07/20260703_FirefliesJapan_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20260625 ラベンダー畑, 北海道 中富良野町 (© Weiheng Pan/Getty Images Plus)
 
 ![](images/2026-06/20260625_LavenderSeason_1920x1080.jpg)
-
-#### 20260625 Buildings on Grand-Place Square in Brussels, Belgium (© Vladislav Zolotov/Getty Images Plus)
-
-![](images/2026-06/20260625_GrandPlace_1920x1080.jpg)
-
-#### 20260624 Butterfly pollinating on yellow flower (© lzh/Getty Images)
-
-![](images/2026-06/20260624_BFPollin_1920x1080.jpg)
 
 
 

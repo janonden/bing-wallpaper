@@ -1,3 +1,11 @@
+#### 20260704 イタハシヤマオオハシ, エクアドル (© Murray Cooper/Minden Pictures)
+
+![](20260704_MountainToucanOrchids_1920x1080.jpg)
+
+#### 20260704 凯泽斯堡，阿尔萨斯，法国 (© Federica Gentile/Getty Images)
+
+![](20260704_KaysersbergVillage_1920x1080.jpg)
+
 #### 20260703 Fireflies glowing above a stream, Okayama Prefecture, Japan (© tdub303/Getty Images)
 
 ![](20260703_FirefliesJapan_1920x1080.jpg)
