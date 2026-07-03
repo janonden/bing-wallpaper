@@ -1,4 +1,4 @@
-#### 20260703 小溪上方的萤火虫，冈山县，日本 (© tdub303/Getty Images)
+#### 20260703 Fireflies glowing above a stream, Okayama Prefecture, Japan (© tdub303/Getty Images)
 
 ![](20260703_FirefliesJapan_1920x1080.jpg)
 
