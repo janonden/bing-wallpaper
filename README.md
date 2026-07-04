@@ -1,3 +1,7 @@
+#### 20260705 瓦朗索勒高原的薰衣草行，普罗旺斯，法国 (© Robert Harding/Shutterstock)
+
+![](images/2026-07/20260705_LavenderRows_1920x1080.jpg)
+
 #### 20260704 イタハシヤマオオハシ, エクアドル (© Murray Cooper/Minden Pictures)
 
 ![](images/2026-07/20260704_MountainToucanOrchids_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260627 あじさいの花房, 岩手県 奥州市 (© nattya3714/Getty Images)
 
 ![](images/2026-06/20260627_Ajisai_1920x1080.jpg)
-
-#### 20260626 The River Thames, London, England (© Daniel Lange/Getty Images)
-
-![](images/2026-06/20260626_ThamesSummer_1920x1080.jpg)
 
 
 
