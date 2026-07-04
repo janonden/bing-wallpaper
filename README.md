@@ -2,6 +2,10 @@
 
 ![](images/2026-07/20260704_MountainToucanOrchids_1920x1080.jpg)
 
+#### 20260704 Liberty Bell and Independence Hall, Independence National Historical Park, Philadelphia, Pennsylvania (© f11photo/Shutterstock)
+
+![](images/2026-07/20260704_LibertyHall_1920x1080.jpg)
+
 #### 20260704 凯泽斯堡，阿尔萨斯，法国 (© Federica Gentile/Getty Images)
 
 ![](images/2026-07/20260704_KaysersbergVillage_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260626 The River Thames, London, England (© Daniel Lange/Getty Images)
 
 ![](images/2026-06/20260626_ThamesSummer_1920x1080.jpg)
-
-#### 20260625 ラベンダー畑, 北海道 中富良野町 (© Weiheng Pan/Getty Images Plus)
-
-![](images/2026-06/20260625_LavenderSeason_1920x1080.jpg)
 
 
 
