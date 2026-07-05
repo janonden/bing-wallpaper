@@ -1,4 +1,4 @@
-#### 20260705 瓦朗索勒高原的薰衣草行，普罗旺斯，法国 (© Robert Harding/Shutterstock)
+#### 20260705 Lavender rows, Plateau de Valensole, Provence, France (© Robert Harding/Shutterstock)
 
 ![](20260705_LavenderRows_1920x1080.jpg)
 
