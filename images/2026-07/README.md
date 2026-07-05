@@ -1,3 +1,7 @@
+#### 20260706 锡拉库萨的日落，西西里岛，意大利 (© Balate Dorin/Getty Images)
+
+![](20260706_SyracuseItaly_1920x1080.jpg)
+
 #### 20260705 Lavender rows, Plateau de Valensole, Provence, France (© Robert Harding/Shutterstock)
 
 ![](20260705_LavenderRows_1920x1080.jpg)

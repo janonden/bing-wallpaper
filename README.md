@@ -1,3 +1,7 @@
+#### 20260706 锡拉库萨的日落，西西里岛，意大利 (© Balate Dorin/Getty Images)
+
+![](images/2026-07/20260706_SyracuseItaly_1920x1080.jpg)
+
 #### 20260705 Lavender rows, Plateau de Valensole, Provence, France (© Robert Harding/Shutterstock)
 
 ![](images/2026-07/20260705_LavenderRows_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260627 Driftwood on Boneyard Beach, Hunting Island, South Carolina (© Frances/Adobe Stock)
 
 ![](images/2026-06/20260627_BoneyardBeach_1920x1080.jpg)
-
-#### 20260627 あじさいの花房, 岩手県 奥州市 (© nattya3714/Getty Images)
-
-![](images/2026-06/20260627_Ajisai_1920x1080.jpg)
 
 
 
