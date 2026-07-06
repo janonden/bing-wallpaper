@@ -1,3 +1,7 @@
+#### 20260707 七夕まつりの吹き流し, 宮城県 仙台市 (© kororokerokero/Getty Images)
+
+![](20260707_Tanabata_1920x1080.jpg)
+
 #### 20260706 Syracuse at sunset, Sicily, Italy (© Balate Dorin/Getty Images)
 
 ![](20260706_SyracuseItaly_1920x1080.jpg)

@@ -1,3 +1,7 @@
+#### 20260707 七夕まつりの吹き流し, 宮城県 仙台市 (© kororokerokero/Getty Images)
+
+![](images/2026-07/20260707_Tanabata_1920x1080.jpg)
+
 #### 20260706 Syracuse at sunset, Sicily, Italy (© Balate Dorin/Getty Images)
 
 ![](images/2026-07/20260706_SyracuseItaly_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260627 Dramatic sky over Montreal, Quebec (© d3sign/Getty Images)
 
 ![](images/2026-06/20260627_MulticulturalismDY_1920x1080.jpg)
-
-#### 20260627 Driftwood on Boneyard Beach, Hunting Island, South Carolina (© Frances/Adobe Stock)
-
-![](images/2026-06/20260627_BoneyardBeach_1920x1080.jpg)
 
 
 
