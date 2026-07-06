@@ -1,4 +1,4 @@
-#### 20260706 锡拉库萨的日落，西西里岛，意大利 (© Balate Dorin/Getty Images)
+#### 20260706 Syracuse at sunset, Sicily, Italy (© Balate Dorin/Getty Images)
 
 ![](images/2026-07/20260706_SyracuseItaly_1920x1080.jpg)
 
