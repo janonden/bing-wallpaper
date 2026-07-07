@@ -1,3 +1,7 @@
+#### 20260708 阿蒂特兰湖的日出，危地马拉 (© shayes17/Getty Images)
+
+![](20260708_LakeAtitlan_1920x1080.jpg)
+
 #### 20260707 七夕まつりの吹き流し, 宮城県 仙台市 (© kororokerokero/Getty Images)
 
 ![](20260707_Tanabata_1920x1080.jpg)

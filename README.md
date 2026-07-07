@@ -1,3 +1,7 @@
+#### 20260708 阿蒂特兰湖的日出，危地马拉 (© shayes17/Getty Images)
+
+![](images/2026-07/20260708_LakeAtitlan_1920x1080.jpg)
+
 #### 20260707 七夕まつりの吹き流し, 宮城県 仙台市 (© kororokerokero/Getty Images)
 
 ![](images/2026-07/20260707_Tanabata_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260627 Leuchtturm Westerheversand, Nordsee, Schleswig-Holstein (© bluejayphoto/Getty Images)
 
 ![](images/2026-06/20260627_Westerheversand_1920x1080.jpg)
-
-#### 20260627 Dramatic sky over Montreal, Quebec (© d3sign/Getty Images)
-
-![](images/2026-06/20260627_MulticulturalismDY_1920x1080.jpg)
 
 
 
