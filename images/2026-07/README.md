@@ -10,7 +10,7 @@
 
 ![](20260705_LavenderRows_1920x1080.jpg)
 
-#### 20260704 イタハシヤマオオハシ, エクアドル (© Murray Cooper/Minden Pictures)
+#### 20260704 Plate-billed mountain toucan with orchids, Ecuador (© Murray Cooper/Minden Pictures)
 
 ![](20260704_MountainToucanOrchids_1920x1080.jpg)
 
