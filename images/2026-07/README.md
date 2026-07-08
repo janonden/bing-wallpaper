@@ -1,4 +1,4 @@
-#### 20260708 阿蒂特兰湖的日出，危地马拉 (© shayes17/Getty Images)
+#### 20260708 Sunrise at Lake Atitlán, Guatemala (© shayes17/Getty Images)
 
 ![](20260708_LakeAtitlan_1920x1080.jpg)
 
