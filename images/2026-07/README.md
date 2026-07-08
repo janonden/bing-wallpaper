@@ -1,3 +1,7 @@
+#### 20260709 在沙巴的水稻田，老街，越南 (© Anujak Jaimook/Getty Images)
+
+![](20260709_SapaVietnam_1920x1080.jpg)
+
 #### 20260708 Sunrise at Lake Atitlán, Guatemala (© shayes17/Getty Images)
 
 ![](20260708_LakeAtitlan_1920x1080.jpg)

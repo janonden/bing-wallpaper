@@ -1,3 +1,7 @@
+#### 20260709 在沙巴的水稻田，老街，越南 (© Anujak Jaimook/Getty Images)
+
+![](images/2026-07/20260709_SapaVietnam_1920x1080.jpg)
+
 #### 20260708 Sunrise at Lake Atitlán, Guatemala (© shayes17/Getty Images)
 
 ![](images/2026-07/20260708_LakeAtitlan_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260628 Saguaro cacti near Windgate Pass, McDowell Range, Arizona, USA (© Eric Mischke/Getty Images)
 
 ![](images/2026-06/20260628_SaguaroSun_1920x1080.jpg)
-
-#### 20260627 Leuchtturm Westerheversand, Nordsee, Schleswig-Holstein (© bluejayphoto/Getty Images)
-
-![](images/2026-06/20260627_Westerheversand_1920x1080.jpg)
 
 
 
