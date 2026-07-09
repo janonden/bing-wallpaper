@@ -1,4 +1,4 @@
-#### 20260709 在沙巴的水稻田，老街，越南 (© Anujak Jaimook/Getty Images)
+#### 20260709 Rice fields at Sapa, Lào Cai, Vietnam (© Anujak Jaimook/Getty Images)
 
 ![](images/2026-07/20260709_SapaVietnam_1920x1080.jpg)
 
