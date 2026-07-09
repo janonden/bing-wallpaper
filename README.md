@@ -1,3 +1,7 @@
+#### 20260710 ビクトリア州にあるビーチ, オーストラリア (© Nearmap/Getty Images)
+
+![](images/2026-07/20260710_VictoriaBeach_1920x1080.jpg)
+
 #### 20260709 Rice fields at Sapa, Lào Cai, Vietnam (© Anujak Jaimook/Getty Images)
 
 ![](images/2026-07/20260709_SapaVietnam_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260629 Bora Bora and its lagoon, South Pacific, French Polynesia (© Frederick Millett/Shutterstock)
 
 ![](images/2026-06/20260629_BoraBoraLagoon_1920x1080.jpg)
-
-#### 20260628 Saguaro cacti near Windgate Pass, McDowell Range, Arizona, USA (© Eric Mischke/Getty Images)
-
-![](images/2026-06/20260628_SaguaroSun_1920x1080.jpg)
 
 
 

@@ -1,3 +1,7 @@
+#### 20260710 ビクトリア州にあるビーチ, オーストラリア (© Nearmap/Getty Images)
+
+![](20260710_VictoriaBeach_1920x1080.jpg)
+
 #### 20260709 Rice fields at Sapa, Lào Cai, Vietnam (© Anujak Jaimook/Getty Images)
 
 ![](20260709_SapaVietnam_1920x1080.jpg)
