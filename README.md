@@ -2,6 +2,10 @@
 
 ![](images/2026-07/20260711_LemonShark_1920x1080.jpg)
 
+#### 20260711 圣古斯坦港, 欧赖, 布列塔尼, 法国 (© Rolf E. Staerk/Shutterstock)
+
+![](images/2026-07/20260711_AurayBrittany_1920x1080.jpg)
+
 #### 20260710 Aerial view of land and ocean, Victoria, Australia (© Nearmap/Getty Images)
 
 ![](images/2026-07/20260710_VictoriaBeach_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260701 Sonnenuntergang über den Weinbergen von Steinhaldenfeld im Neckartal bei Stuttgart, Baden-Württemberg (© Cyril Gosselin/Getty Images)
 
 ![](images/2026-07/20260701_NeckarVineyards_1920x1080.jpg)
-
-#### 20260701 Dungeon Provincial Park, Newfoundland and Labrador, Canada (© Kaitlyn McLachlan/Getty Images)
-
-![](images/2026-07/20260701_DungeonPark_1920x1080.jpg)
 
 
 
