@@ -1,6 +1,14 @@
-#### 20260710 ビクトリア州にあるビーチ, オーストラリア (© Nearmap/Getty Images)
+#### 20260711 Lemon shark pup in mangrove forest, Eleuthera, Bahamas (© Shane Gross/Nature Picture Library)
+
+![](images/2026-07/20260711_LemonShark_1920x1080.jpg)
+
+#### 20260710 Aerial view of land and ocean, Victoria, Australia (© Nearmap/Getty Images)
 
 ![](images/2026-07/20260710_VictoriaBeach_1920x1080.jpg)
+
+#### 20260710 Pink wildflowers by Emerald Lake in summer, Yoho National Park, British Columbia (© Olga Matveeva/Getty Images)
+
+![](images/2026-07/20260710_SummerBC_1920x1080.jpg)
 
 #### 20260709 Rice fields at Sapa, Lào Cai, Vietnam (© Anujak Jaimook/Getty Images)
 
@@ -49,14 +57,6 @@
 #### 20260701 Dungeon Provincial Park, Newfoundland and Labrador, Canada (© Kaitlyn McLachlan/Getty Images)
 
 ![](images/2026-07/20260701_DungeonPark_1920x1080.jpg)
-
-#### 20260630 Giraffes at sunset in the Masai Mara National Reserve, Kenya (© danm/Getty Images)
-
-![](images/2026-06/20260630_MasaiGiraffe_1920x1080.jpg)
-
-#### 20260629 Bora Bora and its lagoon, South Pacific, French Polynesia (© Frederick Millett/Shutterstock)
-
-![](images/2026-06/20260629_BoraBoraLagoon_1920x1080.jpg)
 
 
 

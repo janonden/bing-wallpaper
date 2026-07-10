@@ -1,6 +1,14 @@
-#### 20260710 ビクトリア州にあるビーチ, オーストラリア (© Nearmap/Getty Images)
+#### 20260711 Lemon shark pup in mangrove forest, Eleuthera, Bahamas (© Shane Gross/Nature Picture Library)
+
+![](20260711_LemonShark_1920x1080.jpg)
+
+#### 20260710 Aerial view of land and ocean, Victoria, Australia (© Nearmap/Getty Images)
 
 ![](20260710_VictoriaBeach_1920x1080.jpg)
+
+#### 20260710 Pink wildflowers by Emerald Lake in summer, Yoho National Park, British Columbia (© Olga Matveeva/Getty Images)
+
+![](20260710_SummerBC_1920x1080.jpg)
 
 #### 20260709 Rice fields at Sapa, Lào Cai, Vietnam (© Anujak Jaimook/Getty Images)
 
