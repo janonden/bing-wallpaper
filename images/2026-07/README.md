@@ -2,6 +2,10 @@
 
 ![](20260711_LemonShark_1920x1080.jpg)
 
+#### 20260711 Driftwood on Boneyard Beach, Hunting Island, South Carolina (© Frances/Adobe Stock)
+
+![](20260711_BoneyardBeach_1920x1080.jpg)
+
 #### 20260711 圣古斯坦港, 欧赖, 布列塔尼, 法国 (© Rolf E. Staerk/Shutterstock)
 
 ![](20260711_AurayBrittany_1920x1080.jpg)

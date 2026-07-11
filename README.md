@@ -2,6 +2,10 @@
 
 ![](images/2026-07/20260711_LemonShark_1920x1080.jpg)
 
+#### 20260711 Driftwood on Boneyard Beach, Hunting Island, South Carolina (© Frances/Adobe Stock)
+
+![](images/2026-07/20260711_BoneyardBeach_1920x1080.jpg)
+
 #### 20260711 圣古斯坦港, 欧赖, 布列塔尼, 法国 (© Rolf E. Staerk/Shutterstock)
 
 ![](images/2026-07/20260711_AurayBrittany_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260702 Ceiling of the Temple of Esna, Egypt (© Nick Brundle Photography/Getty Images)
 
 ![](images/2026-07/20260702_TempleEsna_1920x1080.jpg)
-
-#### 20260701 Sonnenuntergang über den Weinbergen von Steinhaldenfeld im Neckartal bei Stuttgart, Baden-Württemberg (© Cyril Gosselin/Getty Images)
-
-![](images/2026-07/20260701_NeckarVineyards_1920x1080.jpg)
 
 
 
