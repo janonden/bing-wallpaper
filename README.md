@@ -1,3 +1,7 @@
+#### 20260712 卡塔丁森林和水域国家纪念地，缅因州，美国 (© Cavan Images/Offset/Shutterstock)
+
+![](images/2026-07/20260712_KatahdinWWNM_1920x1080.jpg)
+
 #### 20260712 Coral reef and beach in Raja Ampat, Indonesia (© SergeUWPhoto/Shutterstock)
 
 ![](images/2026-07/20260712_CoralAwareness_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260704 凯泽斯堡，阿尔萨斯，法国 (© Federica Gentile/Getty Images)
 
 ![](images/2026-07/20260704_KaysersbergVillage_1920x1080.jpg)
-
-#### 20260703 Fireflies glowing above a stream, Okayama Prefecture, Japan (© tdub303/Getty Images)
-
-![](images/2026-07/20260703_FirefliesJapan_1920x1080.jpg)
 
 
 

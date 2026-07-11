@@ -1,3 +1,7 @@
+#### 20260712 卡塔丁森林和水域国家纪念地，缅因州，美国 (© Cavan Images/Offset/Shutterstock)
+
+![](20260712_KatahdinWWNM_1920x1080.jpg)
+
 #### 20260712 Coral reef and beach in Raja Ampat, Indonesia (© SergeUWPhoto/Shutterstock)
 
 ![](20260712_CoralAwareness_1920x1080.jpg)
