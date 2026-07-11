@@ -1,3 +1,7 @@
+#### 20260712 Coral reef and beach in Raja Ampat, Indonesia (© SergeUWPhoto/Shutterstock)
+
+![](20260712_CoralAwareness_1920x1080.jpg)
+
 #### 20260711 Lemon shark pup in mangrove forest, Eleuthera, Bahamas (© Shane Gross/Nature Picture Library)
 
 ![](20260711_LemonShark_1920x1080.jpg)
@@ -6,7 +10,7 @@
 
 ![](20260711_BoneyardBeach_1920x1080.jpg)
 
-#### 20260711 圣古斯坦港, 欧赖, 布列塔尼, 法国 (© Rolf E. Staerk/Shutterstock)
+#### 20260711 Port de Saint-Goustan, Auray, Brittany, France (© Rolf E. Staerk/Shutterstock)
 
 ![](20260711_AurayBrittany_1920x1080.jpg)
 
