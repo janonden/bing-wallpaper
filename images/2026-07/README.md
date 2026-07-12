@@ -1,3 +1,7 @@
+#### 20260713 羚羊峡谷，纳瓦霍族保留地，亚利桑那州，美国 (© Mark Skalny/Getty Images)
+
+![](20260713_NavajoSandstone_1920x1080.jpg)
+
 #### 20260712 Katahdin Woods and Waters National Monument, Maine (© Cavan Images/Offset/Shutterstock)
 
 ![](20260712_KatahdinWWNM_1920x1080.jpg)

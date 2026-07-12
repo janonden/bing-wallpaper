@@ -1,3 +1,7 @@
+#### 20260713 羚羊峡谷，纳瓦霍族保留地，亚利桑那州，美国 (© Mark Skalny/Getty Images)
+
+![](images/2026-07/20260713_NavajoSandstone_1920x1080.jpg)
+
 #### 20260712 Katahdin Woods and Waters National Monument, Maine (© Cavan Images/Offset/Shutterstock)
 
 ![](images/2026-07/20260712_KatahdinWWNM_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260704 Liberty Bell and Independence Hall, Independence National Historical Park, Philadelphia, Pennsylvania (© f11photo/Shutterstock)
 
 ![](images/2026-07/20260704_LibertyHall_1920x1080.jpg)
-
-#### 20260704 凯泽斯堡，阿尔萨斯，法国 (© Federica Gentile/Getty Images)
-
-![](images/2026-07/20260704_KaysersbergVillage_1920x1080.jpg)
 
 
 
