@@ -2,6 +2,10 @@
 
 ![](images/2026-07/20260713_NavajoSandstone_1920x1080.jpg)
 
+#### 20260713 München mit der Frauenkirche vor den Alpen, Bayern (© MarcelStrelow/Getty Images)
+
+![](images/2026-07/20260713_MunichTwilight_1920x1080.jpg)
+
 #### 20260712 Katahdin Woods and Waters National Monument, Maine (© Cavan Images/Offset/Shutterstock)
 
 ![](images/2026-07/20260712_KatahdinWWNM_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260704 Plate-billed mountain toucan with orchids, Ecuador (© Murray Cooper/Minden Pictures)
 
 ![](images/2026-07/20260704_MountainToucanOrchids_1920x1080.jpg)
-
-#### 20260704 Liberty Bell and Independence Hall, Independence National Historical Park, Philadelphia, Pennsylvania (© f11photo/Shutterstock)
-
-![](images/2026-07/20260704_LibertyHall_1920x1080.jpg)
 
 
 
