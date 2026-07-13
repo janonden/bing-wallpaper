@@ -1,4 +1,4 @@
-#### 20260713 羚羊峡谷，纳瓦霍族保留地，亚利桑那州，美国 (© Mark Skalny/Getty Images)
+#### 20260713 Antelope Canyon on the Navajo Nation, east of Page, Arizona (© Mark Skalny/Getty Images)
 
 ![](20260713_NavajoSandstone_1920x1080.jpg)
 
