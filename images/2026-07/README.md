@@ -1,3 +1,7 @@
+#### 20260715 玛丽湖，约翰·缪尔荒野（毕晓普附近），加利福尼亚州，美国 (© Steve Dunleavy/Getty Images)
+
+![](20260715_MarieLake_1920x1080.jpg)
+
 #### 20260714 Feux d’artifice face à la basilique du Sacré-Cœur, Montmartre, Paris (© marc_land/Getty Images)
 
 ![](20260714_BastilleSacreCoeur_1920x1080.jpg)

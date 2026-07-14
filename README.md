@@ -1,3 +1,7 @@
+#### 20260715 玛丽湖，约翰·缪尔荒野（毕晓普附近），加利福尼亚州，美国 (© Steve Dunleavy/Getty Images)
+
+![](images/2026-07/20260715_MarieLake_1920x1080.jpg)
+
 #### 20260714 Feux d’artifice face à la basilique du Sacré-Cœur, Montmartre, Paris (© marc_land/Getty Images)
 
 ![](images/2026-07/20260714_BastilleSacreCoeur_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260706 Syracuse at sunset, Sicily, Italy (© Balate Dorin/Getty Images)
 
 ![](images/2026-07/20260706_SyracuseItaly_1920x1080.jpg)
-
-#### 20260705 Lavender rows, Plateau de Valensole, Provence, France (© Robert Harding/Shutterstock)
-
-![](images/2026-07/20260705_LavenderRows_1920x1080.jpg)
 
 
 
