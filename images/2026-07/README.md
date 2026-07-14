@@ -1,3 +1,7 @@
+#### 20260714 Feux d’artifice face à la basilique du Sacré-Cœur, Montmartre, Paris (© marc_land/Getty Images)
+
+![](20260714_BastilleSacreCoeur_1920x1080.jpg)
+
 #### 20260713 Antelope Canyon on the Navajo Nation, east of Page, Arizona (© Mark Skalny/Getty Images)
 
 ![](20260713_NavajoSandstone_1920x1080.jpg)

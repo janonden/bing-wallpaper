@@ -1,3 +1,7 @@
+#### 20260714 Feux d’artifice face à la basilique du Sacré-Cœur, Montmartre, Paris (© marc_land/Getty Images)
+
+![](images/2026-07/20260714_BastilleSacreCoeur_1920x1080.jpg)
+
 #### 20260713 Antelope Canyon on the Navajo Nation, east of Page, Arizona (© Mark Skalny/Getty Images)
 
 ![](images/2026-07/20260713_NavajoSandstone_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260705 Lavender rows, Plateau de Valensole, Provence, France (© Robert Harding/Shutterstock)
 
 ![](images/2026-07/20260705_LavenderRows_1920x1080.jpg)
-
-#### 20260704 Plate-billed mountain toucan with orchids, Ecuador (© Murray Cooper/Minden Pictures)
-
-![](images/2026-07/20260704_MountainToucanOrchids_1920x1080.jpg)
 
 
 
