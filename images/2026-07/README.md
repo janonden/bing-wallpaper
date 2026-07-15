@@ -1,3 +1,7 @@
+#### 20260716 海军码头，芝加哥，伊利诺伊州，美国 (© Christopher.F Photography/Getty Images)
+
+![](20260716_NavyPier_1920x1080.jpg)
+
 #### 20260715 Marie Lake, John Muir Wilderness near Bishop, California (© Steve Dunleavy/Getty Images)
 
 ![](20260715_MarieLake_1920x1080.jpg)

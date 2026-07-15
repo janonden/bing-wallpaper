@@ -1,3 +1,7 @@
+#### 20260716 海军码头，芝加哥，伊利诺伊州，美国 (© Christopher.F Photography/Getty Images)
+
+![](images/2026-07/20260716_NavyPier_1920x1080.jpg)
+
 #### 20260715 Marie Lake, John Muir Wilderness near Bishop, California (© Steve Dunleavy/Getty Images)
 
 ![](images/2026-07/20260715_MarieLake_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260707 七夕まつりの吹き流し, 宮城県 仙台市 (© kororokerokero/Getty Images)
 
 ![](images/2026-07/20260707_Tanabata_1920x1080.jpg)
-
-#### 20260706 Syracuse at sunset, Sicily, Italy (© Balate Dorin/Getty Images)
-
-![](images/2026-07/20260706_SyracuseItaly_1920x1080.jpg)
 
 
 
