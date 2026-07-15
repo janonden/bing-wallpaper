@@ -1,4 +1,4 @@
-#### 20260715 玛丽湖，约翰·缪尔荒野（毕晓普附近），加利福尼亚州，美国 (© Steve Dunleavy/Getty Images)
+#### 20260715 Marie Lake, John Muir Wilderness near Bishop, California (© Steve Dunleavy/Getty Images)
 
 ![](images/2026-07/20260715_MarieLake_1920x1080.jpg)
 
