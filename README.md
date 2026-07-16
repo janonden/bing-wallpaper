@@ -1,4 +1,4 @@
-#### 20260716 海军码头，芝加哥，伊利诺伊州，美国 (© Christopher.F Photography/Getty Images)
+#### 20260716 Navy Pier, Chicago, Illinois (© Christopher.F Photography/Getty Images)
 
 ![](images/2026-07/20260716_NavyPier_1920x1080.jpg)
 
