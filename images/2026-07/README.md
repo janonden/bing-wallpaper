@@ -1,3 +1,11 @@
+#### 20260717 瓦伊海滩上的日光浴躺椅，克里特岛，希腊 (© borchee/Getty Images)
+
+![](20260717_VaiUmbrellas_1920x1080.jpg)
+
+#### 20260717 八坂神社の神紋が描かれた提灯, 京都府 京都市 (© Felix Choo/Alamy)
+
+![](20260717_GionFestival_1920x1080.jpg)
+
 #### 20260716 Navy Pier, Chicago, Illinois (© Christopher.F Photography/Getty Images)
 
 ![](20260716_NavyPier_1920x1080.jpg)
