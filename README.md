@@ -2,6 +2,10 @@
 
 ![](images/2026-07/20260717_VaiUmbrellas_1920x1080.jpg)
 
+#### 20260717 A prairie storm gathers over grain silos in Saskatchewan (© mysticenergy/Getty Images)
+
+![](images/2026-07/20260717_GrainSilosSK_1920x1080.jpg)
+
 #### 20260717 八坂神社の神紋が描かれた提灯, 京都府 京都市 (© Felix Choo/Alamy)
 
 ![](images/2026-07/20260717_GionFestival_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260710 Aerial view of land and ocean, Victoria, Australia (© Nearmap/Getty Images)
 
 ![](images/2026-07/20260710_VictoriaBeach_1920x1080.jpg)
-
-#### 20260710 Pink wildflowers by Emerald Lake in summer, Yoho National Park, British Columbia (© Olga Matveeva/Getty Images)
-
-![](images/2026-07/20260710_SummerBC_1920x1080.jpg)
 
 
 
