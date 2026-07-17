@@ -1,4 +1,4 @@
-#### 20260717 瓦伊海滩上的日光浴躺椅，克里特岛，希腊 (© borchee/Getty Images)
+#### 20260717 Sunbeds on the beach at Vai, Crete, Greece (© borchee/Getty Images)
 
 ![](images/2026-07/20260717_VaiUmbrellas_1920x1080.jpg)
 
