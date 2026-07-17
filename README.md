@@ -1,3 +1,7 @@
+#### 20260718 恶魔桥在克罗姆劳杜鹃花公园，萨克森州，德国 (© Mike Mareen/Getty Images)
+
+![](images/2026-07/20260718_DevilsBridge_1920x1080.jpg)
+
 #### 20260717 Sunbeds on the beach at Vai, Crete, Greece (© borchee/Getty Images)
 
 ![](images/2026-07/20260717_VaiUmbrellas_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260711 Port de Saint-Goustan, Auray, Brittany, France (© Rolf E. Staerk/Shutterstock)
 
 ![](images/2026-07/20260711_AurayBrittany_1920x1080.jpg)
-
-#### 20260710 Aerial view of land and ocean, Victoria, Australia (© Nearmap/Getty Images)
-
-![](images/2026-07/20260710_VictoriaBeach_1920x1080.jpg)
 
 
 

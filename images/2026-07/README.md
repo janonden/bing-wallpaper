@@ -1,3 +1,7 @@
+#### 20260718 恶魔桥在克罗姆劳杜鹃花公园，萨克森州，德国 (© Mike Mareen/Getty Images)
+
+![](20260718_DevilsBridge_1920x1080.jpg)
+
 #### 20260717 Sunbeds on the beach at Vai, Crete, Greece (© borchee/Getty Images)
 
 ![](20260717_VaiUmbrellas_1920x1080.jpg)
