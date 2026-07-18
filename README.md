@@ -1,3 +1,7 @@
+#### 20260719 不同亚种的家燕聚在一起休息 (© Oscar Dominguez/Tandem Stills + Motion)
+
+![](images/2026-07/20260719_HirundoRustica_1920x1080.jpg)
+
 #### 20260718 Devil's Bridge in Rhododendron Park Kromlau, Saxony, Germany (© Mike Mareen/Getty Images)
 
 ![](images/2026-07/20260718_DevilsBridge_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260711 Driftwood on Boneyard Beach, Hunting Island, South Carolina (© Frances/Adobe Stock)
 
 ![](images/2026-07/20260711_BoneyardBeach_1920x1080.jpg)
-
-#### 20260711 Port de Saint-Goustan, Auray, Brittany, France (© Rolf E. Staerk/Shutterstock)
-
-![](images/2026-07/20260711_AurayBrittany_1920x1080.jpg)
 
 
 
