@@ -1,4 +1,4 @@
-#### 20260718 恶魔桥在克罗姆劳杜鹃花公园，萨克森州，德国 (© Mike Mareen/Getty Images)
+#### 20260718 Devil's Bridge in Rhododendron Park Kromlau, Saxony, Germany (© Mike Mareen/Getty Images)
 
 ![](images/2026-07/20260718_DevilsBridge_1920x1080.jpg)
 
