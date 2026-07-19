@@ -1,4 +1,4 @@
-#### 20260719 不同亚种的家燕聚在一起休息 (© Oscar Dominguez/Tandem Stills + Motion)
+#### 20260719 Barn swallows of different subspecies resting together (© Oscar Dominguez/Tandem Stills + Motion)
 
 ![](20260719_HirundoRustica_1920x1080.jpg)
 
