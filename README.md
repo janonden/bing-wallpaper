@@ -1,3 +1,7 @@
+#### 20260720 月球与地球由阿耳忒弥斯2号机组人员拍摄 (© NASA)
+
+![](images/2026-07/20260720_Artemis_1920x1080.jpg)
+
 #### 20260719 Barn swallows of different subspecies resting together (© Oscar Dominguez/Tandem Stills + Motion)
 
 ![](images/2026-07/20260719_HirundoRustica_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260711 Lemon shark pup in mangrove forest, Eleuthera, Bahamas (© Shane Gross/Nature Picture Library)
 
 ![](images/2026-07/20260711_LemonShark_1920x1080.jpg)
-
-#### 20260711 Driftwood on Boneyard Beach, Hunting Island, South Carolina (© Frances/Adobe Stock)
-
-![](images/2026-07/20260711_BoneyardBeach_1920x1080.jpg)
 
 
 
