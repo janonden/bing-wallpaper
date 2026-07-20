@@ -1,4 +1,4 @@
-#### 20260720 月球与地球由阿耳忒弥斯2号机组人员拍摄 (© NASA)
+#### 20260720 Moon and Earth captured by the Artemis II crew (© NASA)
 
 ![](20260720_Artemis_1920x1080.jpg)
 
