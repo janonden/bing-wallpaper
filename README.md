@@ -1,3 +1,11 @@
+#### 20260721 圣卡塔琳娜拱门，安提瓜，危地马拉 (© Filippo Maria Bianchi/Getty Images)
+
+![](images/2026-07/20260721_SantaCatalina_1920x1080.jpg)
+
+#### 20260721 川越氷川神社, 埼玉県 川越市 (© kudosstudio/Adobe)
+
+![](images/2026-07/20260721_Kawagoe_1920x1080.jpg)
+
 #### 20260720 Moon and Earth captured by the Artemis II crew (© NASA)
 
 ![](images/2026-07/20260720_Artemis_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20260712 Katahdin Woods and Waters National Monument, Maine (© Cavan Images/Offset/Shutterstock)
 
 ![](images/2026-07/20260712_KatahdinWWNM_1920x1080.jpg)
-
-#### 20260712 Coral reef and beach in Raja Ampat, Indonesia (© SergeUWPhoto/Shutterstock)
-
-![](images/2026-07/20260712_CoralAwareness_1920x1080.jpg)
-
-#### 20260711 Lemon shark pup in mangrove forest, Eleuthera, Bahamas (© Shane Gross/Nature Picture Library)
-
-![](images/2026-07/20260711_LemonShark_1920x1080.jpg)
 
 
 

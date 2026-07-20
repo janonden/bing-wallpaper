@@ -1,3 +1,11 @@
+#### 20260721 圣卡塔琳娜拱门，安提瓜，危地马拉 (© Filippo Maria Bianchi/Getty Images)
+
+![](20260721_SantaCatalina_1920x1080.jpg)
+
+#### 20260721 川越氷川神社, 埼玉県 川越市 (© kudosstudio/Adobe)
+
+![](20260721_Kawagoe_1920x1080.jpg)
+
 #### 20260720 Moon and Earth captured by the Artemis II crew (© NASA)
 
 ![](20260720_Artemis_1920x1080.jpg)
