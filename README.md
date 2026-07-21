@@ -1,4 +1,4 @@
-#### 20260721 圣卡塔琳娜拱门，安提瓜，危地马拉 (© Filippo Maria Bianchi/Getty Images)
+#### 20260721 Santa Catalina Arch, Antigua, Guatemala (© Filippo Maria Bianchi/Getty Images)
 
 ![](images/2026-07/20260721_SantaCatalina_1920x1080.jpg)
 
