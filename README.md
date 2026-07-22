@@ -1,3 +1,7 @@
+#### 20260723 粉红色大丽花 (© Harald Biebel/Getty Images)
+
+![](images/2026-07/20260723_PinkDahlia_1920x1080.jpg)
+
 #### 20260722 Sommer am Eibsee bei Garmisch-Partenkirchen mit Blick auf die Zugspitze, Bayern (© DieterMeyrl/Getty Images)
 
 ![](images/2026-07/20260722_EibseeSummer_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260713 Antelope Canyon on the Navajo Nation, east of Page, Arizona (© Mark Skalny/Getty Images)
 
 ![](images/2026-07/20260713_NavajoSandstone_1920x1080.jpg)
-
-#### 20260713 München mit der Frauenkirche vor den Alpen, Bayern (© MarcelStrelow/Getty Images)
-
-![](images/2026-07/20260713_MunichTwilight_1920x1080.jpg)
 
 
 

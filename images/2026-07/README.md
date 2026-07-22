@@ -1,3 +1,7 @@
+#### 20260723 粉红色大丽花 (© Harald Biebel/Getty Images)
+
+![](20260723_PinkDahlia_1920x1080.jpg)
+
 #### 20260722 Sommer am Eibsee bei Garmisch-Partenkirchen mit Blick auf die Zugspitze, Bayern (© DieterMeyrl/Getty Images)
 
 ![](20260722_EibseeSummer_1920x1080.jpg)
