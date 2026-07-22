@@ -2,6 +2,10 @@
 
 ![](20260723_PinkDahlia_1920x1080.jpg)
 
+#### 20260723 Port de Saint-Goustan, Auray, Brittany, France (© Rolf E. Staerk/Shutterstock)
+
+![](20260723_AurayBrittany_1920x1080.jpg)
+
 #### 20260722 Sommer am Eibsee bei Garmisch-Partenkirchen mit Blick auf die Zugspitze, Bayern (© DieterMeyrl/Getty Images)
 
 ![](20260722_EibseeSummer_1920x1080.jpg)

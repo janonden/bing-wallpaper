@@ -2,6 +2,10 @@
 
 ![](images/2026-07/20260723_PinkDahlia_1920x1080.jpg)
 
+#### 20260723 Port de Saint-Goustan, Auray, Brittany, France (© Rolf E. Staerk/Shutterstock)
+
+![](images/2026-07/20260723_AurayBrittany_1920x1080.jpg)
+
 #### 20260722 Sommer am Eibsee bei Garmisch-Partenkirchen mit Blick auf die Zugspitze, Bayern (© DieterMeyrl/Getty Images)
 
 ![](images/2026-07/20260722_EibseeSummer_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260714 Feux d’artifice face à la basilique du Sacré-Cœur, Montmartre, Paris (© marc_land/Getty Images)
 
 ![](images/2026-07/20260714_BastilleSacreCoeur_1920x1080.jpg)
-
-#### 20260713 Antelope Canyon on the Navajo Nation, east of Page, Arizona (© Mark Skalny/Getty Images)
-
-![](images/2026-07/20260713_NavajoSandstone_1920x1080.jpg)
 
 
 
