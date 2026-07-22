@@ -1,3 +1,7 @@
+#### 20260722 Sommer am Eibsee bei Garmisch-Partenkirchen mit Blick auf die Zugspitze, Bayern (© DieterMeyrl/Getty Images)
+
+![](images/2026-07/20260722_EibseeSummer_1920x1080.jpg)
+
 #### 20260721 Santa Catalina Arch, Antigua, Guatemala (© Filippo Maria Bianchi/Getty Images)
 
 ![](images/2026-07/20260721_SantaCatalina_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260713 München mit der Frauenkirche vor den Alpen, Bayern (© MarcelStrelow/Getty Images)
 
 ![](images/2026-07/20260713_MunichTwilight_1920x1080.jpg)
-
-#### 20260712 Katahdin Woods and Waters National Monument, Maine (© Cavan Images/Offset/Shutterstock)
-
-![](images/2026-07/20260712_KatahdinWWNM_1920x1080.jpg)
 
 
 

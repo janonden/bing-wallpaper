@@ -1,3 +1,7 @@
+#### 20260722 Sommer am Eibsee bei Garmisch-Partenkirchen mit Blick auf die Zugspitze, Bayern (© DieterMeyrl/Getty Images)
+
+![](20260722_EibseeSummer_1920x1080.jpg)
+
 #### 20260721 Santa Catalina Arch, Antigua, Guatemala (© Filippo Maria Bianchi/Getty Images)
 
 ![](20260721_SantaCatalina_1920x1080.jpg)
