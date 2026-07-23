@@ -1,3 +1,7 @@
+#### 20260724 美洲红鹳群在伊莎贝拉岛，加拉帕戈斯群岛，厄瓜多尔 (© Tui De Roy/Nature Picture Library)
+
+![](images/2026-07/20260724_GalapagosFlamingos_1920x1080.jpg)
+
 #### 20260723 Pink dahlia flower (© Harald Biebel/Getty Images)
 
 ![](images/2026-07/20260723_PinkDahlia_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260715 Marie Lake, John Muir Wilderness near Bishop, California (© Steve Dunleavy/Getty Images)
 
 ![](images/2026-07/20260715_MarieLake_1920x1080.jpg)
-
-#### 20260714 Feux d’artifice face à la basilique du Sacré-Cœur, Montmartre, Paris (© marc_land/Getty Images)
-
-![](images/2026-07/20260714_BastilleSacreCoeur_1920x1080.jpg)
 
 
 

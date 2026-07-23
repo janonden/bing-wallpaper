@@ -1,3 +1,7 @@
+#### 20260724 美洲红鹳群在伊莎贝拉岛，加拉帕戈斯群岛，厄瓜多尔 (© Tui De Roy/Nature Picture Library)
+
+![](20260724_GalapagosFlamingos_1920x1080.jpg)
+
 #### 20260723 Pink dahlia flower (© Harald Biebel/Getty Images)
 
 ![](20260723_PinkDahlia_1920x1080.jpg)
