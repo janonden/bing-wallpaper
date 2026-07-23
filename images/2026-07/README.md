@@ -1,4 +1,4 @@
-#### 20260723 粉红色大丽花 (© Harald Biebel/Getty Images)
+#### 20260723 Pink dahlia flower (© Harald Biebel/Getty Images)
 
 ![](20260723_PinkDahlia_1920x1080.jpg)
 
