@@ -1,4 +1,4 @@
-#### 20260724 美洲红鹳群在伊莎贝拉岛，加拉帕戈斯群岛，厄瓜多尔 (© Tui De Roy/Nature Picture Library)
+#### 20260724 Flock of American flamingos, Isabela Island, Galápagos Islands, Ecuador (© Tui De Roy/Nature Picture Library)
 
 ![](images/2026-07/20260724_GalapagosFlamingos_1920x1080.jpg)
 
