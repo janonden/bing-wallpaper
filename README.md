@@ -1,3 +1,7 @@
+#### 20260725 大教堂海滩，加利西亚，西班牙 (© Tui De Roy/Amazing Aerial Agency/Abobe Stock)
+
+![](images/2026-07/20260725_GaliciaBeach_1920x1080.jpg)
+
 #### 20260724 Flock of American flamingos, Isabela Island, Galápagos Islands, Ecuador (© Tui De Roy/Nature Picture Library)
 
 ![](images/2026-07/20260724_GalapagosFlamingos_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260716 Cerf sika dans l’herbe, parc de Merlet, Haute-Savoie (© porojnicu/Getty Images)
 
 ![](images/2026-07/20260716_DeerGrass_1920x1080.jpg)
-
-#### 20260715 Marie Lake, John Muir Wilderness near Bishop, California (© Steve Dunleavy/Getty Images)
-
-![](images/2026-07/20260715_MarieLake_1920x1080.jpg)
 
 
 

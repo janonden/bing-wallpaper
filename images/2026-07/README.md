@@ -1,3 +1,7 @@
+#### 20260725 大教堂海滩，加利西亚，西班牙 (© Tui De Roy/Amazing Aerial Agency/Abobe Stock)
+
+![](20260725_GaliciaBeach_1920x1080.jpg)
+
 #### 20260724 Flock of American flamingos, Isabela Island, Galápagos Islands, Ecuador (© Tui De Roy/Nature Picture Library)
 
 ![](20260724_GalapagosFlamingos_1920x1080.jpg)
