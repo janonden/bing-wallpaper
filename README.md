@@ -18,6 +18,10 @@
 
 ![](images/2026-07/20260722_EibseeSummer_1920x1080.jpg)
 
+#### 20260722 Coral reef and beach in Raja Ampat, Indonesia (© SergeUWPhoto/Shutterstock)
+
+![](images/2026-07/20260722_CoralAwareness_1920x1080.jpg)
+
 #### 20260721 Santa Catalina Arch, Antigua, Guatemala (© Filippo Maria Bianchi/Getty Images)
 
 ![](images/2026-07/20260721_SantaCatalina_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260716 Navy Pier, Chicago, Illinois (© Christopher.F Photography/Getty Images)
 
 ![](images/2026-07/20260716_NavyPier_1920x1080.jpg)
-
-#### 20260716 Cerf sika dans l’herbe, parc de Merlet, Haute-Savoie (© porojnicu/Getty Images)
-
-![](images/2026-07/20260716_DeerGrass_1920x1080.jpg)
 
 
 

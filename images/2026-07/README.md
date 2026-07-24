@@ -18,6 +18,10 @@
 
 ![](20260722_EibseeSummer_1920x1080.jpg)
 
+#### 20260722 Coral reef and beach in Raja Ampat, Indonesia (© SergeUWPhoto/Shutterstock)
+
+![](20260722_CoralAwareness_1920x1080.jpg)
+
 #### 20260721 Santa Catalina Arch, Antigua, Guatemala (© Filippo Maria Bianchi/Getty Images)
 
 ![](20260721_SantaCatalina_1920x1080.jpg)
