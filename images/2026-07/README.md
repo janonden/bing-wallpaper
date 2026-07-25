@@ -1,3 +1,7 @@
+#### 20260725 Fernsehturm am Alexanderplatz mit Regenbogen, Berlin (© fhm/Getty Images)
+
+![](20260725_PrideBerlin_1920x1080.jpg)
+
 #### 20260725 大教堂海滩，加利西亚，西班牙 (© Tui De Roy/Amazing Aerial Agency/Abobe Stock)
 
 ![](20260725_GaliciaBeach_1920x1080.jpg)

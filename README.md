@@ -1,3 +1,7 @@
+#### 20260725 Fernsehturm am Alexanderplatz mit Regenbogen, Berlin (© fhm/Getty Images)
+
+![](images/2026-07/20260725_PrideBerlin_1920x1080.jpg)
+
 #### 20260725 大教堂海滩，加利西亚，西班牙 (© Tui De Roy/Amazing Aerial Agency/Abobe Stock)
 
 ![](images/2026-07/20260725_GaliciaBeach_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260717 八坂神社の神紋が描かれた提灯, 京都府 京都市 (© Felix Choo/Alamy)
 
 ![](images/2026-07/20260717_GionFestival_1920x1080.jpg)
-
-#### 20260716 Navy Pier, Chicago, Illinois (© Christopher.F Photography/Getty Images)
-
-![](images/2026-07/20260716_NavyPier_1920x1080.jpg)
 
 
 
