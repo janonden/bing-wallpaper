@@ -1,3 +1,7 @@
+#### 20260726 红树上的日出在小猪群岛，洪都拉斯 (© Mac Stone/Tandem Stills + Motion)
+
+![](images/2026-07/20260726_RedMangroveSunrise_1920x1080.jpg)
+
 #### 20260726 Isla Cristina, Huelva, Spain (© MEDITERRANEAN/Getty Images)
 
 ![](images/2026-07/20260726_IslaCristina_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260717 Sunbeds on the beach at Vai, Crete, Greece (© borchee/Getty Images)
 
 ![](images/2026-07/20260717_VaiUmbrellas_1920x1080.jpg)
-
-#### 20260717 A prairie storm gathers over grain silos in Saskatchewan (© mysticenergy/Getty Images)
-
-![](images/2026-07/20260717_GrainSilosSK_1920x1080.jpg)
 
 
 
