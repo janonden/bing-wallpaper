@@ -1,4 +1,4 @@
-#### 20260726 红树上的日出在小猪群岛，洪都拉斯 (© Mac Stone/Tandem Stills + Motion)
+#### 20260726 Sunrise on a red mangrove in the Pig Keys, Honduras (© Mac Stone/Tandem Stills + Motion)
 
 ![](images/2026-07/20260726_RedMangroveSunrise_1920x1080.jpg)
 
