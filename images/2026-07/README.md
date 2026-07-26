@@ -1,3 +1,7 @@
+#### 20260727 蒂芙尼穹顶，芝加哥文化中心，伊利诺伊州，美国 (© Felix Lipov/Shutterstock)
+
+![](20260727_ChicagoTiffany_1920x1080.jpg)
+
 #### 20260726 Sunrise on a red mangrove in the Pig Keys, Honduras (© Mac Stone/Tandem Stills + Motion)
 
 ![](20260726_RedMangroveSunrise_1920x1080.jpg)

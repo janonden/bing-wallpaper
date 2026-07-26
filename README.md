@@ -1,3 +1,7 @@
+#### 20260727 蒂芙尼穹顶，芝加哥文化中心，伊利诺伊州，美国 (© Felix Lipov/Shutterstock)
+
+![](images/2026-07/20260727_ChicagoTiffany_1920x1080.jpg)
+
 #### 20260726 Sunrise on a red mangrove in the Pig Keys, Honduras (© Mac Stone/Tandem Stills + Motion)
 
 ![](images/2026-07/20260726_RedMangroveSunrise_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260718 Devil's Bridge in Rhododendron Park Kromlau, Saxony, Germany (© Mike Mareen/Getty Images)
 
 ![](images/2026-07/20260718_DevilsBridge_1920x1080.jpg)
-
-#### 20260717 Sunbeds on the beach at Vai, Crete, Greece (© borchee/Getty Images)
-
-![](images/2026-07/20260717_VaiUmbrellas_1920x1080.jpg)
 
 
 
