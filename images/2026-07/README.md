@@ -2,6 +2,14 @@
 
 ![](20260728_SummerBC_1920x1080.jpg)
 
+#### 20260728 ケゼルスベール, フランス (© Federica Gentile/Getty Images)
+
+![](20260728_KaysersbergVillage_1920x1080.jpg)
+
+#### 20260728 一片海藻林在安纳卡帕岛附近，海峡群岛国家公园，加利福尼亚州，美国 (© Ian Shive/Tandem Stills + Motion)
+
+![](20260728_ChannelKelp_1920x1080.jpg)
+
 #### 20260727 Canoë-kayaks au cœur des gorges du Verdon, Provence-Alpes-Côte d'Azur (© Joran Maaswinkel Fotografie/Getty Images)
 
 ![](20260727_VerdonKayaks_1920x1080.jpg)

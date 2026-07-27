@@ -2,6 +2,14 @@
 
 ![](images/2026-07/20260728_SummerBC_1920x1080.jpg)
 
+#### 20260728 ケゼルスベール, フランス (© Federica Gentile/Getty Images)
+
+![](images/2026-07/20260728_KaysersbergVillage_1920x1080.jpg)
+
+#### 20260728 一片海藻林在安纳卡帕岛附近，海峡群岛国家公园，加利福尼亚州，美国 (© Ian Shive/Tandem Stills + Motion)
+
+![](images/2026-07/20260728_ChannelKelp_1920x1080.jpg)
+
 #### 20260727 Canoë-kayaks au cœur des gorges du Verdon, Provence-Alpes-Côte d'Azur (© Joran Maaswinkel Fotografie/Getty Images)
 
 ![](images/2026-07/20260727_VerdonKayaks_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20260721 Santa Catalina Arch, Antigua, Guatemala (© Filippo Maria Bianchi/Getty Images)
 
 ![](images/2026-07/20260721_SantaCatalina_1920x1080.jpg)
-
-#### 20260721 川越氷川神社, 埼玉県 川越市 (© kudosstudio/Adobe)
-
-![](images/2026-07/20260721_Kawagoe_1920x1080.jpg)
-
-#### 20260720 Moon and Earth captured by the Artemis II crew (© NASA)
-
-![](images/2026-07/20260720_Artemis_1920x1080.jpg)
 
 
 
