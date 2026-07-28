@@ -6,7 +6,7 @@
 
 ![](20260728_KaysersbergVillage_1920x1080.jpg)
 
-#### 20260728 一片海藻林在安纳卡帕岛附近，海峡群岛国家公园，加利福尼亚州，美国 (© Ian Shive/Tandem Stills + Motion)
+#### 20260728 A kelp forest off Anacapa Island, Channel Islands National Park, California (© Ian Shive/Tandem Stills + Motion)
 
 ![](20260728_ChannelKelp_1920x1080.jpg)
 
