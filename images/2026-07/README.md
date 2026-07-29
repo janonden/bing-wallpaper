@@ -1,4 +1,4 @@
-#### 20260729 孟加拉虎一家在兰坦博尔国家公园，拉贾斯坦邦，印度 (© Archna Singh/Shutterstock)
+#### 20260729 A family of Bengal tigers at Ranthambore National Park, Rajasthan, India (© Archna Singh/Shutterstock)
 
 ![](20260729_TigerFamily_1920x1080.jpg)
 
