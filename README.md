@@ -1,3 +1,7 @@
+#### 20260730 在纳瓦霍族保留地的纪念碑谷，亚利桑那州，美国 (© Westend61/Adobe Stock)
+
+![](images/2026-07/20260730_NavajoNation_1920x1080.jpg)
+
 #### 20260729 A family of Bengal tigers at Ranthambore National Park, Rajasthan, India (© Archna Singh/Shutterstock)
 
 ![](images/2026-07/20260729_TigerFamily_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260722 Sommer am Eibsee bei Garmisch-Partenkirchen mit Blick auf die Zugspitze, Bayern (© DieterMeyrl/Getty Images)
 
 ![](images/2026-07/20260722_EibseeSummer_1920x1080.jpg)
-
-#### 20260722 Coral reef and beach in Raja Ampat, Indonesia (© SergeUWPhoto/Shutterstock)
-
-![](images/2026-07/20260722_CoralAwareness_1920x1080.jpg)
 
 
 
