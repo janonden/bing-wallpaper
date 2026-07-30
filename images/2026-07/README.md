@@ -2,7 +2,7 @@
 
 ![](20260730_WildJackalFriends_1920x1080.jpg)
 
-#### 20260730 在纳瓦霍族保留地的纪念碑谷，亚利桑那州，美国 (© Westend61/Adobe Stock)
+#### 20260730 Monument Valley, Navajo Nation, Arizona (© Westend61/Adobe Stock)
 
 ![](20260730_NavajoNation_1920x1080.jpg)
 
