@@ -1,6 +1,14 @@
+#### 20260730 Jeunes chacals sauvages dans le Bushveld, Afrique du Sud (© Jeff R Clow/Getty Images)
+
+![](images/2026-07/20260730_WildJackalFriends_1920x1080.jpg)
+
 #### 20260730 在纳瓦霍族保留地的纪念碑谷，亚利桑那州，美国 (© Westend61/Adobe Stock)
 
 ![](images/2026-07/20260730_NavajoNation_1920x1080.jpg)
+
+#### 20260730 Braunbärenjunges auf einem Felsen, Bayern (© Raimund Linke/Getty Images)
+
+![](images/2026-07/20260730_BearBavaria_1920x1080.jpg)
 
 #### 20260729 A family of Bengal tigers at Ranthambore National Park, Rajasthan, India (© Archna Singh/Shutterstock)
 
@@ -49,14 +57,6 @@
 #### 20260723 Pink dahlia flower (© Harald Biebel/Getty Images)
 
 ![](images/2026-07/20260723_PinkDahlia_1920x1080.jpg)
-
-#### 20260723 Port de Saint-Goustan, Auray, Brittany, France (© Rolf E. Staerk/Shutterstock)
-
-![](images/2026-07/20260723_AurayBrittany_1920x1080.jpg)
-
-#### 20260722 Sommer am Eibsee bei Garmisch-Partenkirchen mit Blick auf die Zugspitze, Bayern (© DieterMeyrl/Getty Images)
-
-![](images/2026-07/20260722_EibseeSummer_1920x1080.jpg)
 
 
 

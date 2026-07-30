@@ -1,6 +1,14 @@
+#### 20260730 Jeunes chacals sauvages dans le Bushveld, Afrique du Sud (© Jeff R Clow/Getty Images)
+
+![](20260730_WildJackalFriends_1920x1080.jpg)
+
 #### 20260730 在纳瓦霍族保留地的纪念碑谷，亚利桑那州，美国 (© Westend61/Adobe Stock)
 
 ![](20260730_NavajoNation_1920x1080.jpg)
+
+#### 20260730 Braunbärenjunges auf einem Felsen, Bayern (© Raimund Linke/Getty Images)
+
+![](20260730_BearBavaria_1920x1080.jpg)
 
 #### 20260729 A family of Bengal tigers at Ranthambore National Park, Rajasthan, India (© Archna Singh/Shutterstock)
 
