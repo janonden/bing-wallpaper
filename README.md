@@ -1,3 +1,7 @@
+#### 20260731 鸟瞰弗吉尼亚爬山虎步道，达马斯克斯，弗吉尼亚州，美国 (© Eifel Kreutz/Getty Images)
+
+![](images/2026-07/20260731_VirginiaTrail_1920x1080.jpg)
+
 #### 20260730 Jeunes chacals sauvages dans le Bushveld, Afrique du Sud (© Jeff R Clow/Getty Images)
 
 ![](images/2026-07/20260730_WildJackalFriends_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260724 Flock of American flamingos, Isabela Island, Galápagos Islands, Ecuador (© Tui De Roy/Nature Picture Library)
 
 ![](images/2026-07/20260724_GalapagosFlamingos_1920x1080.jpg)
-
-#### 20260723 Pink dahlia flower (© Harald Biebel/Getty Images)
-
-![](images/2026-07/20260723_PinkDahlia_1920x1080.jpg)
 
 
 
