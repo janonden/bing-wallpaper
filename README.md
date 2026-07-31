@@ -1,4 +1,4 @@
-#### 20260731 鸟瞰弗吉尼亚爬山虎步道，达马斯克斯，弗吉尼亚州，美国 (© Eifel Kreutz/Getty Images)
+#### 20260731 Aerial view of the Virginia Creeper Trail, Damascus, Virginia (© Eifel Kreutz/Getty Images)
 
 ![](images/2026-07/20260731_VirginiaTrail_1920x1080.jpg)
 
