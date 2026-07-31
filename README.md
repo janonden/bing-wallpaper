@@ -1,3 +1,11 @@
+#### 20260801 変わり種の金魚ねぷた, 青森県 弘前市 (© David Parker/Alamy)
+
+![](images/2026-08/20260801_HirosakiNeputa_1920x1080.jpg)
+
+#### 20260801 大批熔岩流涌入大洋，大岛，夏威夷州，美国 (© Ken McCurdy/Getty Images)
+
+![](images/2026-08/20260801_HawaiiLava_1920x1080.jpg)
+
 #### 20260731 Aerial view of the Virginia Creeper Trail, Damascus, Virginia (© Eifel Kreutz/Getty Images)
 
 ![](images/2026-07/20260731_VirginiaTrail_1920x1080.jpg)
@@ -50,14 +58,6 @@
 
 ![](images/2026-07/20260725_PrideBerlin_1920x1080.jpg)
 
-#### 20260725 Praia das Catedrais, Galicia, Spain (© Tui De Roy/Amazing Aerial Agency/Abobe Stock)
-
-![](images/2026-07/20260725_GaliciaBeach_1920x1080.jpg)
-
-#### 20260724 Flock of American flamingos, Isabela Island, Galápagos Islands, Ecuador (© Tui De Roy/Nature Picture Library)
-
-![](images/2026-07/20260724_GalapagosFlamingos_1920x1080.jpg)
-
 
 
 
@@ -66,7 +66,7 @@
 
 
 
-- 2026&emsp;&emsp;[07](images/2026-07/README.md) &emsp;&emsp;[06](images/2026-06/README.md) &emsp;&emsp;[05](images/2026-05/README.md) &emsp;&emsp;[04](images/2026-04/README.md) &emsp;&emsp;[03](images/2026-03/README.md) &emsp;&emsp;[02](images/2026-02/README.md) &emsp;&emsp;[01](images/2026-01/README.md) 
+- 2026&emsp;&emsp;[08](images/2026-08/README.md) &emsp;&emsp;[07](images/2026-07/README.md) &emsp;&emsp;[06](images/2026-06/README.md) &emsp;&emsp;[05](images/2026-05/README.md) &emsp;&emsp;[04](images/2026-04/README.md) &emsp;&emsp;[03](images/2026-03/README.md) &emsp;&emsp;[02](images/2026-02/README.md) &emsp;&emsp;[01](images/2026-01/README.md) 
 
 - 2025&emsp;&emsp;[12](https://github.com/janonden/bing-wallpaper/blob/2025/images/2025-12/README.md) &emsp;&emsp;[11](https://github.com/janonden/bing-wallpaper/blob/2025/images/2025-11/README.md) &emsp;&emsp;[10](https://github.com/janonden/bing-wallpaper/blob/2025/images/2025-10/README.md) &emsp;&emsp;[09](https://github.com/janonden/bing-wallpaper/blob/2025/images/2025-09/README.md) &emsp;&emsp;[08](https://github.com/janonden/bing-wallpaper/blob/2025/images/2025-08/README.md) &emsp;&emsp;[07](https://github.com/janonden/bing-wallpaper/blob/2025/images/2025-07/README.md) &emsp;&emsp;[06](https://github.com/janonden/bing-wallpaper/blob/2025/images/2025-06/README.md) &emsp;&emsp;[05](https://github.com/janonden/bing-wallpaper/blob/2025/images/2025-05/README.md) &emsp;&emsp;[04](https://github.com/janonden/bing-wallpaper/blob/2025/images/2025-04/README.md) &emsp;&emsp;[03](https://github.com/janonden/bing-wallpaper/blob/2025/images/2025-03/README.md) &emsp;&emsp;[02](https://github.com/janonden/bing-wallpaper/blob/2025/images/2025-02/README.md) &emsp;&emsp;[01](https://github.com/janonden/bing-wallpaper/blob/2025/images/2025-01/README.md) 
 
