@@ -6,7 +6,7 @@
 
 ![](20260801_HirosakiNeputa_1920x1080.jpg)
 
-#### 20260801 大批熔岩流涌入大洋，大岛，夏威夷州，美国 (© Ken McCurdy/Getty Images)
+#### 20260801 A series of lava flows spill into the ocean, Big Island, Hawaii (© Ken McCurdy/Getty Images)
 
 ![](20260801_HawaiiLava_1920x1080.jpg)
 
