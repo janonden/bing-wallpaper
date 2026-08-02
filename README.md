@@ -1,3 +1,7 @@
+#### 20260803 马尔萨什洛克港口五彩斑斓的渔船，马耳他 (© Klubovy/Getty Images)
+
+![](images/2026-08/20260803_BoatsMalta_1920x1080.jpg)
+
 #### 20260802 Helsinki's shoreline during blue hour, Uusimaa, Finland (© Miemo Penttinen/Getty Images)
 
 ![](images/2026-08/20260802_HelsinkiBlue_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260727 Tiffany Dome, Chicago Cultural Center, Illinois (© Felix Lipov/Shutterstock)
 
 ![](images/2026-07/20260727_ChicagoTiffany_1920x1080.jpg)
-
-#### 20260726 Sunrise on a red mangrove in the Pig Keys, Honduras (© Mac Stone/Tandem Stills + Motion)
-
-![](images/2026-07/20260726_RedMangroveSunrise_1920x1080.jpg)
 
 
 
