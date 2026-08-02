@@ -1,4 +1,4 @@
-#### 20260802 马尔萨什洛克港口五彩斑斓的渔船，马耳他 (© Klubovy/Getty Images)
+#### 20260802 Helsinki's shoreline during blue hour, Uusimaa, Finland (© Miemo Penttinen/Getty Images)
 
 ![](20260802_HelsinkiBlue_1920x1080.jpg)
 
