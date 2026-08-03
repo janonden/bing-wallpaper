@@ -1,4 +1,4 @@
-#### 20260803 马尔萨什洛克港口五彩斑斓的渔船，马耳他 (© Klubovy/Getty Images)
+#### 20260803 Colorful boats in Marsaxlokk Harbor, Malta (© Klubovy/Getty Images)
 
 ![](images/2026-08/20260803_BoatsMalta_1920x1080.jpg)
 
