@@ -1,3 +1,7 @@
+#### 20260804 佛罗里达穴鸮幼鸟，开普科拉尔，佛罗里达州，美国 (© mlorenzphotography/Getty Images)
+
+![](images/2026-08/20260804_AdorableOwlet_1920x1080.jpg)
+
 #### 20260803 Colorful boats in Marsaxlokk Harbor, Malta (© Klubovy/Getty Images)
 
 ![](images/2026-08/20260803_BoatsMalta_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260727 Canoë-kayaks au cœur des gorges du Verdon, Provence-Alpes-Côte d'Azur (© Joran Maaswinkel Fotografie/Getty Images)
 
 ![](images/2026-07/20260727_VerdonKayaks_1920x1080.jpg)
-
-#### 20260727 Tiffany Dome, Chicago Cultural Center, Illinois (© Felix Lipov/Shutterstock)
-
-![](images/2026-07/20260727_ChicagoTiffany_1920x1080.jpg)
 
 
 
