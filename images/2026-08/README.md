@@ -1,3 +1,7 @@
+#### 20260805 非斯皇宫装饰华丽的大门，摩洛哥 (© cgst26/Shutterstock)
+
+![](20260805_FezMorocco_1920x1080.jpg)
+
 #### 20260804 Florida burrowing owlet, Cape Coral, Florida, USA (© mlorenzphotography/Getty Images)
 
 ![](20260804_AdorableOwlet_1920x1080.jpg)

@@ -1,3 +1,7 @@
+#### 20260805 非斯皇宫装饰华丽的大门，摩洛哥 (© cgst26/Shutterstock)
+
+![](images/2026-08/20260805_FezMorocco_1920x1080.jpg)
+
 #### 20260804 Florida burrowing owlet, Cape Coral, Florida, USA (© mlorenzphotography/Getty Images)
 
 ![](images/2026-08/20260804_AdorableOwlet_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260728 A kelp forest off Anacapa Island, Channel Islands National Park, California (© Ian Shive/Tandem Stills + Motion)
 
 ![](images/2026-07/20260728_ChannelKelp_1920x1080.jpg)
-
-#### 20260727 Canoë-kayaks au cœur des gorges du Verdon, Provence-Alpes-Côte d'Azur (© Joran Maaswinkel Fotografie/Getty Images)
-
-![](images/2026-07/20260727_VerdonKayaks_1920x1080.jpg)
 
 
 
