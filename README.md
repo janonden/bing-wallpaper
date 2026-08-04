@@ -1,4 +1,4 @@
-#### 20260804 佛罗里达穴鸮幼鸟，开普科拉尔，佛罗里达州，美国 (© mlorenzphotography/Getty Images)
+#### 20260804 Florida burrowing owlet, Cape Coral, Florida, USA (© mlorenzphotography/Getty Images)
 
 ![](images/2026-08/20260804_AdorableOwlet_1920x1080.jpg)
 
