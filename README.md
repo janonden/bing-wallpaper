@@ -1,3 +1,11 @@
+#### 20260806 马赛马拉迁徙的角马群横渡马拉河, 肯尼亚 (© Manoj Shah/Getty Images)
+
+![](images/2026-08/20260806_MaraCrossing_1920x1080.jpg)
+
+#### 20260806 広島平和記念公園のとうろう流し, 広島県 広島市 (© Buddhika Weerasinghe/Stringer/Getty Images)
+
+![](images/2026-08/20260806_HiroshimaPeaceMemorial_1920x1080.jpg)
+
 #### 20260805 Decorated gate of the Royal Palace of Fez, Morocco (© cgst26/Shutterstock)
 
 ![](images/2026-08/20260805_FezMorocco_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20260728 Emerald Lake, Yoho National Park, British Columbia, Canada (© Olga Matveeva/Getty Images)
 
 ![](images/2026-07/20260728_SummerBC_1920x1080.jpg)
-
-#### 20260728 ケゼルスベール, フランス (© Federica Gentile/Getty Images)
-
-![](images/2026-07/20260728_KaysersbergVillage_1920x1080.jpg)
-
-#### 20260728 A kelp forest off Anacapa Island, Channel Islands National Park, California (© Ian Shive/Tandem Stills + Motion)
-
-![](images/2026-07/20260728_ChannelKelp_1920x1080.jpg)
 
 
 

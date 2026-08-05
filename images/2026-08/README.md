@@ -1,3 +1,11 @@
+#### 20260806 马赛马拉迁徙的角马群横渡马拉河, 肯尼亚 (© Manoj Shah/Getty Images)
+
+![](20260806_MaraCrossing_1920x1080.jpg)
+
+#### 20260806 広島平和記念公園のとうろう流し, 広島県 広島市 (© Buddhika Weerasinghe/Stringer/Getty Images)
+
+![](20260806_HiroshimaPeaceMemorial_1920x1080.jpg)
+
 #### 20260805 Decorated gate of the Royal Palace of Fez, Morocco (© cgst26/Shutterstock)
 
 ![](20260805_FezMorocco_1920x1080.jpg)
