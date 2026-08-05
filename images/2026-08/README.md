@@ -1,4 +1,4 @@
-#### 20260805 非斯皇宫装饰华丽的大门，摩洛哥 (© cgst26/Shutterstock)
+#### 20260805 Decorated gate of the Royal Palace of Fez, Morocco (© cgst26/Shutterstock)
 
 ![](20260805_FezMorocco_1920x1080.jpg)
 
