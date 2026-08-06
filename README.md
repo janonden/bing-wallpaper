@@ -1,4 +1,4 @@
-#### 20260806 马赛马拉迁徙的角马群横渡马拉河, 肯尼亚 (© Manoj Shah/Getty Images)
+#### 20260806 Migrating wildebeest crossing Mara River in Masai Mara, Kenya (© Manoj Shah/Getty Images)
 
 ![](images/2026-08/20260806_MaraCrossing_1920x1080.jpg)
 
