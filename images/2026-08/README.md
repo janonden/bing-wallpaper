@@ -6,6 +6,10 @@
 
 ![](20260806_HiroshimaPeaceMemorial_1920x1080.jpg)
 
+#### 20260806 Edmonton at night, Alberta (© Tetyana Babiy/iStock/Getty Images)
+
+![](20260806_EDMFolkFest_1920x1080.jpg)
+
 #### 20260805 Decorated gate of the Royal Palace of Fez, Morocco (© cgst26/Shutterstock)
 
 ![](20260805_FezMorocco_1920x1080.jpg)

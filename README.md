@@ -6,6 +6,10 @@
 
 ![](images/2026-08/20260806_HiroshimaPeaceMemorial_1920x1080.jpg)
 
+#### 20260806 Edmonton at night, Alberta (© Tetyana Babiy/iStock/Getty Images)
+
+![](images/2026-08/20260806_EDMFolkFest_1920x1080.jpg)
+
 #### 20260805 Decorated gate of the Royal Palace of Fez, Morocco (© cgst26/Shutterstock)
 
 ![](images/2026-08/20260805_FezMorocco_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260729 A family of Bengal tigers at Ranthambore National Park, Rajasthan, India (© Archna Singh/Shutterstock)
 
 ![](images/2026-07/20260729_TigerFamily_1920x1080.jpg)
-
-#### 20260728 Emerald Lake, Yoho National Park, British Columbia, Canada (© Olga Matveeva/Getty Images)
-
-![](images/2026-07/20260728_SummerBC_1920x1080.jpg)
 
 
 
