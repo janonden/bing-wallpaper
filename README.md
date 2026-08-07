@@ -1,3 +1,11 @@
+#### 20260807 Vue aérienne d’un écoduc près de Zakrzów, Pologne (© bbsferrari/Getty Images)
+
+![](images/2026-08/20260807_WildlifeCrossingPoland_1920x1080.jpg)
+
+#### 20260807 圣胡安岛石灰窑灯塔，华盛顿州，美国 (© Edmund Lowe Photography/Shutterstock)
+
+![](images/2026-08/20260807_LimeKiln_1920x1080.jpg)
+
 #### 20260806 Migrating wildebeest crossing Mara River in Masai Mara, Kenya (© Manoj Shah/Getty Images)
 
 ![](images/2026-08/20260806_MaraCrossing_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20260730 Monument Valley, Navajo Nation, Arizona (© Westend61/Adobe Stock)
 
 ![](images/2026-07/20260730_NavajoNation_1920x1080.jpg)
-
-#### 20260730 Braunbärenjunges auf einem Felsen, Bayern (© Raimund Linke/Getty Images)
-
-![](images/2026-07/20260730_BearBavaria_1920x1080.jpg)
-
-#### 20260729 A family of Bengal tigers at Ranthambore National Park, Rajasthan, India (© Archna Singh/Shutterstock)
-
-![](images/2026-07/20260729_TigerFamily_1920x1080.jpg)
 
 
 

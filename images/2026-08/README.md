@@ -1,3 +1,11 @@
+#### 20260807 Vue aérienne d’un écoduc près de Zakrzów, Pologne (© bbsferrari/Getty Images)
+
+![](20260807_WildlifeCrossingPoland_1920x1080.jpg)
+
+#### 20260807 圣胡安岛石灰窑灯塔，华盛顿州，美国 (© Edmund Lowe Photography/Shutterstock)
+
+![](20260807_LimeKiln_1920x1080.jpg)
+
 #### 20260806 Migrating wildebeest crossing Mara River in Masai Mara, Kenya (© Manoj Shah/Getty Images)
 
 ![](20260806_MaraCrossing_1920x1080.jpg)
