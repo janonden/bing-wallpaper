@@ -1,3 +1,7 @@
+#### 20260808 蒂斯河畔斯托克顿无限桥，英格兰 (© Bahadir Yeniceri/Shutterstock)
+
+![](20260808_StocktonInfinity_1920x1080.jpg)
+
 #### 20260808 Colourful homes line Nyhavn Canal, Copenhagen, Denmark (© emicristea/Getty Images)
 
 ![](20260808_ColorfulCop_1920x1080.jpg)

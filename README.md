@@ -1,3 +1,7 @@
+#### 20260808 蒂斯河畔斯托克顿无限桥，英格兰 (© Bahadir Yeniceri/Shutterstock)
+
+![](images/2026-08/20260808_StocktonInfinity_1920x1080.jpg)
+
 #### 20260808 Colourful homes line Nyhavn Canal, Copenhagen, Denmark (© emicristea/Getty Images)
 
 ![](images/2026-08/20260808_ColorfulCop_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260731 Aerial view of the Virginia Creeper Trail, Damascus, Virginia (© Eifel Kreutz/Getty Images)
 
 ![](images/2026-07/20260731_VirginiaTrail_1920x1080.jpg)
-
-#### 20260730 Jeunes chacals sauvages dans le Bushveld, Afrique du Sud (© Jeff R Clow/Getty Images)
-
-![](images/2026-07/20260730_WildJackalFriends_1920x1080.jpg)
 
 
 
