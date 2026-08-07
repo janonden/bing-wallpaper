@@ -1,8 +1,12 @@
+#### 20260808 Colourful homes line Nyhavn Canal, Copenhagen, Denmark (© emicristea/Getty Images)
+
+![](images/2026-08/20260808_ColorfulCop_1920x1080.jpg)
+
 #### 20260807 Vue aérienne d’un écoduc près de Zakrzów, Pologne (© bbsferrari/Getty Images)
 
 ![](images/2026-08/20260807_WildlifeCrossingPoland_1920x1080.jpg)
 
-#### 20260807 圣胡安岛石灰窑灯塔，华盛顿州，美国 (© Edmund Lowe Photography/Shutterstock)
+#### 20260807 Lime Kiln Lighthouse on San Juan Island, Washington State (© Edmund Lowe Photography/Shutterstock)
 
 ![](images/2026-08/20260807_LimeKiln_1920x1080.jpg)
 
@@ -53,10 +57,6 @@
 #### 20260730 Jeunes chacals sauvages dans le Bushveld, Afrique du Sud (© Jeff R Clow/Getty Images)
 
 ![](images/2026-07/20260730_WildJackalFriends_1920x1080.jpg)
-
-#### 20260730 Monument Valley, Navajo Nation, Arizona (© Westend61/Adobe Stock)
-
-![](images/2026-07/20260730_NavajoNation_1920x1080.jpg)
 
 
 
