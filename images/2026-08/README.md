@@ -2,6 +2,10 @@
 
 ![](20260809_ValleyDreams_1920x1080.jpg)
 
+#### 20260809 让-马里·吉巴乌文化中心，新喀里多尼亚 (© Fabien Astre/Alamy)
+
+![](20260809_JMTjibaou_1920x1080.jpg)
+
 #### 20260808 Infinity Bridge in Stockton-on-Tees, England (© Bahadir Yeniceri/Shutterstock)
 
 ![](20260808_StocktonInfinity_1920x1080.jpg)

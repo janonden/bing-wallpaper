@@ -2,6 +2,10 @@
 
 ![](images/2026-08/20260809_ValleyDreams_1920x1080.jpg)
 
+#### 20260809 让-马里·吉巴乌文化中心，新喀里多尼亚 (© Fabien Astre/Alamy)
+
+![](images/2026-08/20260809_JMTjibaou_1920x1080.jpg)
+
 #### 20260808 Infinity Bridge in Stockton-on-Tees, England (© Bahadir Yeniceri/Shutterstock)
 
 ![](images/2026-08/20260808_StocktonInfinity_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260802 Helsinki's shoreline during blue hour, Uusimaa, Finland (© Miemo Penttinen/Getty Images)
 
 ![](images/2026-08/20260802_HelsinkiBlue_1920x1080.jpg)
-
-#### 20260801 Stacks près de Wilson Creek Beach, False Klamath Cove, Parc national et parcs d’État de Redwood, Californie, États-Unis (© benedek/Getty Images)
-
-![](images/2026-08/20260801_SeaStacks_1920x1080.jpg)
 
 
 
