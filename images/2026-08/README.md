@@ -2,9 +2,17 @@
 
 ![](20260808_StocktonInfinity_1920x1080.jpg)
 
+#### 20260808 Rhein in Flammen vor Schloss Stolzenfels bei Koblenz, Rheinland-Pfalz (© Jule_Berlin/Shutterstock)
+
+![](20260808_RhineFlames_1920x1080.jpg)
+
 #### 20260808 Colourful homes line Nyhavn Canal, Copenhagen, Denmark (© emicristea/Getty Images)
 
 ![](20260808_ColorfulCop_1920x1080.jpg)
+
+#### 20260808 Du linge qui sèche aux fenêtres d’une maison, Barjols, Var, Provence-Alpes-Côtes d'Azur (© mammuth/Getty Images)
+
+![](20260808_ClothesBarjols_1920x1080.jpg)
 
 #### 20260807 Vue aérienne d’un écoduc près de Zakrzów, Pologne (© bbsferrari/Getty Images)
 

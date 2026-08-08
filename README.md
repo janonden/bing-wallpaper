@@ -2,9 +2,17 @@
 
 ![](images/2026-08/20260808_StocktonInfinity_1920x1080.jpg)
 
+#### 20260808 Rhein in Flammen vor Schloss Stolzenfels bei Koblenz, Rheinland-Pfalz (© Jule_Berlin/Shutterstock)
+
+![](images/2026-08/20260808_RhineFlames_1920x1080.jpg)
+
 #### 20260808 Colourful homes line Nyhavn Canal, Copenhagen, Denmark (© emicristea/Getty Images)
 
 ![](images/2026-08/20260808_ColorfulCop_1920x1080.jpg)
+
+#### 20260808 Du linge qui sèche aux fenêtres d’une maison, Barjols, Var, Provence-Alpes-Côtes d'Azur (© mammuth/Getty Images)
+
+![](images/2026-08/20260808_ClothesBarjols_1920x1080.jpg)
 
 #### 20260807 Vue aérienne d’un écoduc près de Zakrzów, Pologne (© bbsferrari/Getty Images)
 
@@ -49,14 +57,6 @@
 #### 20260801 変わり種の金魚ねぷた, 青森県 弘前市 (© David Parker/Alamy)
 
 ![](images/2026-08/20260801_HirosakiNeputa_1920x1080.jpg)
-
-#### 20260801 A series of lava flows spill into the ocean, Big Island, Hawaii (© Ken McCurdy/Getty Images)
-
-![](images/2026-08/20260801_HawaiiLava_1920x1080.jpg)
-
-#### 20260731 Aerial view of the Virginia Creeper Trail, Damascus, Virginia (© Eifel Kreutz/Getty Images)
-
-![](images/2026-07/20260731_VirginiaTrail_1920x1080.jpg)
 
 
 
