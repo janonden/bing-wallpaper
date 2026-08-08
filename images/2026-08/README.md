@@ -1,4 +1,8 @@
-#### 20260808 蒂斯河畔斯托克顿无限桥，英格兰 (© Bahadir Yeniceri/Shutterstock)
+#### 20260809 Hoodoos in Ah Shi Sle Pah Wilderness in San Juan County, New Mexico, United States (© Westend61/Getty Images)
+
+![](20260809_ValleyDreams_1920x1080.jpg)
+
+#### 20260808 Infinity Bridge in Stockton-on-Tees, England (© Bahadir Yeniceri/Shutterstock)
 
 ![](20260808_StocktonInfinity_1920x1080.jpg)
 

@@ -1,4 +1,8 @@
-#### 20260808 蒂斯河畔斯托克顿无限桥，英格兰 (© Bahadir Yeniceri/Shutterstock)
+#### 20260809 Hoodoos in Ah Shi Sle Pah Wilderness in San Juan County, New Mexico, United States (© Westend61/Getty Images)
+
+![](images/2026-08/20260809_ValleyDreams_1920x1080.jpg)
+
+#### 20260808 Infinity Bridge in Stockton-on-Tees, England (© Bahadir Yeniceri/Shutterstock)
 
 ![](images/2026-08/20260808_StocktonInfinity_1920x1080.jpg)
 
@@ -53,10 +57,6 @@
 #### 20260801 Stacks près de Wilson Creek Beach, False Klamath Cove, Parc national et parcs d’État de Redwood, Californie, États-Unis (© benedek/Getty Images)
 
 ![](images/2026-08/20260801_SeaStacks_1920x1080.jpg)
-
-#### 20260801 変わり種の金魚ねぷた, 青森県 弘前市 (© David Parker/Alamy)
-
-![](images/2026-08/20260801_HirosakiNeputa_1920x1080.jpg)
 
 
 
