@@ -1,3 +1,7 @@
+#### 20260810 约书亚树国家公园，加利福尼亚州，美国 (© JJ Landscapes/Getty Images)
+
+![](images/2026-08/20260810_SandPath_1920x1080.jpg)
+
 #### 20260809 Hoodoos in Ah Shi Sle Pah Wilderness in San Juan County, New Mexico, United States (© Westend61/Getty Images)
 
 ![](images/2026-08/20260809_ValleyDreams_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260803 Colorful boats in Marsaxlokk Harbor, Malta (© Klubovy/Getty Images)
 
 ![](images/2026-08/20260803_BoatsMalta_1920x1080.jpg)
-
-#### 20260802 Helsinki's shoreline during blue hour, Uusimaa, Finland (© Miemo Penttinen/Getty Images)
-
-![](images/2026-08/20260802_HelsinkiBlue_1920x1080.jpg)
 
 
 

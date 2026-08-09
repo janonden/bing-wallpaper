@@ -1,3 +1,7 @@
+#### 20260810 约书亚树国家公园，加利福尼亚州，美国 (© JJ Landscapes/Getty Images)
+
+![](20260810_SandPath_1920x1080.jpg)
+
 #### 20260809 Hoodoos in Ah Shi Sle Pah Wilderness in San Juan County, New Mexico, United States (© Westend61/Getty Images)
 
 ![](20260809_ValleyDreams_1920x1080.jpg)
