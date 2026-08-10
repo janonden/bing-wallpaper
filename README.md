@@ -1,4 +1,8 @@
-#### 20260810 约书亚树国家公园，加利福尼亚州，美国 (© JJ Landscapes/Getty Images)
+#### 20260811 Whytecliff Park, West Vancouver, Canada (© Aolin Chen/Getty Images)
+
+![](images/2026-08/20260811_WhyteCliffP_1920x1080.jpg)
+
+#### 20260810 Joshua Tree National Park, California (© JJ Landscapes/Getty Images)
 
 ![](images/2026-08/20260810_SandPath_1920x1080.jpg)
 
@@ -53,10 +57,6 @@
 #### 20260804 Florida burrowing owlet, Cape Coral, Florida, USA (© mlorenzphotography/Getty Images)
 
 ![](images/2026-08/20260804_AdorableOwlet_1920x1080.jpg)
-
-#### 20260803 Colorful boats in Marsaxlokk Harbor, Malta (© Klubovy/Getty Images)
-
-![](images/2026-08/20260803_BoatsMalta_1920x1080.jpg)
 
 
 
