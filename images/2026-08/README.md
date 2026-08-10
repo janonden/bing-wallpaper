@@ -2,6 +2,10 @@
 
 ![](20260811_WhyteCliffP_1920x1080.jpg)
 
+#### 20260811 日本アルプス (© Sergey Alimov/Getty Images)
+
+![](20260811_MountainDay_1920x1080.jpg)
+
 #### 20260810 Joshua Tree National Park, California (© JJ Landscapes/Getty Images)
 
 ![](20260810_SandPath_1920x1080.jpg)

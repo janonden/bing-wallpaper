@@ -2,6 +2,10 @@
 
 ![](images/2026-08/20260811_WhyteCliffP_1920x1080.jpg)
 
+#### 20260811 日本アルプス (© Sergey Alimov/Getty Images)
+
+![](images/2026-08/20260811_MountainDay_1920x1080.jpg)
+
 #### 20260810 Joshua Tree National Park, California (© JJ Landscapes/Getty Images)
 
 ![](images/2026-08/20260810_SandPath_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260805 Decorated gate of the Royal Palace of Fez, Morocco (© cgst26/Shutterstock)
 
 ![](images/2026-08/20260805_FezMorocco_1920x1080.jpg)
-
-#### 20260804 Florida burrowing owlet, Cape Coral, Florida, USA (© mlorenzphotography/Getty Images)
-
-![](images/2026-08/20260804_AdorableOwlet_1920x1080.jpg)
 
 
 
