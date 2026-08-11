@@ -26,7 +26,7 @@
 
 ![](images/2026-08/20260808_RhineFlames_1920x1080.jpg)
 
-#### 20260808 Colourful homes line Nyhavn Canal, Copenhagen, Denmark (© emicristea/Getty Images)
+#### 20260808 Colorful homes line Nyhavn Canal, Copenhagen, Denmark (© emicristea/Getty Images)
 
 ![](images/2026-08/20260808_ColorfulCop_1920x1080.jpg)
 
