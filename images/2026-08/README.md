@@ -1,3 +1,7 @@
+#### 20260812 安博塞利国家公园的非洲草原象群，卡贾多郡，肯尼亚 (© Ibrahim Suha Derbent/Getty Images)
+
+![](20260812_ElephantDay_1920x1080.jpg)
+
 #### 20260811 Whytecliff Park, West Vancouver, Canada (© Aolin Chen/Getty Images)
 
 ![](20260811_WhyteCliffP_1920x1080.jpg)
