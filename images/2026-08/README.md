@@ -1,4 +1,4 @@
-#### 20260812 安博塞利国家公园的非洲草原象群，卡贾多郡，肯尼亚 (© Ibrahim Suha Derbent/Getty Images)
+#### 20260812 A group of elephants, Amboseli National Park, Kenya (© Ibrahim Suha Derbent/Getty Images)
 
 ![](20260812_ElephantDay_1920x1080.jpg)
 
