@@ -1,3 +1,7 @@
+#### 20260813 泰德天文台上空的英仙座流星，加那利群岛，西班牙 (© Westend61/Getty Images)
+
+![](20260813_PerseidasTenerife_1920x1080.jpg)
+
 #### 20260812 A group of elephants, Amboseli National Park, Kenya (© Ibrahim Suha Derbent/Getty Images)
 
 ![](20260812_ElephantDay_1920x1080.jpg)

@@ -1,3 +1,7 @@
+#### 20260813 泰德天文台上空的英仙座流星，加那利群岛，西班牙 (© Westend61/Getty Images)
+
+![](images/2026-08/20260813_PerseidasTenerife_1920x1080.jpg)
+
 #### 20260812 A group of elephants, Amboseli National Park, Kenya (© Ibrahim Suha Derbent/Getty Images)
 
 ![](images/2026-08/20260812_ElephantDay_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260806 広島平和記念公園のとうろう流し, 広島県 広島市 (© Buddhika Weerasinghe/Stringer/Getty Images)
 
 ![](images/2026-08/20260806_HiroshimaPeaceMemorial_1920x1080.jpg)
-
-#### 20260806 Edmonton at night, Alberta (© Tetyana Babiy/iStock/Getty Images)
-
-![](images/2026-08/20260806_EDMFolkFest_1920x1080.jpg)
 
 
 
