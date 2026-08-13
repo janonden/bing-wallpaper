@@ -1,4 +1,4 @@
-#### 20260813 泰德天文台上空的英仙座流星，加那利群岛，西班牙 (© Westend61/Getty Images)
+#### 20260813 Perseid meteors over Teide Observatory, Tenerife, Spain (© Westend61/Getty Images)
 
 ![](20260813_PerseidasTenerife_1920x1080.jpg)
 
