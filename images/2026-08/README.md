@@ -1,3 +1,7 @@
+#### 20260814 下田港, 静岡県 下田市 (© Sean Pavone/Getty Images)
+
+![](20260814_Shimoda_1920x1080.jpg)
+
 #### 20260813 Perseid meteors over Teide Observatory, Tenerife, Spain (© Westend61/Getty Images)
 
 ![](20260813_PerseidasTenerife_1920x1080.jpg)

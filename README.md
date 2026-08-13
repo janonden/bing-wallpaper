@@ -1,3 +1,7 @@
+#### 20260814 下田港, 静岡県 下田市 (© Sean Pavone/Getty Images)
+
+![](images/2026-08/20260814_Shimoda_1920x1080.jpg)
+
 #### 20260813 Perseid meteors over Teide Observatory, Tenerife, Spain (© Westend61/Getty Images)
 
 ![](images/2026-08/20260813_PerseidasTenerife_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260806 Migrating wildebeest crossing Mara River in Masai Mara, Kenya (© Manoj Shah/Getty Images)
 
 ![](images/2026-08/20260806_MaraCrossing_1920x1080.jpg)
-
-#### 20260806 広島平和記念公園のとうろう流し, 広島県 広島市 (© Buddhika Weerasinghe/Stringer/Getty Images)
-
-![](images/2026-08/20260806_HiroshimaPeaceMemorial_1920x1080.jpg)
 
 
 
