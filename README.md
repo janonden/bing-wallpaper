@@ -2,6 +2,10 @@
 
 ![](images/2026-08/20260814_Shimoda_1920x1080.jpg)
 
+#### 20260814 Dolmen, La Roche-Aux-Fées, Bretagne (© Michal Boubin/Getty Images)
+
+![](images/2026-08/20260814_DolmenRoche_1920x1080.jpg)
+
 #### 20260813 Perseid meteors over Teide Observatory, Tenerife, Spain (© Westend61/Getty Images)
 
 ![](images/2026-08/20260813_PerseidasTenerife_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260807 Lime Kiln Lighthouse on San Juan Island, Washington State (© Edmund Lowe Photography/Shutterstock)
 
 ![](images/2026-08/20260807_LimeKiln_1920x1080.jpg)
-
-#### 20260806 Migrating wildebeest crossing Mara River in Masai Mara, Kenya (© Manoj Shah/Getty Images)
-
-![](images/2026-08/20260806_MaraCrossing_1920x1080.jpg)
 
 
 
