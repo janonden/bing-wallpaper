@@ -1,3 +1,7 @@
+#### 20260816 戈尔韦郡罗斯埃里利方济各会修道院遗址，康诺特省，爱尔兰 (© Maria Janus/Shutterstock)
+
+![](images/2026-08/20260816_RossErrillyRuins_1920x1080.jpg)
+
 #### 20260815 Sonnenaufgang an der Seebrücke Sellin, Rügen, Mecklenburg-Vorpommern (© bluejayphoto/Getty Images)
 
 ![](images/2026-08/20260815_SellinSunrise_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260808 Colorful homes line Nyhavn Canal, Copenhagen, Denmark (© emicristea/Getty Images)
 
 ![](images/2026-08/20260808_ColorfulCop_1920x1080.jpg)
-
-#### 20260808 Du linge qui sèche aux fenêtres d’une maison, Barjols, Var, Provence-Alpes-Côtes d'Azur (© mammuth/Getty Images)
-
-![](images/2026-08/20260808_ClothesBarjols_1920x1080.jpg)
 
 
 
