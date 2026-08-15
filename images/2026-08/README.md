@@ -34,7 +34,7 @@
 
 ![](20260810_SandPath_1920x1080.jpg)
 
-#### 20260809 Hoodoos in Ah Shi Sle Pah Wilderness in San Juan County, New Mexico, United States (© Westend61/Getty Images)
+#### 20260809 Hoodoos in Ah Shi Sle Pah Wilderness in San Juan County, New Mexico (© Westend61/Getty Images)
 
 ![](20260809_ValleyDreams_1920x1080.jpg)
 
