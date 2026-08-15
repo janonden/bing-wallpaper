@@ -1,3 +1,7 @@
+#### 20260815 Sonnenaufgang an der Seebrücke Sellin, Rügen, Mecklenburg-Vorpommern (© bluejayphoto/Getty Images)
+
+![](images/2026-08/20260815_SellinSunrise_1920x1080.jpg)
+
 #### 20260815 Aerial view of Palmanova, a fortress city in Friuli, Italy (© Riccardo Saponi/Getty Images)
 
 ![](images/2026-08/20260815_Palmanova_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260808 Du linge qui sèche aux fenêtres d’une maison, Barjols, Var, Provence-Alpes-Côtes d'Azur (© mammuth/Getty Images)
 
 ![](images/2026-08/20260808_ClothesBarjols_1920x1080.jpg)
-
-#### 20260807 Aerial view of a wildlife crossing near Zakrzów, Poland (© bbsferrari/Getty Images)
-
-![](images/2026-08/20260807_WildlifeCrossingPoland_1920x1080.jpg)
 
 
 

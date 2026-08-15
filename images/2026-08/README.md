@@ -1,3 +1,7 @@
+#### 20260815 Sonnenaufgang an der Seebrücke Sellin, Rügen, Mecklenburg-Vorpommern (© bluejayphoto/Getty Images)
+
+![](20260815_SellinSunrise_1920x1080.jpg)
+
 #### 20260815 Aerial view of Palmanova, a fortress city in Friuli, Italy (© Riccardo Saponi/Getty Images)
 
 ![](20260815_Palmanova_1920x1080.jpg)
