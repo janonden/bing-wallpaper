@@ -1,4 +1,8 @@
-#### 20260816 戈尔韦郡罗斯埃里利方济各会修道院遗址，康诺特省，爱尔兰 (© Maria Janus/Shutterstock)
+#### 20260817 Pedra Furada, Jericoacoara, Brazil (© Brendan van Son/Shutterstock)
+
+![](images/2026-08/20260817_Furada_1920x1080.jpg)
+
+#### 20260816 Ruins of Ross Errilly Friary, County Galway, Ireland (© Maria Janus/Shutterstock)
 
 ![](images/2026-08/20260816_RossErrillyRuins_1920x1080.jpg)
 
@@ -53,10 +57,6 @@
 #### 20260808 Rhein in Flammen vor Schloss Stolzenfels bei Koblenz, Rheinland-Pfalz (© Jule_Berlin/Shutterstock)
 
 ![](images/2026-08/20260808_RhineFlames_1920x1080.jpg)
-
-#### 20260808 Colorful homes line Nyhavn Canal, Copenhagen, Denmark (© emicristea/Getty Images)
-
-![](images/2026-08/20260808_ColorfulCop_1920x1080.jpg)
 
 
 
