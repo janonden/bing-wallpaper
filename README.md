@@ -2,7 +2,7 @@
 
 ![](images/2026-08/20260817_Furada_1920x1080.jpg)
 
-#### 20260817 海葵中的三条眼斑双锯鱼，卡比劳岛，薄荷省，菲律宾 (© Franco Banfi/Nature Picture Library)
+#### 20260817 Three false clownfish in a sea anemone, Cabilao Island, Bohol, Philippines (© Franco Banfi/Nature Picture Library)
 
 ![](images/2026-08/20260817_CabilaoClowns_1920x1080.jpg)
 
