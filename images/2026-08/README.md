@@ -1,3 +1,7 @@
+#### 20260819 NASA's Langley Research Center mounted the Navy's Brewster XF2A-1 Buffalo in the Full-Scale Tunnel, 1938, Hampton, Virginia (© NASA)
+
+![](20260819_BrewsterXF_1920x1080.jpg)
+
 #### 20260817 Pedra Furada, Jericoacoara, Brazil (© Brendan van Son/Shutterstock)
 
 ![](20260817_Furada_1920x1080.jpg)

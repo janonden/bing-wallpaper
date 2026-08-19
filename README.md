@@ -1,3 +1,7 @@
+#### 20260819 NASA's Langley Research Center mounted the Navy's Brewster XF2A-1 Buffalo in the Full-Scale Tunnel, 1938, Hampton, Virginia (© NASA)
+
+![](images/2026-08/20260819_BrewsterXF_1920x1080.jpg)
+
 #### 20260817 Pedra Furada, Jericoacoara, Brazil (© Brendan van Son/Shutterstock)
 
 ![](images/2026-08/20260817_Furada_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260809 Jean-Marie Tjibaou Cultural Centre, New Caledonia (© Fabien Astre/Alamy)
 
 ![](images/2026-08/20260809_JMTjibaou_1920x1080.jpg)
-
-#### 20260808 Infinity Bridge in Stockton-on-Tees, England (© Bahadir Yeniceri/Shutterstock)
-
-![](images/2026-08/20260808_StocktonInfinity_1920x1080.jpg)
 
 
 
