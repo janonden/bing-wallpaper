@@ -1,3 +1,7 @@
+#### 20260820 林恩运河中浮出水面的虎鲸，奇尔卡特山脉附近，阿拉斯加州，美国 (© John Hyde/Alamy)
+
+![](20260820_LynnCanalOrca_1920x1080.jpg)
+
 #### 20260819 NASA's Langley Research Center mounted the Navy's Brewster XF2A-1 Buffalo in the Full-Scale Tunnel, 1938, Hampton, Virginia (© NASA)
 
 ![](20260819_BrewsterXF_1920x1080.jpg)

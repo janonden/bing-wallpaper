@@ -1,3 +1,7 @@
+#### 20260820 林恩运河中浮出水面的虎鲸，奇尔卡特山脉附近，阿拉斯加州，美国 (© John Hyde/Alamy)
+
+![](images/2026-08/20260820_LynnCanalOrca_1920x1080.jpg)
+
 #### 20260819 NASA's Langley Research Center mounted the Navy's Brewster XF2A-1 Buffalo in the Full-Scale Tunnel, 1938, Hampton, Virginia (© NASA)
 
 ![](images/2026-08/20260819_BrewsterXF_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260809 Hoodoos in Ah Shi Sle Pah Wilderness in San Juan County, New Mexico (© Westend61/Getty Images)
 
 ![](images/2026-08/20260809_ValleyDreams_1920x1080.jpg)
-
-#### 20260809 Jean-Marie Tjibaou Cultural Centre, New Caledonia (© Fabien Astre/Alamy)
-
-![](images/2026-08/20260809_JMTjibaou_1920x1080.jpg)
 
 
 
