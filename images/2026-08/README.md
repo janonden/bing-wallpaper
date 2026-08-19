@@ -26,6 +26,10 @@
 
 ![](20260815_Palmanova_1920x1080.jpg)
 
+#### 20260814 Aerial view of a wildlife crossing near Zakrzów, Poland (© bbsferrari/Getty Images)
+
+![](20260814_WildlifeCrossingPoland_1920x1080.jpg)
+
 #### 20260814 下田港, 静岡県 下田市 (© Sean Pavone/Getty Images)
 
 ![](20260814_Shimoda_1920x1080.jpg)
