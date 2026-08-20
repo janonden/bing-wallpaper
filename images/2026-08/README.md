@@ -1,4 +1,4 @@
-#### 20260820 林恩运河中浮出水面的虎鲸，奇尔卡特山脉附近，阿拉斯加州，美国 (© John Hyde/Alamy)
+#### 20260820 An orca surfaces in Lynn Canal near the Chilkat Mountains, Alaska (© John Hyde/Alamy)
 
 ![](20260820_LynnCanalOrca_1920x1080.jpg)
 
