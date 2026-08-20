@@ -1,3 +1,7 @@
+#### 20260821 尤利尔山口蜿蜒的公路，瑞士 (© Westend61/Getty Images)
+
+![](images/2026-08/20260821_JulierPass_1920x1080.jpg)
+
 #### 20260820 An orca surfaces in Lynn Canal near the Chilkat Mountains, Alaska (© John Hyde/Alamy)
 
 ![](images/2026-08/20260820_LynnCanalOrca_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260811 日本アルプス (© Sergey Alimov/Getty Images)
 
 ![](images/2026-08/20260811_MountainDay_1920x1080.jpg)
-
-#### 20260810 Joshua Tree National Park, California (© JJ Landscapes/Getty Images)
-
-![](images/2026-08/20260810_SandPath_1920x1080.jpg)
 
 
 
