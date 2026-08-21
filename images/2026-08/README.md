@@ -26,6 +26,10 @@
 
 ![](20260817_CabilaoClowns_1920x1080.jpg)
 
+#### 20260816 Infinity Bridge in Stockton-on-Tees, England (© Bahadir Yeniceri/Shutterstock)
+
+![](20260816_StocktonInfinity_1920x1080.jpg)
+
 #### 20260816 Ruins of Ross Errilly Friary, County Galway, Ireland (© Maria Janus/Shutterstock)
 
 ![](20260816_RossErrillyRuins_1920x1080.jpg)

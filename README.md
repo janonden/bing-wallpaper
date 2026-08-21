@@ -26,6 +26,10 @@
 
 ![](images/2026-08/20260817_CabilaoClowns_1920x1080.jpg)
 
+#### 20260816 Infinity Bridge in Stockton-on-Tees, England (© Bahadir Yeniceri/Shutterstock)
+
+![](images/2026-08/20260816_StocktonInfinity_1920x1080.jpg)
+
 #### 20260816 Ruins of Ross Errilly Friary, County Galway, Ireland (© Maria Janus/Shutterstock)
 
 ![](images/2026-08/20260816_RossErrillyRuins_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260813 Perseid meteors over Teide Observatory, Tenerife, Spain (© Westend61/Getty Images)
 
 ![](images/2026-08/20260813_PerseidasTenerife_1920x1080.jpg)
-
-#### 20260812 A group of elephants, Amboseli National Park, Kenya (© Ibrahim Suha Derbent/Getty Images)
-
-![](images/2026-08/20260812_ElephantDay_1920x1080.jpg)
 
 
 
