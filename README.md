@@ -1,3 +1,7 @@
+#### 20260822 普通蓝灰蝶，德文郡，英格兰 (© Ross Hoddinott/Nature Picture Library)
+
+![](images/2026-08/20260822_CommonBlue_1920x1080.jpg)
+
 #### 20260821 Winding road of Julier Pass, Switzerland (© Westend61/Getty Images)
 
 ![](images/2026-08/20260821_JulierPass_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260812 A group of elephants, Amboseli National Park, Kenya (© Ibrahim Suha Derbent/Getty Images)
 
 ![](images/2026-08/20260812_ElephantDay_1920x1080.jpg)
-
-#### 20260811 Whytecliff Park, West Vancouver, Canada (© Aolin Chen/Getty Images)
-
-![](images/2026-08/20260811_WhyteCliffP_1920x1080.jpg)
 
 
 

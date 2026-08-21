@@ -1,3 +1,7 @@
+#### 20260822 普通蓝灰蝶，德文郡，英格兰 (© Ross Hoddinott/Nature Picture Library)
+
+![](20260822_CommonBlue_1920x1080.jpg)
+
 #### 20260821 Winding road of Julier Pass, Switzerland (© Westend61/Getty Images)
 
 ![](20260821_JulierPass_1920x1080.jpg)
