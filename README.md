@@ -1,4 +1,4 @@
-#### 20260821 尤利尔山口蜿蜒的公路，瑞士 (© Westend61/Getty Images)
+#### 20260821 Winding road of Julier Pass, Switzerland (© Westend61/Getty Images)
 
 ![](images/2026-08/20260821_JulierPass_1920x1080.jpg)
 
