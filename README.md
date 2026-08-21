@@ -2,6 +2,10 @@
 
 ![](images/2026-08/20260821_JulierPass_1920x1080.jpg)
 
+#### 20260821 Aerial view of Canadian National Exhibition in Toronto (© Wirestock/Getty Images)
+
+![](images/2026-08/20260821_CanadaNE_1920x1080.jpg)
+
 #### 20260820 An orca surfaces in Lynn Canal near the Chilkat Mountains, Alaska (© John Hyde/Alamy)
 
 ![](images/2026-08/20260820_LynnCanalOrca_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260811 Whytecliff Park, West Vancouver, Canada (© Aolin Chen/Getty Images)
 
 ![](images/2026-08/20260811_WhyteCliffP_1920x1080.jpg)
-
-#### 20260811 日本アルプス (© Sergey Alimov/Getty Images)
-
-![](images/2026-08/20260811_MountainDay_1920x1080.jpg)
 
 
 

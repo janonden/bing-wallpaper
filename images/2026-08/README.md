@@ -2,6 +2,10 @@
 
 ![](20260821_JulierPass_1920x1080.jpg)
 
+#### 20260821 Aerial view of Canadian National Exhibition in Toronto (© Wirestock/Getty Images)
+
+![](20260821_CanadaNE_1920x1080.jpg)
+
 #### 20260820 An orca surfaces in Lynn Canal near the Chilkat Mountains, Alaska (© John Hyde/Alamy)
 
 ![](20260820_LynnCanalOrca_1920x1080.jpg)
