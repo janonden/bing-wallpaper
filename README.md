@@ -18,6 +18,10 @@
 
 ![](images/2026-08/20260821_CanadaNE_1920x1080.jpg)
 
+#### 20260820 Joshua Tree National Park, California, United States (© JJ Landscapes/Getty Images)
+
+![](images/2026-08/20260820_SandPath_1920x1080.jpg)
+
 #### 20260820 An orca surfaces in Lynn Canal near the Chilkat Mountains, Alaska (© John Hyde/Alamy)
 
 ![](images/2026-08/20260820_LynnCanalOrca_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260814 Aerial view of a wildlife crossing near Zakrzów, Poland (© bbsferrari/Getty Images)
 
 ![](images/2026-08/20260814_WildlifeCrossingPoland_1920x1080.jpg)
-
-#### 20260814 下田港, 静岡県 下田市 (© Sean Pavone/Getty Images)
-
-![](images/2026-08/20260814_Shimoda_1920x1080.jpg)
 
 
 
