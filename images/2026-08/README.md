@@ -1,3 +1,11 @@
+#### 20260823 夏の森を潤す清流, 静岡県 (© Keiji Komatsu/AFLO/Getty Images)
+
+![](20260823_ShizuokaSummer_1920x1080.jpg)
+
+#### 20260823 在处暑时节的村庄田野与寺庙佛塔，江阴市，江苏省，中国 (© jia yu/Getty Images)
+
+![](20260823_EndofHeatY_1920x1080.jpg)
+
 #### 20260822 Common blue butterfly, Devon, England (© Ross Hoddinott/Nature Picture Library)
 
 ![](20260822_CommonBlue_1920x1080.jpg)

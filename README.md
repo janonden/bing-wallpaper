@@ -1,3 +1,11 @@
+#### 20260823 夏の森を潤す清流, 静岡県 (© Keiji Komatsu/AFLO/Getty Images)
+
+![](images/2026-08/20260823_ShizuokaSummer_1920x1080.jpg)
+
+#### 20260823 在处暑时节的村庄田野与寺庙佛塔，江阴市，江苏省，中国 (© jia yu/Getty Images)
+
+![](images/2026-08/20260823_EndofHeatY_1920x1080.jpg)
+
 #### 20260822 Common blue butterfly, Devon, England (© Ross Hoddinott/Nature Picture Library)
 
 ![](images/2026-08/20260822_CommonBlue_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20260814 下田港, 静岡県 下田市 (© Sean Pavone/Getty Images)
 
 ![](images/2026-08/20260814_Shimoda_1920x1080.jpg)
-
-#### 20260814 Dolmen, La Roche-Aux-Fées, Bretagne (© Michal Boubin/Getty Images)
-
-![](images/2026-08/20260814_DolmenRoche_1920x1080.jpg)
-
-#### 20260813 Perseid meteors over Teide Observatory, Tenerife, Spain (© Westend61/Getty Images)
-
-![](images/2026-08/20260813_PerseidasTenerife_1920x1080.jpg)
 
 
 
