@@ -1,4 +1,4 @@
-#### 20260822 普通蓝灰蝶，德文郡，英格兰 (© Ross Hoddinott/Nature Picture Library)
+#### 20260822 Common blue butterfly, Devon, England (© Ross Hoddinott/Nature Picture Library)
 
 ![](20260822_CommonBlue_1920x1080.jpg)
 
