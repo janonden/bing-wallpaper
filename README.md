@@ -2,6 +2,10 @@
 
 ![](images/2026-08/20260823_ShizuokaSummer_1920x1080.jpg)
 
+#### 20260823 Braunbär beim Fischen im Fluss, Katmai-Nationalpark, Alaska, USA (© Pal Hermansen/Nature Picture Library)
+
+![](images/2026-08/20260823_KatmaiBear_1920x1080.jpg)
+
 #### 20260823 在处暑时节的村庄田野与寺庙佛塔，江阴市，江苏省，中国 (© jia yu/Getty Images)
 
 ![](images/2026-08/20260823_EndofHeatY_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260815 Aerial view of Palmanova, a fortress city in Friuli, Italy (© Riccardo Saponi/Getty Images)
 
 ![](images/2026-08/20260815_Palmanova_1920x1080.jpg)
-
-#### 20260814 Aerial view of a wildlife crossing near Zakrzów, Poland (© bbsferrari/Getty Images)
-
-![](images/2026-08/20260814_WildlifeCrossingPoland_1920x1080.jpg)
 
 
 

@@ -2,6 +2,10 @@
 
 ![](20260823_ShizuokaSummer_1920x1080.jpg)
 
+#### 20260823 Braunbär beim Fischen im Fluss, Katmai-Nationalpark, Alaska, USA (© Pal Hermansen/Nature Picture Library)
+
+![](20260823_KatmaiBear_1920x1080.jpg)
+
 #### 20260823 在处暑时节的村庄田野与寺庙佛塔，江阴市，江苏省，中国 (© jia yu/Getty Images)
 
 ![](20260823_EndofHeatY_1920x1080.jpg)
