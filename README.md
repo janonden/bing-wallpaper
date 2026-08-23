@@ -1,3 +1,7 @@
+#### 20260824 布鲁克林大桥，纽约市，美国 (© shayes17/Getty Images)
+
+![](images/2026-08/20260824_BKBridge_1920x1080.jpg)
+
 #### 20260823 夏の森を潤す清流, 静岡県 (© Keiji Komatsu/AFLO/Getty Images)
 
 ![](images/2026-08/20260823_ShizuokaSummer_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260816 Ruins of Ross Errilly Friary, County Galway, Ireland (© Maria Janus/Shutterstock)
 
 ![](images/2026-08/20260816_RossErrillyRuins_1920x1080.jpg)
-
-#### 20260815 Sonnenaufgang an der Seebrücke Sellin, Rügen, Mecklenburg-Vorpommern (© bluejayphoto/Getty Images)
-
-![](images/2026-08/20260815_SellinSunrise_1920x1080.jpg)
 
 
 
