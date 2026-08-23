@@ -30,6 +30,10 @@
 
 ![](20260820_LynnCanalOrca_1920x1080.jpg)
 
+#### 20260819 怀特克利夫公园，西温哥华，加拿大 (© Aolin Chen/Getty Images)
+
+![](20260819_WhyteCliffP_1920x1080.jpg)
+
 #### 20260819 NASA's Langley Research Center mounted the Navy's Brewster XF2A-1 Buffalo in the Full-Scale Tunnel, 1938, Hampton, Virginia (© NASA)
 
 ![](20260819_BrewsterXF_1920x1080.jpg)

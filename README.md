@@ -30,6 +30,10 @@
 
 ![](images/2026-08/20260820_LynnCanalOrca_1920x1080.jpg)
 
+#### 20260819 怀特克利夫公园，西温哥华，加拿大 (© Aolin Chen/Getty Images)
+
+![](images/2026-08/20260819_WhyteCliffP_1920x1080.jpg)
+
 #### 20260819 NASA's Langley Research Center mounted the Navy's Brewster XF2A-1 Buffalo in the Full-Scale Tunnel, 1938, Hampton, Virginia (© NASA)
 
 ![](images/2026-08/20260819_BrewsterXF_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260815 Sonnenaufgang an der Seebrücke Sellin, Rügen, Mecklenburg-Vorpommern (© bluejayphoto/Getty Images)
 
 ![](images/2026-08/20260815_SellinSunrise_1920x1080.jpg)
-
-#### 20260815 Aerial view of Palmanova, a fortress city in Friuli, Italy (© Riccardo Saponi/Getty Images)
-
-![](images/2026-08/20260815_Palmanova_1920x1080.jpg)
 
 
 
