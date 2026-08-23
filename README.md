@@ -2,7 +2,7 @@
 
 ![](images/2026-08/20260823_ShizuokaSummer_1920x1080.jpg)
 
-#### 20260823 Braunbär beim Fischen im Fluss, Katmai-Nationalpark, Alaska, USA (© Pal Hermansen/Nature Picture Library)
+#### 20260823 Brown bear fishing in river, Katmai National Park, Alaska (© Pal Hermansen/Nature Picture Library)
 
 ![](images/2026-08/20260823_KatmaiBear_1920x1080.jpg)
 
