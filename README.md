@@ -1,3 +1,7 @@
+#### 20260825 红木国家与州立公园的日出，加利福尼亚州，美国 (© HadelProductions/Getty Images)
+
+![](images/2026-08/20260825_RedwoodPark_1920x1080.jpg)
+
 #### 20260824 Brooklyn Bridge, New York City (© shayes17/Getty Images)
 
 ![](images/2026-08/20260824_BKBridge_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260816 Infinity Bridge in Stockton-on-Tees, England (© Bahadir Yeniceri/Shutterstock)
 
 ![](images/2026-08/20260816_StocktonInfinity_1920x1080.jpg)
-
-#### 20260816 Ruins of Ross Errilly Friary, County Galway, Ireland (© Maria Janus/Shutterstock)
-
-![](images/2026-08/20260816_RossErrillyRuins_1920x1080.jpg)
 
 
 
