@@ -1,4 +1,4 @@
-#### 20260824 布鲁克林大桥，纽约市，美国 (© shayes17/Getty Images)
+#### 20260824 Brooklyn Bridge, New York City (© shayes17/Getty Images)
 
 ![](images/2026-08/20260824_BKBridge_1920x1080.jpg)
 
