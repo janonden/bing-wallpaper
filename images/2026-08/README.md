@@ -2,6 +2,10 @@
 
 ![](20260825_RedwoodPark_1920x1080.jpg)
 
+#### 20260825 Atlantic puffin holding a wild iris in his beak in Elliston, Newfoundland (© mlorenzphotography/Getty Images)
+
+![](20260825_PurplePuffin_1920x1080.jpg)
+
 #### 20260825 Kitesurfer bei Sonnenuntergang in Deutschland (© Jens Breuer/Getty Images)
 
 ![](20260825_KitesurfersSunset_1920x1080.jpg)
@@ -45,6 +49,10 @@
 #### 20260820 An orca surfaces in Lynn Canal near the Chilkat Mountains, Alaska (© John Hyde/Alamy)
 
 ![](20260820_LynnCanalOrca_1920x1080.jpg)
+
+#### 20260819 Aerial view of a wildlife crossing near Zakrzów, Poland (© bbsferrari/Getty Images)
+
+![](20260819_WildlifeCrossingPoland_1920x1080.jpg)
 
 #### 20260819 怀特克利夫公园，西温哥华，加拿大 (© Aolin Chen/Getty Images)
 

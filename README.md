@@ -2,6 +2,10 @@
 
 ![](images/2026-08/20260825_RedwoodPark_1920x1080.jpg)
 
+#### 20260825 Atlantic puffin holding a wild iris in his beak in Elliston, Newfoundland (© mlorenzphotography/Getty Images)
+
+![](images/2026-08/20260825_PurplePuffin_1920x1080.jpg)
+
 #### 20260825 Kitesurfer bei Sonnenuntergang in Deutschland (© Jens Breuer/Getty Images)
 
 ![](images/2026-08/20260825_KitesurfersSunset_1920x1080.jpg)
@@ -46,17 +50,13 @@
 
 ![](images/2026-08/20260820_LynnCanalOrca_1920x1080.jpg)
 
+#### 20260819 Aerial view of a wildlife crossing near Zakrzów, Poland (© bbsferrari/Getty Images)
+
+![](images/2026-08/20260819_WildlifeCrossingPoland_1920x1080.jpg)
+
 #### 20260819 怀特克利夫公园，西温哥华，加拿大 (© Aolin Chen/Getty Images)
 
 ![](images/2026-08/20260819_WhyteCliffP_1920x1080.jpg)
-
-#### 20260819 NASA's Langley Research Center mounted the Navy's Brewster XF2A-1 Buffalo in the Full-Scale Tunnel, 1938, Hampton, Virginia (© NASA)
-
-![](images/2026-08/20260819_BrewsterXF_1920x1080.jpg)
-
-#### 20260817 Pedra Furada, Jericoacoara, Brazil (© Brendan van Son/Shutterstock)
-
-![](images/2026-08/20260817_Furada_1920x1080.jpg)
 
 
 
