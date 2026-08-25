@@ -1,3 +1,7 @@
+#### 20260826 基尔丘山上空的极光，冰岛 (© Cavan Images/Alamy)
+
+![](20260826_AurorasIceland_1920x1080.jpg)
+
 #### 20260825 Sunrise in Redwood National and State Parks, California (© HadelProductions/Getty Images)
 
 ![](20260825_RedwoodPark_1920x1080.jpg)

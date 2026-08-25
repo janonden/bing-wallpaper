@@ -1,3 +1,7 @@
+#### 20260826 基尔丘山上空的极光，冰岛 (© Cavan Images/Alamy)
+
+![](images/2026-08/20260826_AurorasIceland_1920x1080.jpg)
+
 #### 20260825 Sunrise in Redwood National and State Parks, California (© HadelProductions/Getty Images)
 
 ![](images/2026-08/20260825_RedwoodPark_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260819 Aerial view of a wildlife crossing near Zakrzów, Poland (© bbsferrari/Getty Images)
 
 ![](images/2026-08/20260819_WildlifeCrossingPoland_1920x1080.jpg)
-
-#### 20260819 怀特克利夫公园，西温哥华，加拿大 (© Aolin Chen/Getty Images)
-
-![](images/2026-08/20260819_WhyteCliffP_1920x1080.jpg)
 
 
 
