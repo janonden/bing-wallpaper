@@ -2,6 +2,14 @@
 
 ![](20260825_RedwoodPark_1920x1080.jpg)
 
+#### 20260825 Kitesurfer bei Sonnenuntergang in Deutschland (© Jens Breuer/Getty Images)
+
+![](20260825_KitesurfersSunset_1920x1080.jpg)
+
+#### 20260825 Plage de sable blanc sur l’archipel des Glénan, Bretagne (© HadelProductions/Getty Images)
+
+![](20260825_GlenanSummer_1920x1080.jpg)
+
 #### 20260824 Brooklyn Bridge, New York City (© shayes17/Getty Images)
 
 ![](20260824_BKBridge_1920x1080.jpg)

@@ -2,6 +2,14 @@
 
 ![](images/2026-08/20260825_RedwoodPark_1920x1080.jpg)
 
+#### 20260825 Kitesurfer bei Sonnenuntergang in Deutschland (© Jens Breuer/Getty Images)
+
+![](images/2026-08/20260825_KitesurfersSunset_1920x1080.jpg)
+
+#### 20260825 Plage de sable blanc sur l’archipel des Glénan, Bretagne (© HadelProductions/Getty Images)
+
+![](images/2026-08/20260825_GlenanSummer_1920x1080.jpg)
+
 #### 20260824 Brooklyn Bridge, New York City (© shayes17/Getty Images)
 
 ![](images/2026-08/20260824_BKBridge_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20260817 Pedra Furada, Jericoacoara, Brazil (© Brendan van Son/Shutterstock)
 
 ![](images/2026-08/20260817_Furada_1920x1080.jpg)
-
-#### 20260817 Three false clownfish in a sea anemone, Cabilao Island, Bohol, Philippines (© Franco Banfi/Nature Picture Library)
-
-![](images/2026-08/20260817_CabilaoClowns_1920x1080.jpg)
-
-#### 20260816 Infinity Bridge in Stockton-on-Tees, England (© Bahadir Yeniceri/Shutterstock)
-
-![](images/2026-08/20260816_StocktonInfinity_1920x1080.jpg)
 
 
 
