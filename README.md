@@ -1,4 +1,4 @@
-#### 20260825 红木国家与州立公园的日出，加利福尼亚州，美国 (© HadelProductions/Getty Images)
+#### 20260825 Sunrise in Redwood National and State Parks, California (© HadelProductions/Getty Images)
 
 ![](images/2026-08/20260825_RedwoodPark_1920x1080.jpg)
 
