@@ -1,3 +1,7 @@
+#### 20260827 日出时的小红鹳群，马加迪湖，肯尼亚 (© Denis-Huot/Nature Picture Library)
+
+![](20260827_LakeMagadi_1920x1080.jpg)
+
 #### 20260826 Auroras over Kirkjufell, Iceland (© Cavan Images/Alamy)
 
 ![](20260826_AurorasIceland_1920x1080.jpg)

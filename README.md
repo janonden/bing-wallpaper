@@ -1,3 +1,7 @@
+#### 20260827 日出时的小红鹳群，马加迪湖，肯尼亚 (© Denis-Huot/Nature Picture Library)
+
+![](images/2026-08/20260827_LakeMagadi_1920x1080.jpg)
+
 #### 20260826 Auroras over Kirkjufell, Iceland (© Cavan Images/Alamy)
 
 ![](images/2026-08/20260826_AurorasIceland_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260820 An orca surfaces in Lynn Canal near the Chilkat Mountains, Alaska (© John Hyde/Alamy)
 
 ![](images/2026-08/20260820_LynnCanalOrca_1920x1080.jpg)
-
-#### 20260819 Aerial view of a wildlife crossing near Zakrzów, Poland (© bbsferrari/Getty Images)
-
-![](images/2026-08/20260819_WildlifeCrossingPoland_1920x1080.jpg)
 
 
 
