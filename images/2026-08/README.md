@@ -1,4 +1,4 @@
-#### 20260826 基尔丘山上空的极光，冰岛 (© Cavan Images/Alamy)
+#### 20260826 Auroras over Kirkjufell, Iceland (© Cavan Images/Alamy)
 
 ![](20260826_AurorasIceland_1920x1080.jpg)
 
