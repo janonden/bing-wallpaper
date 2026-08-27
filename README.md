@@ -1,3 +1,7 @@
+#### 20260828 涨潮时的圣米歇尔山，芒什省，诺曼底，法国 (© Clement LEONARD/Getty Images)
+
+![](images/2026-08/20260828_MichelSunset_1920x1080.jpg)
+
 #### 20260827 Lesser flamingo flock at sunrise, Lake Magadi, Kenya (© Denis-Huot/Nature Picture Library)
 
 ![](images/2026-08/20260827_LakeMagadi_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260820 Joshua Tree National Park, California, United States (© JJ Landscapes/Getty Images)
 
 ![](images/2026-08/20260820_SandPath_1920x1080.jpg)
-
-#### 20260820 An orca surfaces in Lynn Canal near the Chilkat Mountains, Alaska (© John Hyde/Alamy)
-
-![](images/2026-08/20260820_LynnCanalOrca_1920x1080.jpg)
 
 
 

@@ -1,3 +1,7 @@
+#### 20260828 涨潮时的圣米歇尔山，芒什省，诺曼底，法国 (© Clement LEONARD/Getty Images)
+
+![](20260828_MichelSunset_1920x1080.jpg)
+
 #### 20260827 Lesser flamingo flock at sunrise, Lake Magadi, Kenya (© Denis-Huot/Nature Picture Library)
 
 ![](20260827_LakeMagadi_1920x1080.jpg)
