@@ -1,4 +1,12 @@
-#### 20260828 涨潮时的圣米歇尔山，芒什省，诺曼底，法国 (© Clement LEONARD/Getty Images)
+#### 20260829 冲浪者航拍图，圣卡塔琳娜州，巴西 (© Wonderful Nature/Shutterstock)
+
+![](images/2026-08/20260829_SantaCatarina_1920x1080.jpg)
+
+#### 20260829 全国花火競技大会, 秋田県, 大仙市 (© Toru Hanai/Getty Images)
+
+![](images/2026-08/20260829_OmagariFireworks_1920x1080.jpg)
+
+#### 20260828 Mont-Saint-Michel during high tide, Manche, Normandy, France (© Clement LEONARD/Getty Images)
 
 ![](images/2026-08/20260828_MichelSunset_1920x1080.jpg)
 
@@ -49,14 +57,6 @@
 #### 20260821 Winding road of Julier Pass, Switzerland (© Westend61/Getty Images)
 
 ![](images/2026-08/20260821_JulierPass_1920x1080.jpg)
-
-#### 20260821 Aerial view of Canadian National Exhibition in Toronto (© Wirestock/Getty Images)
-
-![](images/2026-08/20260821_CanadaNE_1920x1080.jpg)
-
-#### 20260820 Joshua Tree National Park, California, United States (© JJ Landscapes/Getty Images)
-
-![](images/2026-08/20260820_SandPath_1920x1080.jpg)
 
 
 
