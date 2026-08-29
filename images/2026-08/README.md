@@ -1,3 +1,7 @@
+#### 20260830 鲸鲨与黄金鲹，极乐鸟湾，西巴布亚，印度尼西亚 (© Pete Oxford/Nature Picture Library)
+
+![](20260830_YellowShark_1920x1080.jpg)
+
 #### 20260830 Camí de Ronda, Lloret de Mar, Catalonia, Spain (© MEDITERRANEAN/Getty Images)
 
 ![](20260830_LloretdeMar_1920x1080.jpg)

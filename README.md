@@ -1,3 +1,7 @@
+#### 20260830 鲸鲨与黄金鲹，极乐鸟湾，西巴布亚，印度尼西亚 (© Pete Oxford/Nature Picture Library)
+
+![](images/2026-08/20260830_YellowShark_1920x1080.jpg)
+
 #### 20260830 Camí de Ronda, Lloret de Mar, Catalonia, Spain (© MEDITERRANEAN/Getty Images)
 
 ![](images/2026-08/20260830_LloretdeMar_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260823 在处暑时节的村庄田野与寺庙佛塔，江阴市，江苏省，中国 (© jia yu/Getty Images)
 
 ![](images/2026-08/20260823_EndofHeatY_1920x1080.jpg)
-
-#### 20260822 Common blue butterfly, Devon, England (© Ross Hoddinott/Nature Picture Library)
-
-![](images/2026-08/20260822_CommonBlue_1920x1080.jpg)
 
 
 
