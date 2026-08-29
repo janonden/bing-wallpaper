@@ -1,4 +1,8 @@
-#### 20260829 冲浪者航拍图，圣卡塔琳娜州，巴西 (© Wonderful Nature/Shutterstock)
+#### 20260830 Camí de Ronda, Lloret de Mar, Catalonia, Spain (© MEDITERRANEAN/Getty Images)
+
+![](20260830_LloretdeMar_1920x1080.jpg)
+
+#### 20260829 Aerial view of surfers, Santa Catarina, Brazil (© Wonderful Nature/Shutterstock)
 
 ![](20260829_SantaCatarina_1920x1080.jpg)
 
@@ -18,7 +22,7 @@
 
 ![](20260826_AurorasIceland_1920x1080.jpg)
 
-#### 20260825 Sunrise in Redwood National and State Parks, California, United States (© HadelProductions/Getty Images)
+#### 20260825 Sunrise in Redwood National and State Parks, California (© HadelProductions/Getty Images)
 
 ![](20260825_RedwoodPark_1920x1080.jpg)
 
@@ -34,7 +38,7 @@
 
 ![](20260825_GlenanSummer_1920x1080.jpg)
 
-#### 20260824 Brooklyn Bridge, New York City, United States (© shayes17/Getty Images)
+#### 20260824 Brooklyn Bridge, New York City (© shayes17/Getty Images)
 
 ![](20260824_BKBridge_1920x1080.jpg)
 
@@ -42,7 +46,7 @@
 
 ![](20260823_ShizuokaSummer_1920x1080.jpg)
 
-#### 20260823 Brown bear fishing in river, Katmai National Park, Alaska, United States (© Pal Hermansen/Nature Picture Library)
+#### 20260823 Brown bear fishing in river, Katmai National Park, Alaska (© Pal Hermansen/Nature Picture Library)
 
 ![](20260823_KatmaiBear_1920x1080.jpg)
 
