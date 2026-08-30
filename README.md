@@ -1,3 +1,7 @@
+#### 20260831 雷吉斯坦广场的建筑细节，撒马尔罕，乌兹别克斯坦 (© Piero M. Bianchi/Getty Images)
+
+![](images/2026-08/20260831_SamarkandCeiling_1920x1080.jpg)
+
 #### 20260830 Whale shark and golden trevally, Cenderawasih Bay, West Papua, Indonesia (© Pete Oxford/Nature Picture Library)
 
 ![](images/2026-08/20260830_YellowShark_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260823 Brown bear fishing in river, Katmai National Park, Alaska (© Pal Hermansen/Nature Picture Library)
 
 ![](images/2026-08/20260823_KatmaiBear_1920x1080.jpg)
-
-#### 20260823 在处暑时节的村庄田野与寺庙佛塔，江阴市，江苏省，中国 (© jia yu/Getty Images)
-
-![](images/2026-08/20260823_EndofHeatY_1920x1080.jpg)
 
 
 

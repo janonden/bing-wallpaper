@@ -1,3 +1,7 @@
+#### 20260831 雷吉斯坦广场的建筑细节，撒马尔罕，乌兹别克斯坦 (© Piero M. Bianchi/Getty Images)
+
+![](20260831_SamarkandCeiling_1920x1080.jpg)
+
 #### 20260830 Whale shark and golden trevally, Cenderawasih Bay, West Papua, Indonesia (© Pete Oxford/Nature Picture Library)
 
 ![](20260830_YellowShark_1920x1080.jpg)
