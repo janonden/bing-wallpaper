@@ -1,4 +1,4 @@
-#### 20260830 鲸鲨与黄金鲹，极乐鸟湾，西巴布亚，印度尼西亚 (© Pete Oxford/Nature Picture Library)
+#### 20260830 Whale shark and golden trevally, Cenderawasih Bay, West Papua, Indonesia (© Pete Oxford/Nature Picture Library)
 
 ![](images/2026-08/20260830_YellowShark_1920x1080.jpg)
 
