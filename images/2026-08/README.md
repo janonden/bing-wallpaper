@@ -1,4 +1,4 @@
-#### 20260831 雷吉斯坦广场的建筑细节，撒马尔罕，乌兹别克斯坦 (© Piero M. Bianchi/Getty Images)
+#### 20260831 Building detail of Registan Square, Samarkand, Uzbekistan (© Piero M. Bianchi/Getty Images)
 
 ![](20260831_SamarkandCeiling_1920x1080.jpg)
 

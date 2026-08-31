@@ -1,4 +1,12 @@
-#### 20260831 雷吉斯坦广场的建筑细节，撒马尔罕，乌兹别克斯坦 (© Piero M. Bianchi/Getty Images)
+#### 20260901 Sellin Pier, Rügen, Germany (© bluejayphoto/Getty Images)
+
+![](images/2026-09/20260901_SellinSunrise_1920x1080.jpg)
+
+#### 20260901 オチバタケ, ベラルーシ (© Máté/Nature Picture Library)
+
+![](images/2026-09/20260901_HorseHairShroom_1920x1080.jpg)
+
+#### 20260831 Building detail of Registan Square, Samarkand, Uzbekistan (© Piero M. Bianchi/Getty Images)
 
 ![](images/2026-08/20260831_SamarkandCeiling_1920x1080.jpg)
 
@@ -50,14 +58,6 @@
 
 ![](images/2026-08/20260824_BKBridge_1920x1080.jpg)
 
-#### 20260823 夏の森を潤す清流, 静岡県 (© Keiji Komatsu/AFLO/Getty Images)
-
-![](images/2026-08/20260823_ShizuokaSummer_1920x1080.jpg)
-
-#### 20260823 Brown bear fishing in river, Katmai National Park, Alaska (© Pal Hermansen/Nature Picture Library)
-
-![](images/2026-08/20260823_KatmaiBear_1920x1080.jpg)
-
 
 
 
@@ -66,7 +66,7 @@
 
 
 
-- 2026&emsp;&emsp;[08](images/2026-08/README.md) &emsp;&emsp;[07](images/2026-07/README.md) &emsp;&emsp;[06](images/2026-06/README.md) &emsp;&emsp;[05](images/2026-05/README.md) &emsp;&emsp;[04](images/2026-04/README.md) &emsp;&emsp;[03](images/2026-03/README.md) &emsp;&emsp;[02](images/2026-02/README.md) &emsp;&emsp;[01](images/2026-01/README.md) 
+- 2026&emsp;&emsp;[09](images/2026-09/README.md) &emsp;&emsp;[08](images/2026-08/README.md) &emsp;&emsp;[07](images/2026-07/README.md) &emsp;&emsp;[06](images/2026-06/README.md) &emsp;&emsp;[05](images/2026-05/README.md) &emsp;&emsp;[04](images/2026-04/README.md) &emsp;&emsp;[03](images/2026-03/README.md) &emsp;&emsp;[02](images/2026-02/README.md) &emsp;&emsp;[01](images/2026-01/README.md) 
 
 - 2025&emsp;&emsp;[12](https://github.com/janonden/bing-wallpaper/blob/2025/images/2025-12/README.md) &emsp;&emsp;[11](https://github.com/janonden/bing-wallpaper/blob/2025/images/2025-11/README.md) &emsp;&emsp;[10](https://github.com/janonden/bing-wallpaper/blob/2025/images/2025-10/README.md) &emsp;&emsp;[09](https://github.com/janonden/bing-wallpaper/blob/2025/images/2025-09/README.md) &emsp;&emsp;[08](https://github.com/janonden/bing-wallpaper/blob/2025/images/2025-08/README.md) &emsp;&emsp;[07](https://github.com/janonden/bing-wallpaper/blob/2025/images/2025-07/README.md) &emsp;&emsp;[06](https://github.com/janonden/bing-wallpaper/blob/2025/images/2025-06/README.md) &emsp;&emsp;[05](https://github.com/janonden/bing-wallpaper/blob/2025/images/2025-05/README.md) &emsp;&emsp;[04](https://github.com/janonden/bing-wallpaper/blob/2025/images/2025-04/README.md) &emsp;&emsp;[03](https://github.com/janonden/bing-wallpaper/blob/2025/images/2025-03/README.md) &emsp;&emsp;[02](https://github.com/janonden/bing-wallpaper/blob/2025/images/2025-02/README.md) &emsp;&emsp;[01](https://github.com/janonden/bing-wallpaper/blob/2025/images/2025-01/README.md) 
 
