@@ -1,3 +1,7 @@
+#### 20260902 传统海滩小屋，索思沃尔德，萨福克遗产海岸，英格兰 (© stevendocwra/Getty Images)
+
+![](images/2026-09/20260902_SuffolkHuts_1920x1080.jpg)
+
 #### 20260901 Sellin Pier, Rügen, Germany (© bluejayphoto/Getty Images)
 
 ![](images/2026-09/20260901_SellinSunrise_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260825 Plage de sable blanc sur l’archipel des Glénan, Bretagne (© HadelProductions/Getty Images)
 
 ![](images/2026-08/20260825_GlenanSummer_1920x1080.jpg)
-
-#### 20260824 Brooklyn Bridge, New York City (© shayes17/Getty Images)
-
-![](images/2026-08/20260824_BKBridge_1920x1080.jpg)
 
 
 
