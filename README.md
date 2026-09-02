@@ -1,3 +1,7 @@
+#### 20260903 Römerberg, historischer Altstadtplatz in Frankfurt am Main (© f11photo/Getty Images)
+
+![](images/2026-09/20260903_FrankfurtRomerberg_1920x1080.jpg)
+
 #### 20260903 郊狼丘，朱红悬崖国家纪念区，亚利桑那州，美国 (© James Hager/Getty Images)
 
 ![](images/2026-09/20260903_AZWilderness_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260825 Atlantic puffin holding a wild iris in his beak in Elliston, Newfoundland (© mlorenzphotography/Getty Images)
 
 ![](images/2026-08/20260825_PurplePuffin_1920x1080.jpg)
-
-#### 20260825 Kitesurfer bei Sonnenuntergang in Deutschland (© Jens Breuer/Getty Images)
-
-![](images/2026-08/20260825_KitesurfersSunset_1920x1080.jpg)
 
 
 

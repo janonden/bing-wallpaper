@@ -1,3 +1,7 @@
+#### 20260903 Römerberg, historischer Altstadtplatz in Frankfurt am Main (© f11photo/Getty Images)
+
+![](20260903_FrankfurtRomerberg_1920x1080.jpg)
+
 #### 20260903 郊狼丘，朱红悬崖国家纪念区，亚利桑那州，美国 (© James Hager/Getty Images)
 
 ![](20260903_AZWilderness_1920x1080.jpg)
