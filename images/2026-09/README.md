@@ -1,4 +1,4 @@
-#### 20260902 传统海滩小屋，索思沃尔德，萨福克遗产海岸，英格兰 (© stevendocwra/Getty Images)
+#### 20260902 Traditional beach huts, Southwold, Suffolk Heritage Coast, England (© stevendocwra/Getty Images)
 
 ![](20260902_SuffolkHuts_1920x1080.jpg)
 
