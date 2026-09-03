@@ -1,3 +1,7 @@
+#### 20260904 ヴェスターヘーファーザント灯台, ドイツ (© bluejayphoto/Getty Images)
+
+![](images/2026-09/20260904_Westerheversand_1920x1080.jpg)
+
 #### 20260903 Winding road of Julier Pass, Switzerland (© Westend61/Getty Images)
 
 ![](images/2026-09/20260903_JulierPass_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260826 Auroras over Kirkjufell, Iceland (© Cavan Images/Alamy)
 
 ![](images/2026-08/20260826_AurorasIceland_1920x1080.jpg)
-
-#### 20260825 Sunrise in Redwood National and State Parks, California (© HadelProductions/Getty Images)
-
-![](images/2026-08/20260825_RedwoodPark_1920x1080.jpg)
 
 
 

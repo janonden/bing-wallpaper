@@ -1,3 +1,7 @@
+#### 20260904 ヴェスターヘーファーザント灯台, ドイツ (© bluejayphoto/Getty Images)
+
+![](20260904_Westerheversand_1920x1080.jpg)
+
 #### 20260903 Winding road of Julier Pass, Switzerland (© Westend61/Getty Images)
 
 ![](20260903_JulierPass_1920x1080.jpg)
