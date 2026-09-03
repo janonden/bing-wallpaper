@@ -1,8 +1,12 @@
+#### 20260903 Winding road of Julier Pass, Switzerland (© Westend61/Getty Images)
+
+![](20260903_JulierPass_1920x1080.jpg)
+
 #### 20260903 Römerberg, historischer Altstadtplatz in Frankfurt am Main (© f11photo/Getty Images)
 
 ![](20260903_FrankfurtRomerberg_1920x1080.jpg)
 
-#### 20260903 郊狼丘，朱红悬崖国家纪念区，亚利桑那州，美国 (© James Hager/Getty Images)
+#### 20260903 Coyote Buttes, Vermilion Cliffs National Monument, Arizona (© James Hager/Getty Images)
 
 ![](20260903_AZWilderness_1920x1080.jpg)
 
