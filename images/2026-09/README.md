@@ -2,6 +2,10 @@
 
 ![](20260904_Westerheversand_1920x1080.jpg)
 
+#### 20260904 Horizontobservatorium, Halde Hoheward, Herten, Nordrhein-Westfalen (© lilly3/Getty Images)
+
+![](20260904_HorizontHerten_1920x1080.jpg)
+
 #### 20260903 Winding road of Julier Pass, Switzerland (© Westend61/Getty Images)
 
 ![](20260903_JulierPass_1920x1080.jpg)

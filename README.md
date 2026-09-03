@@ -2,6 +2,10 @@
 
 ![](images/2026-09/20260904_Westerheversand_1920x1080.jpg)
 
+#### 20260904 Horizontobservatorium, Halde Hoheward, Herten, Nordrhein-Westfalen (© lilly3/Getty Images)
+
+![](images/2026-09/20260904_HorizontHerten_1920x1080.jpg)
+
 #### 20260903 Winding road of Julier Pass, Switzerland (© Westend61/Getty Images)
 
 ![](images/2026-09/20260903_JulierPass_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260827 Lesser flamingo flock at sunrise, Lake Magadi, Kenya (© Denis-Huot/Nature Picture Library)
 
 ![](images/2026-08/20260827_LakeMagadi_1920x1080.jpg)
-
-#### 20260826 Auroras over Kirkjufell, Iceland (© Cavan Images/Alamy)
-
-![](images/2026-08/20260826_AurorasIceland_1920x1080.jpg)
 
 
 
