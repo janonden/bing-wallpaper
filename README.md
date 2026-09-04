@@ -1,3 +1,7 @@
+#### 20260905 La Grand’Place, Lille (© Aliaksandr Antanovich/Getty Images)
+
+![](images/2026-09/20260905_LillePlace_1920x1080.jpg)
+
 #### 20260905 ミドリボウシテリハチドリ, コスタリカ (© Paul Hobson/Nature Picture Library)
 
 ![](images/2026-09/20260905_GreenCrowned_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260829 全国花火競技大会, 秋田県, 大仙市 (© Toru Hanai/Getty Images)
 
 ![](images/2026-08/20260829_OmagariFireworks_1920x1080.jpg)
-
-#### 20260828 Mont-Saint-Michel during high tide, Manche, Normandy, France (© Clement LEONARD/Getty Images)
-
-![](images/2026-08/20260828_MichelSunset_1920x1080.jpg)
 
 
 

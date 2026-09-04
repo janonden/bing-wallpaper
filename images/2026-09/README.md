@@ -1,3 +1,7 @@
+#### 20260905 La Grand’Place, Lille (© Aliaksandr Antanovich/Getty Images)
+
+![](20260905_LillePlace_1920x1080.jpg)
+
 #### 20260905 ミドリボウシテリハチドリ, コスタリカ (© Paul Hobson/Nature Picture Library)
 
 ![](20260905_GreenCrowned_1920x1080.jpg)
