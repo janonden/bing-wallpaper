@@ -1,3 +1,7 @@
+#### 20260905 ミドリボウシテリハチドリ, コスタリカ (© Paul Hobson/Nature Picture Library)
+
+![](images/2026-09/20260905_GreenCrowned_1920x1080.jpg)
+
 #### 20260904 Westerheversand Lighthouse in Westerhever, Schleswig-Holstein, Germany (© bluejayphoto/Getty Images)
 
 ![](images/2026-09/20260904_Westerheversand_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260828 Mont-Saint-Michel during high tide, Manche, Normandy, France (© Clement LEONARD/Getty Images)
 
 ![](images/2026-08/20260828_MichelSunset_1920x1080.jpg)
-
-#### 20260827 Lesser flamingo flock at sunrise, Lake Magadi, Kenya (© Denis-Huot/Nature Picture Library)
-
-![](images/2026-08/20260827_LakeMagadi_1920x1080.jpg)
 
 
 

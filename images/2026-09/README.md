@@ -1,3 +1,7 @@
+#### 20260905 ミドリボウシテリハチドリ, コスタリカ (© Paul Hobson/Nature Picture Library)
+
+![](20260905_GreenCrowned_1920x1080.jpg)
+
 #### 20260904 Westerheversand Lighthouse in Westerhever, Schleswig-Holstein, Germany (© bluejayphoto/Getty Images)
 
 ![](20260904_Westerheversand_1920x1080.jpg)
