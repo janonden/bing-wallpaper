@@ -1,4 +1,4 @@
-#### 20260904 ヴェスターヘーファーザント灯台, ドイツ (© bluejayphoto/Getty Images)
+#### 20260904 Westerheversand Lighthouse in Westerhever, Schleswig-Holstein, Germany (© bluejayphoto/Getty Images)
 
 ![](images/2026-09/20260904_Westerheversand_1920x1080.jpg)
 
