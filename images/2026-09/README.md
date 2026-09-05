@@ -1,3 +1,7 @@
+#### 20260906 菲安斯湖，格兰屏国家公园，维多利亚州，澳大利亚 (© tracielouise/Getty Images)
+
+![](20260906_LakeFyans_1920x1080.jpg)
+
 #### 20260905 La Grand’Place, Lille (© Aliaksandr Antanovich/Getty Images)
 
 ![](20260905_LillePlace_1920x1080.jpg)

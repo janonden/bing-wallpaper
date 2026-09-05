@@ -1,3 +1,7 @@
+#### 20260906 菲安斯湖，格兰屏国家公园，维多利亚州，澳大利亚 (© tracielouise/Getty Images)
+
+![](images/2026-09/20260906_LakeFyans_1920x1080.jpg)
+
 #### 20260905 La Grand’Place, Lille (© Aliaksandr Antanovich/Getty Images)
 
 ![](images/2026-09/20260905_LillePlace_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260829 Aerial view of surfers, Santa Catarina, Brazil (© Wonderful Nature/Shutterstock)
 
 ![](images/2026-08/20260829_SantaCatarina_1920x1080.jpg)
-
-#### 20260829 全国花火競技大会, 秋田県, 大仙市 (© Toru Hanai/Getty Images)
-
-![](images/2026-08/20260829_OmagariFireworks_1920x1080.jpg)
 
 
 
