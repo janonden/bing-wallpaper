@@ -2,7 +2,7 @@
 
 ![](20260905_LillePlace_1920x1080.jpg)
 
-#### 20260905 ミドリボウシテリハチドリ, コスタリカ (© Paul Hobson/Nature Picture Library)
+#### 20260905 Green-crowned brilliant hummingbirds feeding on lobster-claw flowers, Costa Rica (© Paul Hobson/Nature Picture Library)
 
 ![](20260905_GreenCrowned_1920x1080.jpg)
 
