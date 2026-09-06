@@ -1,4 +1,4 @@
-#### 20260906 菲安斯湖，格兰屏国家公园，维多利亚州，澳大利亚 (© tracielouise/Getty Images)
+#### 20260906 Lake Fyans, Grampians National Park, Victoria, Australia (© tracielouise/Getty Images)
 
 ![](images/2026-09/20260906_LakeFyans_1920x1080.jpg)
 
