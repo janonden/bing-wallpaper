@@ -1,3 +1,7 @@
+#### 20260907 バンベルク市街, ドイツ (© SCStock/Getty Images)
+
+![](images/2026-09/20260907_BambergTownhall_1920x1080.jpg)
+
 #### 20260906 Lake Fyans, Grampians National Park, Victoria, Australia (© tracielouise/Getty Images)
 
 ![](images/2026-09/20260906_LakeFyans_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260830 Camí de Ronda, Lloret de Mar, Catalonia, Spain (© MEDITERRANEAN/Getty Images)
 
 ![](images/2026-08/20260830_LloretdeMar_1920x1080.jpg)
-
-#### 20260829 Aerial view of surfers, Santa Catarina, Brazil (© Wonderful Nature/Shutterstock)
-
-![](images/2026-08/20260829_SantaCatarina_1920x1080.jpg)
 
 
 

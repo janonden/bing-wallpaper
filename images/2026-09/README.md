@@ -1,3 +1,7 @@
+#### 20260907 バンベルク市街, ドイツ (© SCStock/Getty Images)
+
+![](20260907_BambergTownhall_1920x1080.jpg)
+
 #### 20260906 Lake Fyans, Grampians National Park, Victoria, Australia (© tracielouise/Getty Images)
 
 ![](20260906_LakeFyans_1920x1080.jpg)
