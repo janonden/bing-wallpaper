@@ -1,3 +1,7 @@
+#### 20260907 Cadini di Misurina, Dolomiten, Venetien, Italien (© Vithun Khamsong/Getty Images)
+
+![](images/2026-09/20260907_MisurinaPeak_1920x1080.jpg)
+
 #### 20260907 バンベルク市街, ドイツ (© SCStock/Getty Images)
 
 ![](images/2026-09/20260907_BambergTownhall_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260830 Whale shark and golden trevally, Cenderawasih Bay, West Papua, Indonesia (© Pete Oxford/Nature Picture Library)
 
 ![](images/2026-08/20260830_YellowShark_1920x1080.jpg)
-
-#### 20260830 Camí de Ronda, Lloret de Mar, Catalonia, Spain (© MEDITERRANEAN/Getty Images)
-
-![](images/2026-08/20260830_LloretdeMar_1920x1080.jpg)
 
 
 

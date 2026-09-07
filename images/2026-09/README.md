@@ -1,3 +1,7 @@
+#### 20260907 Cadini di Misurina, Dolomiten, Venetien, Italien (© Vithun Khamsong/Getty Images)
+
+![](20260907_MisurinaPeak_1920x1080.jpg)
+
 #### 20260907 バンベルク市街, ドイツ (© SCStock/Getty Images)
 
 ![](20260907_BambergTownhall_1920x1080.jpg)
