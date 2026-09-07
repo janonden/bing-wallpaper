@@ -1,3 +1,7 @@
+#### 20260908 东米恩南唐斯国家公园谷物田中的山毛榉树，汉普郡，英格兰 (© Guy Edwardes/Minden Pictures)
+
+![](images/2026-09/20260908_BeechEngland_1920x1080.jpg)
+
 #### 20260907 'Industries of California' mural by Ralph Stackpole at Coit Tower, San Francisco, California (© David R. Frazier Photolibrary, Inc./Alamy)
 
 ![](images/2026-09/20260907_RalphStackpole_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260901 Horsehair parachute fungus, Belarus (© Máté/Nature Picture Library)
 
 ![](images/2026-09/20260901_HorseHairShroom_1920x1080.jpg)
-
-#### 20260831 Building detail of Registan Square, Samarkand, Uzbekistan (© Piero M. Bianchi/Getty Images)
-
-![](images/2026-08/20260831_SamarkandCeiling_1920x1080.jpg)
 
 
 
