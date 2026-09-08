@@ -1,3 +1,11 @@
+#### 20260909 安科拉附近的加比特凯尼海滩，卡纳塔克邦，印度 (© Amith Nag Photography/Getty Images)
+
+![](images/2026-09/20260909_GabitKeni_1920x1080.jpg)
+
+#### 20260909 菊の花 (© yanjf/Getty Images)
+
+![](images/2026-09/20260909_ChungYang_1920x1080.jpg)
+
 #### 20260908 Beech tree in a cereal field, East Meon, South Downs National Park, Hampshire, England (© Guy Edwardes/Minden Pictures)
 
 ![](images/2026-09/20260908_BeechEngland_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20260902 Traditional beach huts, Southwold, Suffolk Heritage Coast, England (© stevendocwra/Getty Images)
 
 ![](images/2026-09/20260902_SuffolkHuts_1920x1080.jpg)
-
-#### 20260901 Sellin Pier, Rügen, Germany (© bluejayphoto/Getty Images)
-
-![](images/2026-09/20260901_SellinSunrise_1920x1080.jpg)
-
-#### 20260901 Horsehair parachute fungus, Belarus (© Máté/Nature Picture Library)
-
-![](images/2026-09/20260901_HorseHairShroom_1920x1080.jpg)
 
 
 
