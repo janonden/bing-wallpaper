@@ -1,4 +1,4 @@
-#### 20260908 东米恩南唐斯国家公园谷物田中的山毛榉树，汉普郡，英格兰 (© Guy Edwardes/Minden Pictures)
+#### 20260908 Beech tree in a cereal field, East Meon, South Downs National Park, Hampshire, England (© Guy Edwardes/Minden Pictures)
 
 ![](20260908_BeechEngland_1920x1080.jpg)
 
