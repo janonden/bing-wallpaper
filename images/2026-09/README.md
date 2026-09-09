@@ -1,4 +1,8 @@
-#### 20260909 安科拉附近的加比特凯尼海滩，卡纳塔克邦，印度 (© Amith Nag Photography/Getty Images)
+#### 20260910 Atlantic puffin holding a wild iris in his beak in Elliston, Newfoundland, Canada (© mlorenzphotography/Getty Images)
+
+![](20260910_PurplePuffin_1920x1080.jpg)
+
+#### 20260909 Gabit Keni Beach near Ankola, Karnataka, India (© Amith Nag Photography/Getty Images)
 
 ![](20260909_GabitKeni_1920x1080.jpg)
 
