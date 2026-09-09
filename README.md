@@ -2,6 +2,10 @@
 
 ![](images/2026-09/20260910_PurplePuffin_1920x1080.jpg)
 
+#### 20260910 奥尔韦拉航拍图，安达卢西亚，西班牙 (© Marco Bottigelli/Getty Images)
+
+![](images/2026-09/20260910_Olvera_1920x1080.jpg)
+
 #### 20260909 Gabit Keni Beach near Ankola, Karnataka, India (© Amith Nag Photography/Getty Images)
 
 ![](images/2026-09/20260909_GabitKeni_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260903 Römerberg, historischer Altstadtplatz in Frankfurt am Main (© f11photo/Getty Images)
 
 ![](images/2026-09/20260903_FrankfurtRomerberg_1920x1080.jpg)
-
-#### 20260903 Coyote Buttes, Vermilion Cliffs National Monument, Arizona (© James Hager/Getty Images)
-
-![](images/2026-09/20260903_AZWilderness_1920x1080.jpg)
 
 
 

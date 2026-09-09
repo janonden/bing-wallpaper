@@ -2,6 +2,10 @@
 
 ![](20260910_PurplePuffin_1920x1080.jpg)
 
+#### 20260910 奥尔韦拉航拍图，安达卢西亚，西班牙 (© Marco Bottigelli/Getty Images)
+
+![](20260910_Olvera_1920x1080.jpg)
+
 #### 20260909 Gabit Keni Beach near Ankola, Karnataka, India (© Amith Nag Photography/Getty Images)
 
 ![](20260909_GabitKeni_1920x1080.jpg)
