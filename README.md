@@ -1,3 +1,7 @@
+#### 20260911 滨海自由城，法国里维埃拉，法国 (© StockByM/Getty Images)
+
+![](images/2026-09/20260911_FrenchRivieraVillage_1920x1080.jpg)
+
 #### 20260910 The Roy Thomson Hall, Toronto, Ontario (© eskystudio/Shutterstock)
 
 ![](images/2026-09/20260910_TIFFRoy_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260904 Horizontobservatorium, Halde Hoheward, Herten, Nordrhein-Westfalen (© lilly3/Getty Images)
 
 ![](images/2026-09/20260904_HorizontHerten_1920x1080.jpg)
-
-#### 20260903 Winding road of Julier Pass, Switzerland (© Westend61/Getty Images)
-
-![](images/2026-09/20260903_JulierPass_1920x1080.jpg)
 
 
 

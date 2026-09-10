@@ -1,3 +1,7 @@
+#### 20260911 滨海自由城，法国里维埃拉，法国 (© StockByM/Getty Images)
+
+![](20260911_FrenchRivieraVillage_1920x1080.jpg)
+
 #### 20260910 The Roy Thomson Hall, Toronto, Ontario (© eskystudio/Shutterstock)
 
 ![](20260910_TIFFRoy_1920x1080.jpg)
