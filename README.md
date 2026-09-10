@@ -1,8 +1,12 @@
+#### 20260910 The Roy Thomson Hall, Toronto, Ontario (© eskystudio/Shutterstock)
+
+![](images/2026-09/20260910_TIFFRoy_1920x1080.jpg)
+
 #### 20260910 Atlantic puffin holding a wild iris in his beak in Elliston, Newfoundland, Canada (© mlorenzphotography/Getty Images)
 
 ![](images/2026-09/20260910_PurplePuffin_1920x1080.jpg)
 
-#### 20260910 奥尔韦拉航拍图，安达卢西亚，西班牙 (© Marco Bottigelli/Getty Images)
+#### 20260910 Aerial view of Olvera, Andalusia, Spain (© Marco Bottigelli/Getty Images)
 
 ![](images/2026-09/20260910_Olvera_1920x1080.jpg)
 
@@ -53,10 +57,6 @@
 #### 20260903 Winding road of Julier Pass, Switzerland (© Westend61/Getty Images)
 
 ![](images/2026-09/20260903_JulierPass_1920x1080.jpg)
-
-#### 20260903 Römerberg, historischer Altstadtplatz in Frankfurt am Main (© f11photo/Getty Images)
-
-![](images/2026-09/20260903_FrankfurtRomerberg_1920x1080.jpg)
 
 
 
