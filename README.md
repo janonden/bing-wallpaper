@@ -2,6 +2,10 @@
 
 ![](images/2026-09/20260911_FrenchRivieraVillage_1920x1080.jpg)
 
+#### 20260911 The Flight 93 National Memorial Visitor Center near Shanksville, Pennsylvania (© Maurice Savage/Alamy)
+
+![](images/2026-09/20260911_Flight_1920x1080.jpg)
+
 #### 20260910 The Roy Thomson Hall, Toronto, Ontario (© eskystudio/Shutterstock)
 
 ![](images/2026-09/20260910_TIFFRoy_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260904 Westerheversand Lighthouse in Westerhever, Schleswig-Holstein, Germany (© bluejayphoto/Getty Images)
 
 ![](images/2026-09/20260904_Westerheversand_1920x1080.jpg)
-
-#### 20260904 Horizontobservatorium, Halde Hoheward, Herten, Nordrhein-Westfalen (© lilly3/Getty Images)
-
-![](images/2026-09/20260904_HorizontHerten_1920x1080.jpg)
 
 
 
