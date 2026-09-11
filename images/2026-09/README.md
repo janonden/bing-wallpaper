@@ -1,3 +1,7 @@
+#### 20260912 墨西哥近海围猎沙丁鱼饵球的加州海狮，太平洋 (© Henley Spiers/Nature Picture Library)
+
+![](20260912_SardineBait_1920x1080.jpg)
+
 #### 20260911 滨海自由城，法国里维埃拉，法国 (© StockByM/Getty Images)
 
 ![](20260911_FrenchRivieraVillage_1920x1080.jpg)

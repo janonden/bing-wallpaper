@@ -1,3 +1,7 @@
+#### 20260912 墨西哥近海围猎沙丁鱼饵球的加州海狮，太平洋 (© Henley Spiers/Nature Picture Library)
+
+![](images/2026-09/20260912_SardineBait_1920x1080.jpg)
+
 #### 20260911 滨海自由城，法国里维埃拉，法国 (© StockByM/Getty Images)
 
 ![](images/2026-09/20260911_FrenchRivieraVillage_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260905 Green-crowned brilliant hummingbirds feeding on lobster-claw flowers, Costa Rica (© Paul Hobson/Nature Picture Library)
 
 ![](images/2026-09/20260905_GreenCrowned_1920x1080.jpg)
-
-#### 20260904 Westerheversand Lighthouse in Westerhever, Schleswig-Holstein, Germany (© bluejayphoto/Getty Images)
-
-![](images/2026-09/20260904_Westerheversand_1920x1080.jpg)
 
 
 
