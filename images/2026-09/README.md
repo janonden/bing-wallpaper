@@ -1,4 +1,4 @@
-#### 20260912 墨西哥近海围猎沙丁鱼饵球的加州海狮，太平洋 (© Henley Spiers/Nature Picture Library)
+#### 20260912 California sea lions hunting a sardine bait ball, offshore Mexico, Pacific Ocean (© Henley Spiers/Nature Picture Library)
 
 ![](20260912_SardineBait_1920x1080.jpg)
 
