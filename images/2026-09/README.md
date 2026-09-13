@@ -1,3 +1,7 @@
+#### 20260914 川辺のコスモス (© iplan/a.collectionRF/Getty Images)
+
+![](20260914_Cosmos_1920x1080.jpg)
+
 #### 20260912 California sea lions hunting a sardine bait ball, offshore Mexico, Pacific Ocean (© Henley Spiers/Nature Picture Library)
 
 ![](20260912_SardineBait_1920x1080.jpg)
@@ -38,7 +42,7 @@
 
 ![](20260907_RalphStackpole_1920x1080.jpg)
 
-#### 20260907 Cadini di Misurina, Dolomiten, Venetien, Italien (© Vithun Khamsong/Getty Images)
+#### 20260907 Cadini di Misurina, Dolomites, Veneto, Italy (© Vithun Khamsong/Getty Images)
 
 ![](20260907_MisurinaPeak_1920x1080.jpg)
 

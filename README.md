@@ -1,3 +1,7 @@
+#### 20260914 川辺のコスモス (© iplan/a.collectionRF/Getty Images)
+
+![](images/2026-09/20260914_Cosmos_1920x1080.jpg)
+
 #### 20260912 California sea lions hunting a sardine bait ball, offshore Mexico, Pacific Ocean (© Henley Spiers/Nature Picture Library)
 
 ![](images/2026-09/20260912_SardineBait_1920x1080.jpg)
@@ -38,7 +42,7 @@
 
 ![](images/2026-09/20260907_RalphStackpole_1920x1080.jpg)
 
-#### 20260907 Cadini di Misurina, Dolomiten, Venetien, Italien (© Vithun Khamsong/Getty Images)
+#### 20260907 Cadini di Misurina, Dolomites, Veneto, Italy (© Vithun Khamsong/Getty Images)
 
 ![](images/2026-09/20260907_MisurinaPeak_1920x1080.jpg)
 
@@ -53,10 +57,6 @@
 #### 20260905 La Grand’Place, Lille (© Aliaksandr Antanovich/Getty Images)
 
 ![](images/2026-09/20260905_LillePlace_1920x1080.jpg)
-
-#### 20260905 Green-crowned brilliant hummingbirds feeding on lobster-claw flowers, Costa Rica (© Paul Hobson/Nature Picture Library)
-
-![](images/2026-09/20260905_GreenCrowned_1920x1080.jpg)
 
 
 
