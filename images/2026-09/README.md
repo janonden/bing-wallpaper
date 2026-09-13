@@ -1,3 +1,7 @@
+#### 20260914 地肤田，中国 (© lingqi xie/Getty Images)
+
+![](20260914_KochiaChina_1920x1080.jpg)
+
 #### 20260914 川辺のコスモス (© iplan/a.collectionRF/Getty Images)
 
 ![](20260914_Cosmos_1920x1080.jpg)

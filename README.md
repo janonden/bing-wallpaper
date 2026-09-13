@@ -1,3 +1,7 @@
+#### 20260914 地肤田，中国 (© lingqi xie/Getty Images)
+
+![](images/2026-09/20260914_KochiaChina_1920x1080.jpg)
+
 #### 20260914 川辺のコスモス (© iplan/a.collectionRF/Getty Images)
 
 ![](images/2026-09/20260914_Cosmos_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260906 Lake Fyans, Grampians National Park, Victoria, Australia (© tracielouise/Getty Images)
 
 ![](images/2026-09/20260906_LakeFyans_1920x1080.jpg)
-
-#### 20260905 La Grand’Place, Lille (© Aliaksandr Antanovich/Getty Images)
-
-![](images/2026-09/20260905_LillePlace_1920x1080.jpg)
 
 
 
