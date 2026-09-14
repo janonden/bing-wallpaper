@@ -1,3 +1,7 @@
+#### 20260915 红绿金刚鹦鹉 (© markes51/Getty Images)
+
+![](images/2026-09/20260915_RedMacawsFlight_1920x1080.jpg)
+
 #### 20260914 Field of kochia plants, China (© lingqi xie/Getty Images)
 
 ![](images/2026-09/20260914_KochiaChina_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260907 バンベルク市街, ドイツ (© SCStock/Getty Images)
 
 ![](images/2026-09/20260907_BambergTownhall_1920x1080.jpg)
-
-#### 20260906 Lake Fyans, Grampians National Park, Victoria, Australia (© tracielouise/Getty Images)
-
-![](images/2026-09/20260906_LakeFyans_1920x1080.jpg)
 
 
 
