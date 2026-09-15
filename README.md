@@ -1,3 +1,7 @@
+#### 20260916 斯瓦尔巴群岛玩耍的北极熊幼崽，挪威 (© Danny Green/Nature Picture Library)
+
+![](images/2026-09/20260916_IcyCubs_1920x1080.jpg)
+
 #### 20260915 红绿金刚鹦鹉 (© markes51/Getty Images)
 
 ![](images/2026-09/20260915_RedMacawsFlight_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260907 'Industries of California' mural by Ralph Stackpole at Coit Tower, San Francisco, California (© David R. Frazier Photolibrary, Inc./Alamy)
 
 ![](images/2026-09/20260907_RalphStackpole_1920x1080.jpg)
-
-#### 20260907 Cadini di Misurina, Dolomites, Veneto, Italy (© Vithun Khamsong/Getty Images)
-
-![](images/2026-09/20260907_MisurinaPeak_1920x1080.jpg)
 
 
 

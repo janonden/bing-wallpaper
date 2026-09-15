@@ -1,3 +1,7 @@
+#### 20260916 斯瓦尔巴群岛玩耍的北极熊幼崽，挪威 (© Danny Green/Nature Picture Library)
+
+![](20260916_IcyCubs_1920x1080.jpg)
+
 #### 20260915 红绿金刚鹦鹉 (© markes51/Getty Images)
 
 ![](20260915_RedMacawsFlight_1920x1080.jpg)
