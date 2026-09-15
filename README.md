@@ -2,6 +2,10 @@
 
 ![](images/2026-09/20260915_RedMacawsFlight_1920x1080.jpg)
 
+#### 20260915 Fort Union National Monument, New Mexico (© zrfphoto/Getty Images)
+
+![](images/2026-09/20260915_FortUnion_1920x1080.jpg)
+
 #### 20260914 Field of kochia plants, China (© lingqi xie/Getty Images)
 
 ![](images/2026-09/20260914_KochiaChina_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260907 Cadini di Misurina, Dolomites, Veneto, Italy (© Vithun Khamsong/Getty Images)
 
 ![](images/2026-09/20260907_MisurinaPeak_1920x1080.jpg)
-
-#### 20260907 バンベルク市街, ドイツ (© SCStock/Getty Images)
-
-![](images/2026-09/20260907_BambergTownhall_1920x1080.jpg)
 
 
 
