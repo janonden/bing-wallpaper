@@ -1,3 +1,7 @@
+#### 20260917 桑特奈葡萄酒产区葡萄园中的索林风车，伯恩丘，勃艮第，法国 (© Marco Bottigelli/Getty Images)
+
+![](images/2026-09/20260917_Santenay_1920x1080.jpg)
+
 #### 20260916 Polar bear cubs playing in Svalbard, Norway (© Danny Green/Nature Picture Library)
 
 ![](images/2026-09/20260916_IcyCubs_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260908 Beech tree in a cereal field, East Meon, South Downs National Park, Hampshire, England (© Guy Edwardes/Minden Pictures)
 
 ![](images/2026-09/20260908_BeechEngland_1920x1080.jpg)
-
-#### 20260907 'Industries of California' mural by Ralph Stackpole at Coit Tower, San Francisco, California (© David R. Frazier Photolibrary, Inc./Alamy)
-
-![](images/2026-09/20260907_RalphStackpole_1920x1080.jpg)
 
 
 
