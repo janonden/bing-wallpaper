@@ -1,8 +1,8 @@
-#### 20260916 斯瓦尔巴群岛玩耍的北极熊幼崽，挪威 (© Danny Green/Nature Picture Library)
+#### 20260916 Polar bear cubs playing in Svalbard, Norway (© Danny Green/Nature Picture Library)
 
 ![](20260916_IcyCubs_1920x1080.jpg)
 
-#### 20260915 红绿金刚鹦鹉 (© markes51/Getty Images)
+#### 20260915 Red-and-green macaws (© markes51/Getty Images)
 
 ![](20260915_RedMacawsFlight_1920x1080.jpg)
 
@@ -22,7 +22,7 @@
 
 ![](20260912_SardineBait_1920x1080.jpg)
 
-#### 20260911 滨海自由城，法国里维埃拉，法国 (© StockByM/Getty Images)
+#### 20260911 Villefranche-sur-Mer, French Riviera, France (© StockByM/Getty Images)
 
 ![](20260911_FrenchRivieraVillage_1920x1080.jpg)
 
