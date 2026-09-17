@@ -1,4 +1,4 @@
-#### 20260917 桑特奈葡萄酒产区葡萄园中的索林风车，伯恩丘，勃艮第，法国 (© Marco Bottigelli/Getty Images)
+#### 20260917 Sorine windmill and vineyards, Santenay wine region, Côte de Beaune, Burgundy, France (© Marco Bottigelli/Getty Images)
 
 ![](images/2026-09/20260917_Santenay_1920x1080.jpg)
 
