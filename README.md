@@ -1,3 +1,7 @@
+#### 20260918 温纳茨山口，峰区国家公园，英格兰 (© Daniel_Kay/Getty Images)
+
+![](images/2026-09/20260918_WinnatsPassPeak_1920x1080.jpg)
+
 #### 20260917 Sorine windmill and vineyards, Santenay wine region, Côte de Beaune, Burgundy, France (© Marco Bottigelli/Getty Images)
 
 ![](images/2026-09/20260917_Santenay_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260909 菊の花 (© yanjf/Getty Images)
 
 ![](images/2026-09/20260909_ChungYang_1920x1080.jpg)
-
-#### 20260908 Beech tree in a cereal field, East Meon, South Downs National Park, Hampshire, England (© Guy Edwardes/Minden Pictures)
-
-![](images/2026-09/20260908_BeechEngland_1920x1080.jpg)
 
 
 
