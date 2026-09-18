@@ -1,4 +1,4 @@
-#### 20260918 温纳茨山口，峰区国家公园，英格兰 (© Daniel_Kay/Getty Images)
+#### 20260918 Winnats Pass, Peak District National Park, England (© Daniel_Kay/Getty Images)
 
 ![](20260918_WinnatsPassPeak_1920x1080.jpg)
 
