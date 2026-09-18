@@ -1,3 +1,7 @@
+#### 20260919 Oktoberfest München, Bayern (© FooTToo/Getty Images)
+
+![](images/2026-09/20260919_OktoberfestMunich_1920x1080.jpg)
+
 #### 20260919 アルプホルン奏者たち, ドイツ (© U. J. Alexander/Shutterstock)
 
 ![](images/2026-09/20260919_AlphornBavaria_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260910 Aerial view of Olvera, Andalusia, Spain (© Marco Bottigelli/Getty Images)
 
 ![](images/2026-09/20260910_Olvera_1920x1080.jpg)
-
-#### 20260909 Gabit Keni Beach near Ankola, Karnataka, India (© Amith Nag Photography/Getty Images)
-
-![](images/2026-09/20260909_GabitKeni_1920x1080.jpg)
 
 
 

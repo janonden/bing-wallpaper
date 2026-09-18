@@ -1,3 +1,7 @@
+#### 20260919 Oktoberfest München, Bayern (© FooTToo/Getty Images)
+
+![](20260919_OktoberfestMunich_1920x1080.jpg)
+
 #### 20260919 アルプホルン奏者たち, ドイツ (© U. J. Alexander/Shutterstock)
 
 ![](20260919_AlphornBavaria_1920x1080.jpg)
