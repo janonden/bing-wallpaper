@@ -1,3 +1,7 @@
+#### 20260919 アルプホルン奏者たち, ドイツ (© U. J. Alexander/Shutterstock)
+
+![](20260919_AlphornBavaria_1920x1080.jpg)
+
 #### 20260918 Winnats Pass, Peak District National Park, England (© Daniel_Kay/Getty Images)
 
 ![](20260918_WinnatsPassPeak_1920x1080.jpg)

@@ -1,3 +1,7 @@
+#### 20260919 アルプホルン奏者たち, ドイツ (© U. J. Alexander/Shutterstock)
+
+![](images/2026-09/20260919_AlphornBavaria_1920x1080.jpg)
+
 #### 20260918 Winnats Pass, Peak District National Park, England (© Daniel_Kay/Getty Images)
 
 ![](images/2026-09/20260918_WinnatsPassPeak_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260909 Gabit Keni Beach near Ankola, Karnataka, India (© Amith Nag Photography/Getty Images)
 
 ![](images/2026-09/20260909_GabitKeni_1920x1080.jpg)
-
-#### 20260909 菊の花 (© yanjf/Getty Images)
-
-![](images/2026-09/20260909_ChungYang_1920x1080.jpg)
 
 
 
