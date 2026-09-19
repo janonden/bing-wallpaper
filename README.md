@@ -1,3 +1,7 @@
+#### 20260920 パリ, フランス (© Alexander Spatari/Getty Images)
+
+![](images/2026-09/20260920_ParisSunset_1920x1080.jpg)
+
 #### 20260920 Lençóis Maranhenses National Park, Brazil (© Ignacio Palacios/Getty Images)
 
 ![](images/2026-09/20260920_Lencois_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260911 Villefranche-sur-Mer, French Riviera, France (© StockByM/Getty Images)
 
 ![](images/2026-09/20260911_FrenchRivieraVillage_1920x1080.jpg)
-
-#### 20260911 The Flight 93 National Memorial Visitor Center near Shanksville, Pennsylvania (© Maurice Savage/Alamy)
-
-![](images/2026-09/20260911_Flight_1920x1080.jpg)
 
 
 

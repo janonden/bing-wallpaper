@@ -1,3 +1,7 @@
+#### 20260920 パリ, フランス (© Alexander Spatari/Getty Images)
+
+![](20260920_ParisSunset_1920x1080.jpg)
+
 #### 20260920 Lençóis Maranhenses National Park, Brazil (© Ignacio Palacios/Getty Images)
 
 ![](20260920_Lencois_1920x1080.jpg)
