@@ -1,8 +1,12 @@
+#### 20260920 Lençóis Maranhenses National Park, Brazil (© Ignacio Palacios/Getty Images)
+
+![](20260920_Lencois_1920x1080.jpg)
+
 #### 20260919 Oktoberfest München, Bayern (© FooTToo/Getty Images)
 
 ![](20260919_OktoberfestMunich_1920x1080.jpg)
 
-#### 20260919 アルプホルン奏者たち, ドイツ (© U. J. Alexander/Shutterstock)
+#### 20260919 Alphorn players, Bavaria, Germany (© U. J. Alexander/Shutterstock)
 
 ![](20260919_AlphornBavaria_1920x1080.jpg)
 
@@ -33,6 +37,10 @@
 #### 20260914 川辺のコスモス (© iplan/a.collectionRF/Getty Images)
 
 ![](20260914_Cosmos_1920x1080.jpg)
+
+#### 20260913 Cadini di Misurina, Dolomites, Veneto, Italy (© Vithun Khamsong/Getty Images)
+
+![](20260913_MisurinaPeak_1920x1080.jpg)
 
 #### 20260913 Altes Rathaus in Bamberg, Bayern (© SCStock/Getty Images)
 

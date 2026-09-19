@@ -1,8 +1,12 @@
+#### 20260920 Lençóis Maranhenses National Park, Brazil (© Ignacio Palacios/Getty Images)
+
+![](images/2026-09/20260920_Lencois_1920x1080.jpg)
+
 #### 20260919 Oktoberfest München, Bayern (© FooTToo/Getty Images)
 
 ![](images/2026-09/20260919_OktoberfestMunich_1920x1080.jpg)
 
-#### 20260919 アルプホルン奏者たち, ドイツ (© U. J. Alexander/Shutterstock)
+#### 20260919 Alphorn players, Bavaria, Germany (© U. J. Alexander/Shutterstock)
 
 ![](images/2026-09/20260919_AlphornBavaria_1920x1080.jpg)
 
@@ -34,6 +38,10 @@
 
 ![](images/2026-09/20260914_Cosmos_1920x1080.jpg)
 
+#### 20260913 Cadini di Misurina, Dolomites, Veneto, Italy (© Vithun Khamsong/Getty Images)
+
+![](images/2026-09/20260913_MisurinaPeak_1920x1080.jpg)
+
 #### 20260913 Altes Rathaus in Bamberg, Bayern (© SCStock/Getty Images)
 
 ![](images/2026-09/20260913_BambergTownhall_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20260911 The Flight 93 National Memorial Visitor Center near Shanksville, Pennsylvania (© Maurice Savage/Alamy)
 
 ![](images/2026-09/20260911_Flight_1920x1080.jpg)
-
-#### 20260910 The Roy Thomson Hall, Toronto, Ontario (© eskystudio/Shutterstock)
-
-![](images/2026-09/20260910_TIFFRoy_1920x1080.jpg)
-
-#### 20260910 Atlantic puffin holding a wild iris in his beak in Elliston, Newfoundland, Canada (© mlorenzphotography/Getty Images)
-
-![](images/2026-09/20260910_PurplePuffin_1920x1080.jpg)
 
 
 
