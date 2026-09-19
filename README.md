@@ -6,6 +6,10 @@
 
 ![](images/2026-09/20260920_Lencois_1920x1080.jpg)
 
+#### 20260920 Château de Castelnaud, Castelnaud-la-Chapelle, Nouvelle-Aquitaine (© garethkirklandphotogrphy/Getty Images)
+
+![](images/2026-09/20260920_CastelnaudPatrimoine_1920x1080.jpg)
+
 #### 20260919 Oktoberfest München, Bayern (© FooTToo/Getty Images)
 
 ![](images/2026-09/20260919_OktoberfestMunich_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260912 California sea lions hunting a sardine bait ball, offshore Mexico, Pacific Ocean (© Henley Spiers/Nature Picture Library)
 
 ![](images/2026-09/20260912_SardineBait_1920x1080.jpg)
-
-#### 20260911 Villefranche-sur-Mer, French Riviera, France (© StockByM/Getty Images)
-
-![](images/2026-09/20260911_FrenchRivieraVillage_1920x1080.jpg)
 
 
 

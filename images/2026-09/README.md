@@ -6,6 +6,10 @@
 
 ![](20260920_Lencois_1920x1080.jpg)
 
+#### 20260920 Château de Castelnaud, Castelnaud-la-Chapelle, Nouvelle-Aquitaine (© garethkirklandphotogrphy/Getty Images)
+
+![](20260920_CastelnaudPatrimoine_1920x1080.jpg)
+
 #### 20260919 Oktoberfest München, Bayern (© FooTToo/Getty Images)
 
 ![](20260919_OktoberfestMunich_1920x1080.jpg)
