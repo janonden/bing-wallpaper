@@ -34,6 +34,10 @@
 
 ![](images/2026-09/20260914_Cosmos_1920x1080.jpg)
 
+#### 20260913 Altes Rathaus in Bamberg, Bayern (© SCStock/Getty Images)
+
+![](images/2026-09/20260913_BambergTownhall_1920x1080.jpg)
+
 #### 20260912 California sea lions hunting a sardine bait ball, offshore Mexico, Pacific Ocean (© Henley Spiers/Nature Picture Library)
 
 ![](images/2026-09/20260912_SardineBait_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260910 Atlantic puffin holding a wild iris in his beak in Elliston, Newfoundland, Canada (© mlorenzphotography/Getty Images)
 
 ![](images/2026-09/20260910_PurplePuffin_1920x1080.jpg)
-
-#### 20260910 Aerial view of Olvera, Andalusia, Spain (© Marco Bottigelli/Getty Images)
-
-![](images/2026-09/20260910_Olvera_1920x1080.jpg)
 
 
 

@@ -34,6 +34,10 @@
 
 ![](20260914_Cosmos_1920x1080.jpg)
 
+#### 20260913 Altes Rathaus in Bamberg, Bayern (© SCStock/Getty Images)
+
+![](20260913_BambergTownhall_1920x1080.jpg)
+
 #### 20260912 California sea lions hunting a sardine bait ball, offshore Mexico, Pacific Ocean (© Henley Spiers/Nature Picture Library)
 
 ![](20260912_SardineBait_1920x1080.jpg)
