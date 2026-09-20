@@ -1,3 +1,7 @@
+#### 20260921 ラッコ, 米国 カリフォルニア州 (© Suzi Eszterhas/Minden Pictures)
+
+![](images/2026-09/20260921_GroomingOtter_1920x1080.jpg)
+
 #### 20260920 Eiffel Tower at sunset, Paris, France (© Alexander Spatari/Getty Images)
 
 ![](images/2026-09/20260920_ParisSunset_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260913 Altes Rathaus in Bamberg, Bayern (© SCStock/Getty Images)
 
 ![](images/2026-09/20260913_BambergTownhall_1920x1080.jpg)
-
-#### 20260912 California sea lions hunting a sardine bait ball, offshore Mexico, Pacific Ocean (© Henley Spiers/Nature Picture Library)
-
-![](images/2026-09/20260912_SardineBait_1920x1080.jpg)
 
 
 
