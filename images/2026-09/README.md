@@ -30,6 +30,10 @@
 
 ![](20260917_Santenay_1920x1080.jpg)
 
+#### 20260917 Aerial view of Olvera, Andalusia, Spain (© Marco Bottigelli/Getty Images)
+
+![](20260917_Olvera_1920x1080.jpg)
+
 #### 20260916 Polar bear cubs playing in Svalbard, Norway (© Danny Green/Nature Picture Library)
 
 ![](20260916_IcyCubs_1920x1080.jpg)

@@ -30,6 +30,10 @@
 
 ![](images/2026-09/20260917_Santenay_1920x1080.jpg)
 
+#### 20260917 Aerial view of Olvera, Andalusia, Spain (© Marco Bottigelli/Getty Images)
+
+![](images/2026-09/20260917_Olvera_1920x1080.jpg)
+
 #### 20260916 Polar bear cubs playing in Svalbard, Norway (© Danny Green/Nature Picture Library)
 
 ![](images/2026-09/20260916_IcyCubs_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260913 Cadini di Misurina, Dolomites, Veneto, Italy (© Vithun Khamsong/Getty Images)
 
 ![](images/2026-09/20260913_MisurinaPeak_1920x1080.jpg)
-
-#### 20260913 Altes Rathaus in Bamberg, Bayern (© SCStock/Getty Images)
-
-![](images/2026-09/20260913_BambergTownhall_1920x1080.jpg)
 
 
 
