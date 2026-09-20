@@ -1,4 +1,4 @@
-#### 20260920 パリ, フランス (© Alexander Spatari/Getty Images)
+#### 20260920 Eiffel Tower at sunset, Paris, France (© Alexander Spatari/Getty Images)
 
 ![](20260920_ParisSunset_1920x1080.jpg)
 
