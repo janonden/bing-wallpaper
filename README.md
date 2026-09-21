@@ -1,4 +1,4 @@
-#### 20260921 ラッコ, 米国 カリフォルニア州 (© Suzi Eszterhas/Minden Pictures)
+#### 20260921 Sea otter grooming fur, Monterey Bay, California (© Suzi Eszterhas/Minden Pictures)
 
 ![](images/2026-09/20260921_GroomingOtter_1920x1080.jpg)
 
