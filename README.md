@@ -1,3 +1,7 @@
+#### 20260922 Hobbit-Haus am Filmset von Hobbiton, Matamata, Neuseeland (© djr-photography/Shutterstock)
+
+![](images/2026-09/20260922_TolkienWeek_1920x1080.jpg)
+
 #### 20260922 瓜兹曼山口附近的秋日山杨林，犹他州，美国 (© Danita Delimont/Shutterstock)
 
 ![](images/2026-09/20260922_FallAspens_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260914 Field of kochia plants, China (© lingqi xie/Getty Images)
 
 ![](images/2026-09/20260914_KochiaChina_1920x1080.jpg)
-
-#### 20260914 川辺のコスモス (© iplan/a.collectionRF/Getty Images)
-
-![](images/2026-09/20260914_Cosmos_1920x1080.jpg)
 
 
 
