@@ -1,3 +1,7 @@
+#### 20260922 瓜兹曼山口附近的秋日山杨林，犹他州，美国 (© Danita Delimont/Shutterstock)
+
+![](20260922_FallAspens_1920x1080.jpg)
+
 #### 20260921 Sea otter grooming fur, Monterey Bay, California (© Suzi Eszterhas/Minden Pictures)
 
 ![](20260921_GroomingOtter_1920x1080.jpg)
