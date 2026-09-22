@@ -2,7 +2,7 @@
 
 ![](20260922_TolkienWeek_1920x1080.jpg)
 
-#### 20260922 瓜兹曼山口附近的秋日山杨林，犹他州，美国 (© Danita Delimont/Shutterstock)
+#### 20260922 Fall aspen trees near Guardsman Pass, Utah, USA (© Danita Delimont/Shutterstock)
 
 ![](20260922_FallAspens_1920x1080.jpg)
 
