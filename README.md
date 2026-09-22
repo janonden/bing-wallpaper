@@ -1,3 +1,11 @@
+#### 20260923 秋の七草のナデシコ (© igaguri_1/Getty Images)
+
+![](images/2026-09/20260923_Japan_1920x1080.jpg)
+
+#### 20260923 地坛公园秋日美景，北京，中国 (© by Wei/Adobestock)
+
+![](images/2026-09/20260923_AutumnEquinoxY_1920x1080.jpg)
+
 #### 20260922 Hobbit-Haus am Filmset von Hobbiton, Matamata, Neuseeland (© djr-photography/Shutterstock)
 
 ![](images/2026-09/20260922_TolkienWeek_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20260915 Red-and-green macaws (© markes51/Getty Images)
 
 ![](images/2026-09/20260915_RedMacawsFlight_1920x1080.jpg)
-
-#### 20260915 Fort Union National Monument, New Mexico (© zrfphoto/Getty Images)
-
-![](images/2026-09/20260915_FortUnion_1920x1080.jpg)
-
-#### 20260914 Field of kochia plants, China (© lingqi xie/Getty Images)
-
-![](images/2026-09/20260914_KochiaChina_1920x1080.jpg)
 
 
 

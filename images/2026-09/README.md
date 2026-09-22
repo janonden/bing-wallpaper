@@ -1,3 +1,11 @@
+#### 20260923 秋の七草のナデシコ (© igaguri_1/Getty Images)
+
+![](20260923_Japan_1920x1080.jpg)
+
+#### 20260923 地坛公园秋日美景，北京，中国 (© by Wei/Adobestock)
+
+![](20260923_AutumnEquinoxY_1920x1080.jpg)
+
 #### 20260922 Hobbit-Haus am Filmset von Hobbiton, Matamata, Neuseeland (© djr-photography/Shutterstock)
 
 ![](20260922_TolkienWeek_1920x1080.jpg)
