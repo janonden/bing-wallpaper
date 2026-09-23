@@ -6,7 +6,7 @@
 
 ![](20260923_AutumnEquinoxY_1920x1080.jpg)
 
-#### 20260922 Hobbit-Haus am Filmset von Hobbiton, Matamata, Neuseeland (© djr-photography/Shutterstock)
+#### 20260922 Hobbit house at Hobbiton Movie Set, Matamata, New Zealand (© djr-photography/Shutterstock)
 
 ![](20260922_TolkienWeek_1920x1080.jpg)
 
