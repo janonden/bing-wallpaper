@@ -1,3 +1,7 @@
+#### 20260924 黑色熔岩海滩鸟瞰图，埃尔戈尔福，兰萨罗特岛，加那利群岛，西班牙 (© Westend61/Adobe Stock)
+
+![](images/2026-09/20260924_ElGolfo_1920x1080.jpg)
+
 #### 20260923 秋の七草のナデシコ (© igaguri_1/Getty Images)
 
 ![](images/2026-09/20260923_Japan_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260916 Polar bear cubs playing in Svalbard, Norway (© Danny Green/Nature Picture Library)
 
 ![](images/2026-09/20260916_IcyCubs_1920x1080.jpg)
-
-#### 20260915 Red-and-green macaws (© markes51/Getty Images)
-
-![](images/2026-09/20260915_RedMacawsFlight_1920x1080.jpg)
 
 
 
