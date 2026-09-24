@@ -1,4 +1,8 @@
-#### 20260924 黑色熔岩海滩鸟瞰图，埃尔戈尔福，兰萨罗特岛，加那利群岛，西班牙 (© Westend61/Adobe Stock)
+#### 20260925 Castelmezzano, Basilicata, Italy (© Sean Pavone/Getty Images)
+
+![](20260925_CastelmezzanoItaly_1920x1080.jpg)
+
+#### 20260924 Aerial view of black lava beach, El Golfo, Lanzarote, Canary Islands, Spain (© Westend61/Adobe Stock)
 
 ![](20260924_ElGolfo_1920x1080.jpg)
 
