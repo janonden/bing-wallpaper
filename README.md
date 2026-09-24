@@ -1,3 +1,7 @@
+#### 20260925 庆祝中秋节的中国灯笼 (© LeeYiuTung/Getty Images)
+
+![](images/2026-09/20260925_MidAutumn_1920x1080.jpg)
+
 #### 20260925 Castelmezzano, Basilicata, Italy (© Sean Pavone/Getty Images)
 
 ![](images/2026-09/20260925_CastelmezzanoItaly_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260917 Sorine windmill and vineyards, Santenay wine region, Côte de Beaune, Burgundy, France (© Marco Bottigelli/Getty Images)
 
 ![](images/2026-09/20260917_Santenay_1920x1080.jpg)
-
-#### 20260917 Aerial view of Olvera, Andalusia, Spain (© Marco Bottigelli/Getty Images)
-
-![](images/2026-09/20260917_Olvera_1920x1080.jpg)
 
 
 
