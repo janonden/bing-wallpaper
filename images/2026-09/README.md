@@ -2,6 +2,10 @@
 
 ![](20260926_JogFalls_1920x1080.jpg)
 
+#### 20260926 熊耳国家纪念区附近的雪松台地和骡子角，犹他州，美国 (© Jeff Clay/Tandem Stills + Motion)
+
+![](20260926_BearsEars_1920x1080.jpg)
+
 #### 20260925 Chinese lanterns for Mid-Autumn Festival celebration (© LeeYiuTung/Getty Images)
 
 ![](20260925_MidAutumn_1920x1080.jpg)

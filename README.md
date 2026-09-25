@@ -2,6 +2,10 @@
 
 ![](images/2026-09/20260926_JogFalls_1920x1080.jpg)
 
+#### 20260926 熊耳国家纪念区附近的雪松台地和骡子角，犹他州，美国 (© Jeff Clay/Tandem Stills + Motion)
+
+![](images/2026-09/20260926_BearsEars_1920x1080.jpg)
+
 #### 20260925 Chinese lanterns for Mid-Autumn Festival celebration (© LeeYiuTung/Getty Images)
 
 ![](images/2026-09/20260925_MidAutumn_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260919 Alphorn players, Bavaria, Germany (© U. J. Alexander/Shutterstock)
 
 ![](images/2026-09/20260919_AlphornBavaria_1920x1080.jpg)
-
-#### 20260918 Winnats Pass, Peak District National Park, England (© Daniel_Kay/Getty Images)
-
-![](images/2026-09/20260918_WinnatsPassPeak_1920x1080.jpg)
 
 
 
