@@ -1,4 +1,8 @@
-#### 20260925 庆祝中秋节的中国灯笼 (© LeeYiuTung/Getty Images)
+#### 20260926 Jog Falls, Sharavathi River, Karnataka, India (© Amith Nag Photography/Getty Images)
+
+![](20260926_JogFalls_1920x1080.jpg)
+
+#### 20260925 Chinese lanterns for Mid-Autumn Festival celebration (© LeeYiuTung/Getty Images)
 
 ![](20260925_MidAutumn_1920x1080.jpg)
 
@@ -22,11 +26,11 @@
 
 ![](20260922_TolkienWeek_1920x1080.jpg)
 
-#### 20260922 Fall aspen trees near Guardsman Pass, Utah, United States (© Danita Delimont/Shutterstock)
+#### 20260922 Fall aspen trees near Guardsman Pass, Utah, USA (© Danita Delimont/Shutterstock)
 
 ![](20260922_FallAspens_1920x1080.jpg)
 
-#### 20260921 Sea otter grooming fur, Monterey Bay, California, United States (© Suzi Eszterhas/Minden Pictures)
+#### 20260921 Sea otter grooming fur, Monterey Bay, California (© Suzi Eszterhas/Minden Pictures)
 
 ![](20260921_GroomingOtter_1920x1080.jpg)
 
