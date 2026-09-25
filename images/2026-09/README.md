@@ -1,6 +1,14 @@
+#### 20260926 Luftaufnahme des Starnberger Sees im Herbst, Bayern (© Mystockimages/Getty Images)
+
+![](20260926_StarnbergerseeAutumn_1920x1080.jpg)
+
 #### 20260926 Jog Falls, Sharavathi River, Karnataka, India (© Amith Nag Photography/Getty Images)
 
 ![](20260926_JogFalls_1920x1080.jpg)
+
+#### 20260926 Village des Bories, Gordes, Provence-Alpes-Côte d’Azur (© AGUILAR PATRICE/Alamy)
+
+![](20260926_BoriesPoppies_1920x1080.jpg)
 
 #### 20260926 熊耳国家纪念区附近的雪松台地和骡子角，犹他州，美国 (© Jeff Clay/Tandem Stills + Motion)
 
