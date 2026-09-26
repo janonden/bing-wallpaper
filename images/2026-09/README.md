@@ -2,6 +2,10 @@
 
 ![](20260926_StarnbergerseeAutumn_1920x1080.jpg)
 
+#### 20260926 Horseshoe Falls illuminated at night in Niagara Falls, Ontario (© Jianmei Wang/E+/Getty Images)
+
+![](20260926_NiagaraOnt_1920x1080.jpg)
+
 #### 20260926 Jog Falls, Sharavathi River, Karnataka, India (© Amith Nag Photography/Getty Images)
 
 ![](20260926_JogFalls_1920x1080.jpg)
@@ -10,7 +14,7 @@
 
 ![](20260926_BoriesPoppies_1920x1080.jpg)
 
-#### 20260926 熊耳国家纪念区附近的雪松台地和骡子角，犹他州，美国 (© Jeff Clay/Tandem Stills + Motion)
+#### 20260926 Cedar Mesa and Muley Point near Bears Ears National Monument, Utah, USA (© Jeff Clay/Tandem Stills + Motion)
 
 ![](20260926_BearsEars_1920x1080.jpg)
 
