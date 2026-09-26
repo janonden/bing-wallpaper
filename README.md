@@ -2,6 +2,10 @@
 
 ![](images/2026-09/20260927_YokohamaBayBridge_1920x1080.jpg)
 
+#### 20260927 海笔上的装饰蟹，科莫多国家公园，印度尼西亚 (© Alex Mustard/Nature Picture Library)
+
+![](images/2026-09/20260927_DecoCrab_1920x1080.jpg)
+
 #### 20260926 Luftaufnahme des Starnberger Sees im Herbst, Bayern (© Mystockimages/Getty Images)
 
 ![](images/2026-09/20260926_StarnbergerseeAutumn_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260921 Sea otter grooming fur, Monterey Bay, California (© Suzi Eszterhas/Minden Pictures)
 
 ![](images/2026-09/20260921_GroomingOtter_1920x1080.jpg)
-
-#### 20260920 Eiffel Tower at sunset, Paris, France (© Alexander Spatari/Getty Images)
-
-![](images/2026-09/20260920_ParisSunset_1920x1080.jpg)
 
 
 
