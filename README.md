@@ -1,3 +1,7 @@
+#### 20260927 横浜ベイブリッジ, 神奈川県 横浜市 (© Yuga Kurita/Getty Images)
+
+![](images/2026-09/20260927_YokohamaBayBridge_1920x1080.jpg)
+
 #### 20260926 Luftaufnahme des Starnberger Sees im Herbst, Bayern (© Mystockimages/Getty Images)
 
 ![](images/2026-09/20260926_StarnbergerseeAutumn_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260920 Eiffel Tower at sunset, Paris, France (© Alexander Spatari/Getty Images)
 
 ![](images/2026-09/20260920_ParisSunset_1920x1080.jpg)
-
-#### 20260920 Lençóis Maranhenses National Park, Brazil (© Ignacio Palacios/Getty Images)
-
-![](images/2026-09/20260920_Lencois_1920x1080.jpg)
 
 
 

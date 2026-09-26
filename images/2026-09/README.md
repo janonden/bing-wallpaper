@@ -1,3 +1,7 @@
+#### 20260927 横浜ベイブリッジ, 神奈川県 横浜市 (© Yuga Kurita/Getty Images)
+
+![](20260927_YokohamaBayBridge_1920x1080.jpg)
+
 #### 20260926 Luftaufnahme des Starnberger Sees im Herbst, Bayern (© Mystockimages/Getty Images)
 
 ![](20260926_StarnbergerseeAutumn_1920x1080.jpg)
