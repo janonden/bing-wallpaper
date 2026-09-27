@@ -1,8 +1,12 @@
+#### 20260928 Sunset over the vineyards of Steinhaldenfeld, Neckar valley, Stuttgart, Germany (© Cyril Gosselin/Getty Images)
+
+![](images/2026-09/20260928_NeckarVineyards_1920x1080.jpg)
+
 #### 20260927 横浜ベイブリッジ, 神奈川県 横浜市 (© Yuga Kurita/Getty Images)
 
 ![](images/2026-09/20260927_YokohamaBayBridge_1920x1080.jpg)
 
-#### 20260927 海笔上的装饰蟹，科莫多国家公园，印度尼西亚 (© Alex Mustard/Nature Picture Library)
+#### 20260927 Decorator crab on a sea pen, Komodo National Park, Indonesia (© Alex Mustard/Nature Picture Library)
 
 ![](images/2026-09/20260927_DecoCrab_1920x1080.jpg)
 
@@ -53,10 +57,6 @@
 #### 20260922 Fall aspen trees near Guardsman Pass, Utah, USA (© Danita Delimont/Shutterstock)
 
 ![](images/2026-09/20260922_FallAspens_1920x1080.jpg)
-
-#### 20260921 Sea otter grooming fur, Monterey Bay, California (© Suzi Eszterhas/Minden Pictures)
-
-![](images/2026-09/20260921_GroomingOtter_1920x1080.jpg)
 
 
 
