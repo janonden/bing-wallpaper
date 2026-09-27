@@ -2,6 +2,10 @@
 
 ![](20260928_NeckarVineyards_1920x1080.jpg)
 
+#### 20260928 斋浦尔附近琥珀堡内的 Sattais Katcheri 大厅，拉贾斯坦邦，印度 (© R.M. Nunes/Getty Images)
+
+![](20260928_AmberHall_1920x1080.jpg)
+
 #### 20260927 横浜ベイブリッジ, 神奈川県 横浜市 (© Yuga Kurita/Getty Images)
 
 ![](20260927_YokohamaBayBridge_1920x1080.jpg)
