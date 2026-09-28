@@ -1,8 +1,12 @@
+#### 20260929 卡西洛夫河冰川融水滋养的湛蓝河水，阿拉斯加州，美国 (© jared lloyd/Getty Images)
+
+![](images/2026-09/20260929_KasilofRiver_1920x1080.jpg)
+
 #### 20260928 Sunset over the vineyards of Steinhaldenfeld, Neckar valley, Stuttgart, Germany (© Cyril Gosselin/Getty Images)
 
 ![](images/2026-09/20260928_NeckarVineyards_1920x1080.jpg)
 
-#### 20260928 斋浦尔附近琥珀堡内的 Sattais Katcheri 大厅，拉贾斯坦邦，印度 (© R.M. Nunes/Getty Images)
+#### 20260928 Sattais Katcheri Hall in Amber Fort near Jaipur, Rajasthan, India (© R.M. Nunes/Getty Images)
 
 ![](images/2026-09/20260928_AmberHall_1920x1080.jpg)
 
@@ -53,10 +57,6 @@
 #### 20260923 地坛公园秋日美景，北京，中国 (© by Wei/Adobestock)
 
 ![](images/2026-09/20260923_AutumnEquinoxY_1920x1080.jpg)
-
-#### 20260922 Hobbit house at Hobbiton Movie Set, Matamata, New Zealand (© djr-photography/Shutterstock)
-
-![](images/2026-09/20260922_TolkienWeek_1920x1080.jpg)
 
 
 
