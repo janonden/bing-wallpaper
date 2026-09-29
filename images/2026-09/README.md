@@ -2,6 +2,10 @@
 
 ![](20260930_BeardReedling_1920x1080.jpg)
 
+#### 20260930 Alphornbläser in Bayern (© U. J. Alexander/Shutterstock)
+
+![](20260930_AlphornBavaria_1920x1080.jpg)
+
 #### 20260929 The blue, glacier-fed waters of the Kasilof River, Alaska, USA (© jared lloyd/Getty Images)
 
 ![](20260929_KasilofRiver_1920x1080.jpg)

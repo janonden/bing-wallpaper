@@ -2,6 +2,10 @@
 
 ![](images/2026-09/20260930_BeardReedling_1920x1080.jpg)
 
+#### 20260930 Alphornbläser in Bayern (© U. J. Alexander/Shutterstock)
+
+![](images/2026-09/20260930_AlphornBavaria_1920x1080.jpg)
+
 #### 20260929 The blue, glacier-fed waters of the Kasilof River, Alaska, USA (© jared lloyd/Getty Images)
 
 ![](images/2026-09/20260929_KasilofRiver_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260924 Aerial view of black lava beach, El Golfo, Lanzarote, Canary Islands, Spain (© Westend61/Adobe Stock)
 
 ![](images/2026-09/20260924_ElGolfo_1920x1080.jpg)
-
-#### 20260923 秋の七草のナデシコ (© igaguri_1/Getty Images)
-
-![](images/2026-09/20260923_Japan_1920x1080.jpg)
 
 
 
