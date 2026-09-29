@@ -1,3 +1,7 @@
+#### 20260930 雄性文须雀，诺福克郡，英格兰 (© Andrew Sproule/Shutterstock)
+
+![](images/2026-09/20260930_BeardReedling_1920x1080.jpg)
+
 #### 20260929 The blue, glacier-fed waters of the Kasilof River, Alaska, USA (© jared lloyd/Getty Images)
 
 ![](images/2026-09/20260929_KasilofRiver_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260923 秋の七草のナデシコ (© igaguri_1/Getty Images)
 
 ![](images/2026-09/20260923_Japan_1920x1080.jpg)
-
-#### 20260923 地坛公园秋日美景，北京，中国 (© by Wei/Adobestock)
-
-![](images/2026-09/20260923_AutumnEquinoxY_1920x1080.jpg)
 
 
 

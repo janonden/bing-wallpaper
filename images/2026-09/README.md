@@ -1,3 +1,7 @@
+#### 20260930 雄性文须雀，诺福克郡，英格兰 (© Andrew Sproule/Shutterstock)
+
+![](20260930_BeardReedling_1920x1080.jpg)
+
 #### 20260929 The blue, glacier-fed waters of the Kasilof River, Alaska, USA (© jared lloyd/Getty Images)
 
 ![](20260929_KasilofRiver_1920x1080.jpg)
