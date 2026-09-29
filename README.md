@@ -1,4 +1,4 @@
-#### 20260929 卡西洛夫河冰川融水滋养的湛蓝河水，阿拉斯加州，美国 (© jared lloyd/Getty Images)
+#### 20260929 The blue, glacier-fed waters of the Kasilof River, Alaska, USA (© jared lloyd/Getty Images)
 
 ![](images/2026-09/20260929_KasilofRiver_1920x1080.jpg)
 
