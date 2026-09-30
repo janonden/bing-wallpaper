@@ -1,3 +1,7 @@
+#### 20261001 奥姆斯特德观景点的日落，优胜美地国家公园，加利福尼亚州，美国 (© Robb Hirsch/Tandem Stills + Motion)
+
+![](images/2026-10/20261001_OlmstedPoint_1920x1080.jpg)
+
 #### 20260930 Male bearded reedling, Norfolk, England (© Andrew Sproule/Shutterstock)
 
 ![](images/2026-09/20260930_BeardReedling_1920x1080.jpg)
@@ -54,10 +58,6 @@
 
 ![](images/2026-09/20260925_CastelmezzanoItaly_1920x1080.jpg)
 
-#### 20260924 Aerial view of black lava beach, El Golfo, Lanzarote, Canary Islands, Spain (© Westend61/Adobe Stock)
-
-![](images/2026-09/20260924_ElGolfo_1920x1080.jpg)
-
 
 
 
@@ -66,7 +66,7 @@
 
 
 
-- 2026&emsp;&emsp;[09](images/2026-09/README.md) &emsp;&emsp;[08](images/2026-08/README.md) &emsp;&emsp;[07](images/2026-07/README.md) &emsp;&emsp;[06](images/2026-06/README.md) &emsp;&emsp;[05](images/2026-05/README.md) &emsp;&emsp;[04](images/2026-04/README.md) &emsp;&emsp;[03](images/2026-03/README.md) &emsp;&emsp;[02](images/2026-02/README.md) &emsp;&emsp;[01](images/2026-01/README.md) 
+- 2026&emsp;&emsp;[10](images/2026-10/README.md) &emsp;&emsp;[09](images/2026-09/README.md) &emsp;&emsp;[08](images/2026-08/README.md) &emsp;&emsp;[07](images/2026-07/README.md) &emsp;&emsp;[06](images/2026-06/README.md) &emsp;&emsp;[05](images/2026-05/README.md) &emsp;&emsp;[04](images/2026-04/README.md) &emsp;&emsp;[03](images/2026-03/README.md) &emsp;&emsp;[02](images/2026-02/README.md) &emsp;&emsp;[01](images/2026-01/README.md) 
 
 - 2025&emsp;&emsp;[12](https://github.com/janonden/bing-wallpaper/blob/2025/images/2025-12/README.md) &emsp;&emsp;[11](https://github.com/janonden/bing-wallpaper/blob/2025/images/2025-11/README.md) &emsp;&emsp;[10](https://github.com/janonden/bing-wallpaper/blob/2025/images/2025-10/README.md) &emsp;&emsp;[09](https://github.com/janonden/bing-wallpaper/blob/2025/images/2025-09/README.md) &emsp;&emsp;[08](https://github.com/janonden/bing-wallpaper/blob/2025/images/2025-08/README.md) &emsp;&emsp;[07](https://github.com/janonden/bing-wallpaper/blob/2025/images/2025-07/README.md) &emsp;&emsp;[06](https://github.com/janonden/bing-wallpaper/blob/2025/images/2025-06/README.md) &emsp;&emsp;[05](https://github.com/janonden/bing-wallpaper/blob/2025/images/2025-05/README.md) &emsp;&emsp;[04](https://github.com/janonden/bing-wallpaper/blob/2025/images/2025-04/README.md) &emsp;&emsp;[03](https://github.com/janonden/bing-wallpaper/blob/2025/images/2025-03/README.md) &emsp;&emsp;[02](https://github.com/janonden/bing-wallpaper/blob/2025/images/2025-02/README.md) &emsp;&emsp;[01](https://github.com/janonden/bing-wallpaper/blob/2025/images/2025-01/README.md) 
 
