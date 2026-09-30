@@ -1,4 +1,4 @@
-#### 20260930 雄性文须雀，诺福克郡，英格兰 (© Andrew Sproule/Shutterstock)
+#### 20260930 Male bearded reedling, Norfolk, England (© Andrew Sproule/Shutterstock)
 
 ![](20260930_BeardReedling_1920x1080.jpg)
 
