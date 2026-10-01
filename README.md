@@ -1,8 +1,12 @@
+#### 20261002 チャトゥーガ川, 米国 ノースカロライナ州 (© mtilghma/Getty Images)
+
+![](images/2026-10/20261002_ChattoogaRiver_1920x1080.jpg)
+
 #### 20261001 La tour Eiffel au coucher de soleil, Paris (© Alexander Spatari/Getty Images)
 
 ![](images/2026-10/20261001_ParisSunset_1920x1080.jpg)
 
-#### 20261001 奥姆斯特德观景点的日落，优胜美地国家公园，加利福尼亚州，美国 (© Robb Hirsch/Tandem Stills + Motion)
+#### 20261001 Sunset from Olmsted Point, Yosemite National Park, California, USA (© Robb Hirsch/Tandem Stills + Motion)
 
 ![](images/2026-10/20261001_OlmstedPoint_1920x1080.jpg)
 
@@ -53,10 +57,6 @@
 #### 20260926 Cedar Mesa and Muley Point near Bears Ears National Monument, Utah, USA (© Jeff Clay/Tandem Stills + Motion)
 
 ![](images/2026-09/20260926_BearsEars_1920x1080.jpg)
-
-#### 20260925 Chinese lanterns for Mid-Autumn Festival celebration (© LeeYiuTung/Getty Images)
-
-![](images/2026-09/20260925_MidAutumn_1920x1080.jpg)
 
 
 
