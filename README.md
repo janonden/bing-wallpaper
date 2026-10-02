@@ -1,6 +1,14 @@
+#### 20261002 Braunbär am Silver Salmon Creek, Lake Clark National Park and Preserve, Alaska, USA (© Danny Green/Nature Picture Library)
+
+![](images/2026-10/20261002_GrizzlySwim_1920x1080.jpg)
+
 #### 20261002 チャトゥーガ川, 米国 ノースカロライナ州 (© mtilghma/Getty Images)
 
 ![](images/2026-10/20261002_ChattoogaRiver_1920x1080.jpg)
+
+#### 20261002 Végétation automnale multicolore sur la tourbière (© Utopia_88/Getty Images)
+
+![](images/2026-10/20261002_AutumnPeatBog_1920x1080.jpg)
 
 #### 20261001 La tour Eiffel au coucher de soleil, Paris (© Alexander Spatari/Getty Images)
 
@@ -49,14 +57,6 @@
 #### 20260926 Jog Falls, Sharavathi River, Karnataka, India (© Amith Nag Photography/Getty Images)
 
 ![](images/2026-09/20260926_JogFalls_1920x1080.jpg)
-
-#### 20260926 Village des Bories, Gordes, Provence-Alpes-Côte d’Azur (© AGUILAR PATRICE/Alamy)
-
-![](images/2026-09/20260926_BoriesPoppies_1920x1080.jpg)
-
-#### 20260926 Cedar Mesa and Muley Point near Bears Ears National Monument, Utah, USA (© Jeff Clay/Tandem Stills + Motion)
-
-![](images/2026-09/20260926_BearsEars_1920x1080.jpg)
 
 
 

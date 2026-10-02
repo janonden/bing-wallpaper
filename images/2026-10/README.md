@@ -1,6 +1,14 @@
+#### 20261002 Braunbär am Silver Salmon Creek, Lake Clark National Park and Preserve, Alaska, USA (© Danny Green/Nature Picture Library)
+
+![](20261002_GrizzlySwim_1920x1080.jpg)
+
 #### 20261002 チャトゥーガ川, 米国 ノースカロライナ州 (© mtilghma/Getty Images)
 
 ![](20261002_ChattoogaRiver_1920x1080.jpg)
+
+#### 20261002 Végétation automnale multicolore sur la tourbière (© Utopia_88/Getty Images)
+
+![](20261002_AutumnPeatBog_1920x1080.jpg)
 
 #### 20261001 La tour Eiffel au coucher de soleil, Paris (© Alexander Spatari/Getty Images)
 
