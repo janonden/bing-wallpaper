@@ -2,7 +2,7 @@
 
 ![](20261002_GrizzlySwim_1920x1080.jpg)
 
-#### 20261002 チャトゥーガ川, 米国 ノースカロライナ州 (© mtilghma/Getty Images)
+#### 20261002 Chattooga River in the Appalachian Mountains, North Carolina (© mtilghma/Getty Images)
 
 ![](20261002_ChattoogaRiver_1920x1080.jpg)
 
