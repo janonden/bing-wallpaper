@@ -1,3 +1,7 @@
+#### 20261003 アンモナイトの化石 (© J Nemchinova/Getty Images)
+
+![](images/2026-10/20261003_AmmoniteFossils_1920x1080.jpg)
+
 #### 20261002 Braunbär am Silver Salmon Creek, Lake Clark National Park and Preserve, Alaska, USA (© Danny Green/Nature Picture Library)
 
 ![](images/2026-10/20261002_GrizzlySwim_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260926 Horseshoe Falls illuminated at night in Niagara Falls, Ontario (© Jianmei Wang/E+/Getty Images)
 
 ![](images/2026-09/20260926_NiagaraOnt_1920x1080.jpg)
-
-#### 20260926 Jog Falls, Sharavathi River, Karnataka, India (© Amith Nag Photography/Getty Images)
-
-![](images/2026-09/20260926_JogFalls_1920x1080.jpg)
 
 
 
