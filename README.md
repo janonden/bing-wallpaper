@@ -1,3 +1,7 @@
+#### 20261004 Grues cendrées en vol à l'aube, lac du Der, France (© Christophe Lehenaff/Getty Images)
+
+![](images/2026-10/20261004_GruesDer_1920x1080.jpg)
+
 #### 20261004 阿尔忒弥斯1号月球火箭，39B发射台，肯尼迪航天中心，佛罗里达州，2022年6月15日 (© EVA MARIE UZCATEGUI/Getty Images)
 
 ![](images/2026-10/20261004_ArtemisRocket_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260928 Sattais Katcheri Hall in Amber Fort near Jaipur, Rajasthan, India (© R.M. Nunes/Getty Images)
 
 ![](images/2026-09/20260928_AmberHall_1920x1080.jpg)
-
-#### 20260927 横浜ベイブリッジ, 神奈川県 横浜市 (© Yuga Kurita/Getty Images)
-
-![](images/2026-09/20260927_YokohamaBayBridge_1920x1080.jpg)
 
 
 
