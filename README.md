@@ -10,7 +10,7 @@
 
 ![](images/2026-10/20261003_AmmoniteFossils_1920x1080.jpg)
 
-#### 20261002 Braunbär am Silver Salmon Creek, Lake Clark National Park and Preserve, Alaska, USA (© Danny Green/Nature Picture Library)
+#### 20261002 Brown bear in Silver Salmon Creek, Lake Clark National Park and Preserve, Alaska (© Danny Green/Nature Picture Library)
 
 ![](images/2026-10/20261002_GrizzlySwim_1920x1080.jpg)
 
