@@ -1,3 +1,7 @@
+#### 20261004 阿尔忒弥斯1号月球火箭，39B发射台，肯尼迪航天中心，佛罗里达州，2022年6月15日 (© EVA MARIE UZCATEGUI/Getty Images)
+
+![](images/2026-10/20261004_ArtemisRocket_1920x1080.jpg)
+
 #### 20261003 Toronto City Hall illuminated at night (© EB Adventure Photography/Shutterstock)
 
 ![](images/2026-10/20261003_NuitBToro_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260927 横浜ベイブリッジ, 神奈川県 横浜市 (© Yuga Kurita/Getty Images)
 
 ![](images/2026-09/20260927_YokohamaBayBridge_1920x1080.jpg)
-
-#### 20260927 Decorator crab on a sea pen, Komodo National Park, Indonesia (© Alex Mustard/Nature Picture Library)
-
-![](images/2026-09/20260927_DecoCrab_1920x1080.jpg)
 
 
 

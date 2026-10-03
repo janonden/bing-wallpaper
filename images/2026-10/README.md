@@ -1,3 +1,7 @@
+#### 20261004 阿尔忒弥斯1号月球火箭，39B发射台，肯尼迪航天中心，佛罗里达州，2022年6月15日 (© EVA MARIE UZCATEGUI/Getty Images)
+
+![](20261004_ArtemisRocket_1920x1080.jpg)
+
 #### 20261003 Toronto City Hall illuminated at night (© EB Adventure Photography/Shutterstock)
 
 ![](20261003_NuitBToro_1920x1080.jpg)
