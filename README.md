@@ -1,3 +1,11 @@
+#### 20261003 Toronto City Hall illuminated at night (© EB Adventure Photography/Shutterstock)
+
+![](images/2026-10/20261003_NuitBToro_1920x1080.jpg)
+
+#### 20261003 Brandenburger Tor, Berlin (© almir1968/Getty Images)
+
+![](images/2026-10/20261003_BrandenburgGateFireworks_1920x1080.jpg)
+
 #### 20261003 アンモナイトの化石 (© J Nemchinova/Getty Images)
 
 ![](images/2026-10/20261003_AmmoniteFossils_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20260927 Decorator crab on a sea pen, Komodo National Park, Indonesia (© Alex Mustard/Nature Picture Library)
 
 ![](images/2026-09/20260927_DecoCrab_1920x1080.jpg)
-
-#### 20260926 Luftaufnahme des Starnberger Sees im Herbst, Bayern (© Mystockimages/Getty Images)
-
-![](images/2026-09/20260926_StarnbergerseeAutumn_1920x1080.jpg)
-
-#### 20260926 Horseshoe Falls illuminated at night in Niagara Falls, Ontario (© Jianmei Wang/E+/Getty Images)
-
-![](images/2026-09/20260926_NiagaraOnt_1920x1080.jpg)
 
 
 
