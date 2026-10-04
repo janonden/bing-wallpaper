@@ -1,8 +1,12 @@
+#### 20261005 Château de Castelnaud overlooking the river Dordogne, France (© garethkirklandphotogrphy/Getty Images)
+
+![](20261005_CastelnaudPatrimoine_1920x1080.jpg)
+
 #### 20261004 Grues cendrées en vol à l'aube, lac du Der, France (© Christophe Lehenaff/Getty Images)
 
 ![](20261004_GruesDer_1920x1080.jpg)
 
-#### 20261004 阿尔忒弥斯1号月球火箭，39B发射台，肯尼迪航天中心，佛罗里达州，2022年6月15日 (© EVA MARIE UZCATEGUI/Getty Images)
+#### 20261004 Artemis I moon rocket at Launch Complex 39B, Kennedy Space Center, Florida, June 15, 2022 (© EVA MARIE UZCATEGUI/Getty Images)
 
 ![](20261004_ArtemisRocket_1920x1080.jpg)
 
