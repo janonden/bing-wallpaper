@@ -2,6 +2,10 @@
 
 ![](20261005_CastelnaudPatrimoine_1920x1080.jpg)
 
+#### 20261005 南极洲的阿德利企鹅 (© Otto Plantema/Minden Pictures)
+
+![](20261005_AdelieTeacher_1920x1080.jpg)
+
 #### 20261004 Grues cendrées en vol à l'aube, lac du Der, France (© Christophe Lehenaff/Getty Images)
 
 ![](20261004_GruesDer_1920x1080.jpg)
