@@ -1,8 +1,12 @@
+#### 20261006 丹霞地貌，张掖国家地质公园，甘肃省，中国 (© Weiquan Lin/Getty Images)
+
+![](20261006_DanxiaLandform_1920x1080.jpg)
+
 #### 20261005 Château de Castelnaud overlooking the river Dordogne, France (© garethkirklandphotogrphy/Getty Images)
 
 ![](20261005_CastelnaudPatrimoine_1920x1080.jpg)
 
-#### 20261005 南极洲的阿德利企鹅 (© Otto Plantema/Minden Pictures)
+#### 20261005 Adélie penguins, Antarctica (© Otto Plantema/Minden Pictures)
 
 ![](20261005_AdelieTeacher_1920x1080.jpg)
 

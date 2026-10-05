@@ -1,8 +1,12 @@
+#### 20261006 丹霞地貌，张掖国家地质公园，甘肃省，中国 (© Weiquan Lin/Getty Images)
+
+![](images/2026-10/20261006_DanxiaLandform_1920x1080.jpg)
+
 #### 20261005 Château de Castelnaud overlooking the river Dordogne, France (© garethkirklandphotogrphy/Getty Images)
 
 ![](images/2026-10/20261005_CastelnaudPatrimoine_1920x1080.jpg)
 
-#### 20261005 南极洲的阿德利企鹅 (© Otto Plantema/Minden Pictures)
+#### 20261005 Adélie penguins, Antarctica (© Otto Plantema/Minden Pictures)
 
 ![](images/2026-10/20261005_AdelieTeacher_1920x1080.jpg)
 
@@ -53,10 +57,6 @@
 #### 20260930 Alphornbläser in Bayern (© U. J. Alexander/Shutterstock)
 
 ![](images/2026-09/20260930_AlphornBavaria_1920x1080.jpg)
-
-#### 20260929 The blue, glacier-fed waters of the Kasilof River, Alaska, USA (© jared lloyd/Getty Images)
-
-![](images/2026-09/20260929_KasilofRiver_1920x1080.jpg)
 
 
 
