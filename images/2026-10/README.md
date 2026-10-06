@@ -1,4 +1,4 @@
-#### 20261006 丹霞地貌，张掖国家地质公园，甘肃省，中国 (© Weiquan Lin/Getty Images)
+#### 20261006 Danxia landform, Zhangye National Geopark, Gansu, China (© Weiquan Lin/Getty Images)
 
 ![](20261006_DanxiaLandform_1920x1080.jpg)
 
