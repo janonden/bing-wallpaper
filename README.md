@@ -1,3 +1,7 @@
+#### 20261007 覆满苔藓的岩石，英国格洛斯特郡谜林，迪恩森林，格洛斯特郡，英格兰 (© Fulcanelli_AOS/Getty Images)
+
+![](images/2026-10/20261007_ForestofDean_1920x1080.jpg)
+
 #### 20261006 Danxia landform, Zhangye National Geopark, Gansu, China (© Weiquan Lin/Getty Images)
 
 ![](images/2026-10/20261006_DanxiaLandform_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20260930 Male bearded reedling, Norfolk, England (© Andrew Sproule/Shutterstock)
 
 ![](images/2026-09/20260930_BeardReedling_1920x1080.jpg)
-
-#### 20260930 Alphornbläser in Bayern (© U. J. Alexander/Shutterstock)
-
-![](images/2026-09/20260930_AlphornBavaria_1920x1080.jpg)
 
 
 

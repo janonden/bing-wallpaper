@@ -1,3 +1,7 @@
+#### 20261007 覆满苔藓的岩石，英国格洛斯特郡谜林，迪恩森林，格洛斯特郡，英格兰 (© Fulcanelli_AOS/Getty Images)
+
+![](20261007_ForestofDean_1920x1080.jpg)
+
 #### 20261006 Danxia landform, Zhangye National Geopark, Gansu, China (© Weiquan Lin/Getty Images)
 
 ![](20261006_DanxiaLandform_1920x1080.jpg)
