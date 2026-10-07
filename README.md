@@ -1,4 +1,8 @@
-#### 20261007 覆满苔藓的岩石，英国格洛斯特郡谜林，迪恩森林，格洛斯特郡，英格兰 (© Fulcanelli_AOS/Getty Images)
+#### 20261008 栗の実 (© y-studio/Getty Images)
+
+![](images/2026-10/20261008_Chestnut_1920x1080.jpg)
+
+#### 20261007 Moss-covered rocks in Puzzlewood, Forest of Dean, Gloucestershire, England (© Fulcanelli_AOS/Getty Images)
 
 ![](images/2026-10/20261007_ForestofDean_1920x1080.jpg)
 
@@ -53,10 +57,6 @@
 #### 20261001 Sunset from Olmsted Point, Yosemite National Park, California, USA (© Robb Hirsch/Tandem Stills + Motion)
 
 ![](images/2026-10/20261001_OlmstedPoint_1920x1080.jpg)
-
-#### 20260930 Male bearded reedling, Norfolk, England (© Andrew Sproule/Shutterstock)
-
-![](images/2026-09/20260930_BeardReedling_1920x1080.jpg)
 
 
 

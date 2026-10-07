@@ -1,4 +1,8 @@
-#### 20261007 覆满苔藓的岩石，英国格洛斯特郡谜林，迪恩森林，格洛斯特郡，英格兰 (© Fulcanelli_AOS/Getty Images)
+#### 20261008 栗の実 (© y-studio/Getty Images)
+
+![](20261008_Chestnut_1920x1080.jpg)
+
+#### 20261007 Moss-covered rocks in Puzzlewood, Forest of Dean, Gloucestershire, England (© Fulcanelli_AOS/Getty Images)
 
 ![](20261007_ForestofDean_1920x1080.jpg)
 
