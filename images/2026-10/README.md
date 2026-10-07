@@ -1,3 +1,7 @@
+#### 20261008 印度洋马约特岛，一只呈防御姿态的章鱼 (© Gabriel Barathieu/Minden Pictures)
+
+![](20261008_MayotteOctopus_1920x1080.jpg)
+
 #### 20261008 栗の実 (© y-studio/Getty Images)
 
 ![](20261008_Chestnut_1920x1080.jpg)

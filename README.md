@@ -1,3 +1,7 @@
+#### 20261008 印度洋马约特岛，一只呈防御姿态的章鱼 (© Gabriel Barathieu/Minden Pictures)
+
+![](images/2026-10/20261008_MayotteOctopus_1920x1080.jpg)
+
 #### 20261008 栗の実 (© y-studio/Getty Images)
 
 ![](images/2026-10/20261008_Chestnut_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20261001 La tour Eiffel au coucher de soleil, Paris (© Alexander Spatari/Getty Images)
 
 ![](images/2026-10/20261001_ParisSunset_1920x1080.jpg)
-
-#### 20261001 Sunset from Olmsted Point, Yosemite National Park, California, USA (© Robb Hirsch/Tandem Stills + Motion)
-
-![](images/2026-10/20261001_OlmstedPoint_1920x1080.jpg)
 
 
 
