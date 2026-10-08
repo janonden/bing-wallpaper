@@ -1,4 +1,8 @@
-#### 20261008 印度洋马约特岛，一只呈防御姿态的章鱼 (© Gabriel Barathieu/Minden Pictures)
+#### 20261009 サンギネール諸島, フランス (© Francesco Riccardo Iacomino/Getty Images)
+
+![](images/2026-10/20261009_IlesSanguinaires_1920x1080.jpg)
+
+#### 20261008 Octopus in defensive posture, Mayotte, Indian Ocean (© Gabriel Barathieu/Minden Pictures)
 
 ![](images/2026-10/20261008_MayotteOctopus_1920x1080.jpg)
 
@@ -53,10 +57,6 @@
 #### 20261002 Végétation automnale multicolore sur la tourbière (© Utopia_88/Getty Images)
 
 ![](images/2026-10/20261002_AutumnPeatBog_1920x1080.jpg)
-
-#### 20261001 La tour Eiffel au coucher de soleil, Paris (© Alexander Spatari/Getty Images)
-
-![](images/2026-10/20261001_ParisSunset_1920x1080.jpg)
 
 
 
