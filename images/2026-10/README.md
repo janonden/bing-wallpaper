@@ -1,4 +1,8 @@
-#### 20261009 サンギネール諸島, フランス (© Francesco Riccardo Iacomino/Getty Images)
+#### 20261010 モントレー湾, 米国 カリフォルニア州 (© Hiroya Minakuchi/Minden Pictures)
+
+![](20261010_CormorantsFlight_1920x1080.jpg)
+
+#### 20261009 View of the Sanguinaires Islands from Corsica, France (© Francesco Riccardo Iacomino/Getty Images)
 
 ![](20261009_IlesSanguinaires_1920x1080.jpg)
 

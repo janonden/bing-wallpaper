@@ -1,4 +1,8 @@
-#### 20261009 サンギネール諸島, フランス (© Francesco Riccardo Iacomino/Getty Images)
+#### 20261010 モントレー湾, 米国 カリフォルニア州 (© Hiroya Minakuchi/Minden Pictures)
+
+![](images/2026-10/20261010_CormorantsFlight_1920x1080.jpg)
+
+#### 20261009 View of the Sanguinaires Islands from Corsica, France (© Francesco Riccardo Iacomino/Getty Images)
 
 ![](images/2026-10/20261009_IlesSanguinaires_1920x1080.jpg)
 
@@ -53,10 +57,6 @@
 #### 20261002 Chattooga River in the Appalachian Mountains, North Carolina (© mtilghma/Getty Images)
 
 ![](images/2026-10/20261002_ChattoogaRiver_1920x1080.jpg)
-
-#### 20261002 Végétation automnale multicolore sur la tourbière (© Utopia_88/Getty Images)
-
-![](images/2026-10/20261002_AutumnPeatBog_1920x1080.jpg)
 
 
 
