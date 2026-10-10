@@ -1,4 +1,4 @@
-#### 20261010 モントレー湾, 米国 カリフォルニア州 (© Hiroya Minakuchi/Minden Pictures)
+#### 20261010 Double-crested cormorants over Monterey Bay, California (© Hiroya Minakuchi/Minden Pictures)
 
 ![](20261010_CormorantsFlight_1920x1080.jpg)
 
