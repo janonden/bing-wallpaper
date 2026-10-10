@@ -1,8 +1,12 @@
+#### 20261011 Europäisches Mufflon (Widder) im Herbstwald, Bayern (© imageBROKER/David & Micha Sheldon/Getty Images)
+
+![](images/2026-10/20261011_MouflonAutumn_1920x1080.jpg)
+
 #### 20261011 格莱德溪磨坊，巴布科克州立公园，西弗吉尼亚州，美国 (© dszc/Getty Images)
 
 ![](images/2026-10/20261011_BabcockSP_1920x1080.jpg)
 
-#### 20261010 Double-crested cormorants over Monterey Bay, California (© Hiroya Minakuchi/Minden Pictures)
+#### 20261010 Double-crested cormorants over Monterey Bay, California, United States (© Hiroya Minakuchi/Minden Pictures)
 
 ![](images/2026-10/20261010_CormorantsFlight_1920x1080.jpg)
 
@@ -53,10 +57,6 @@
 #### 20261003 アンモナイトの化石 (© J Nemchinova/Getty Images)
 
 ![](images/2026-10/20261003_AmmoniteFossils_1920x1080.jpg)
-
-#### 20261002 Brown bear in Silver Salmon Creek, Lake Clark National Park and Preserve, Alaska (© Danny Green/Nature Picture Library)
-
-![](images/2026-10/20261002_GrizzlySwim_1920x1080.jpg)
 
 
 
