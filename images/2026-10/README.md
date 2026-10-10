@@ -1,3 +1,7 @@
+#### 20261011 格莱德溪磨坊，巴布科克州立公园，西弗吉尼亚州，美国 (© dszc/Getty Images)
+
+![](20261011_BabcockSP_1920x1080.jpg)
+
 #### 20261010 Double-crested cormorants over Monterey Bay, California (© Hiroya Minakuchi/Minden Pictures)
 
 ![](20261010_CormorantsFlight_1920x1080.jpg)
