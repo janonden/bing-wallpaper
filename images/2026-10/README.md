@@ -6,7 +6,7 @@
 
 ![](20261011_BabcockSP_1920x1080.jpg)
 
-#### 20261010 Double-crested cormorants over Monterey Bay, California, United States (© Hiroya Minakuchi/Minden Pictures)
+#### 20261010 Double-crested cormorants over Monterey Bay, California (© Hiroya Minakuchi/Minden Pictures)
 
 ![](20261010_CormorantsFlight_1920x1080.jpg)
 
