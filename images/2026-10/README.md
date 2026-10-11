@@ -1,3 +1,11 @@
+#### 20261012 ベニコンゴウインコのペア (© markes51/Getty Images)
+
+![](20261012_RedMacawsFlight_1920x1080.jpg)
+
+#### 20261012 曼布尔斯码头，斯旺西，威尔士 (© Helen Hotson/Shutterstock)
+
+![](20261012_MumblesSwansea_1920x1080.jpg)
+
 #### 20261011 Europäisches Mufflon (Widder) im Herbstwald, Bayern (© imageBROKER/David & Micha Sheldon/Getty Images)
 
 ![](20261011_MouflonAutumn_1920x1080.jpg)
