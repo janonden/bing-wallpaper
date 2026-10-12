@@ -6,6 +6,10 @@
 
 ![](images/2026-10/20261012_MumblesSwansea_1920x1080.jpg)
 
+#### 20261012 Baker Lake near East Bolton, Quebec (© SEBASTIEN ST-JEAN/Contributor/Getty Images)
+
+![](images/2026-10/20261012_HeartLakeTG_1920x1080.jpg)
+
 #### 20261011 Europäisches Mufflon (Widder) im Herbstwald, Bayern (© imageBROKER/David & Micha Sheldon/Getty Images)
 
 ![](images/2026-10/20261011_MouflonAutumn_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20261004 Artemis I moon rocket at Launch Complex 39B, Kennedy Space Center, Florida, June 15, 2022 (© EVA MARIE UZCATEGUI/Getty Images)
 
 ![](images/2026-10/20261004_ArtemisRocket_1920x1080.jpg)
-
-#### 20261003 Toronto City Hall illuminated at night (© EB Adventure Photography/Shutterstock)
-
-![](images/2026-10/20261003_NuitBToro_1920x1080.jpg)
 
 
 

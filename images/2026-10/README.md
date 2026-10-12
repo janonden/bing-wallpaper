@@ -6,6 +6,10 @@
 
 ![](20261012_MumblesSwansea_1920x1080.jpg)
 
+#### 20261012 Baker Lake near East Bolton, Quebec (© SEBASTIEN ST-JEAN/Contributor/Getty Images)
+
+![](20261012_HeartLakeTG_1920x1080.jpg)
+
 #### 20261011 Europäisches Mufflon (Widder) im Herbstwald, Bayern (© imageBROKER/David & Micha Sheldon/Getty Images)
 
 ![](20261011_MouflonAutumn_1920x1080.jpg)
