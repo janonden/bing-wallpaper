@@ -1,3 +1,11 @@
+#### 20261013 普利特维采湖群国家公园，克罗地亚 (© Jan Wlodarczyk/Alamy)
+
+![](images/2026-10/20261013_PlitviceAutumn_1920x1080.jpg)
+
+#### 20261012 White House Ruin at Canyon de Chelly National Monument in Arizona (© Ingo Arndt/Minden Pictures)
+
+![](images/2026-10/20261012_WhiteHouse_1920x1080.jpg)
+
 #### 20261012 ベニコンゴウインコのペア (© markes51/Getty Images)
 
 ![](images/2026-10/20261012_RedMacawsFlight_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20261005 Adélie penguins, Antarctica (© Otto Plantema/Minden Pictures)
 
 ![](images/2026-10/20261005_AdelieTeacher_1920x1080.jpg)
-
-#### 20261004 Grues cendrées en vol à l'aube, lac du Der, France (© Christophe Lehenaff/Getty Images)
-
-![](images/2026-10/20261004_GruesDer_1920x1080.jpg)
-
-#### 20261004 Artemis I moon rocket at Launch Complex 39B, Kennedy Space Center, Florida, June 15, 2022 (© EVA MARIE UZCATEGUI/Getty Images)
-
-![](images/2026-10/20261004_ArtemisRocket_1920x1080.jpg)
 
 
 

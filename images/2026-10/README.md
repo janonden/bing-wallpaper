@@ -1,3 +1,11 @@
+#### 20261013 普利特维采湖群国家公园，克罗地亚 (© Jan Wlodarczyk/Alamy)
+
+![](20261013_PlitviceAutumn_1920x1080.jpg)
+
+#### 20261012 White House Ruin at Canyon de Chelly National Monument in Arizona (© Ingo Arndt/Minden Pictures)
+
+![](20261012_WhiteHouse_1920x1080.jpg)
+
 #### 20261012 ベニコンゴウインコのペア (© markes51/Getty Images)
 
 ![](20261012_RedMacawsFlight_1920x1080.jpg)
