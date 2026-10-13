@@ -1,4 +1,4 @@
-#### 20261013 普利特维采湖群国家公园，克罗地亚 (© Jan Wlodarczyk/Alamy)
+#### 20261013 Plitvice Lakes National Park, Croatia (© Jan Wlodarczyk/Alamy)
 
 ![](20261013_PlitviceAutumn_1920x1080.jpg)
 
