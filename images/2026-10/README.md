@@ -2,6 +2,10 @@
 
 ![](20261014_RailwayDay_1920x1080.jpg)
 
+#### 20261014 侏罗纪时期的菊石化石 (© J Nemchinova/Getty Images)
+
+![](20261014_AmmoniteFossils_1920x1080.jpg)
+
 #### 20261013 Plitvice Lakes National Park, Croatia (© Jan Wlodarczyk/Alamy)
 
 ![](20261013_PlitviceAutumn_1920x1080.jpg)

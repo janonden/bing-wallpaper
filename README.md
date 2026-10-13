@@ -2,6 +2,10 @@
 
 ![](images/2026-10/20261014_RailwayDay_1920x1080.jpg)
 
+#### 20261014 侏罗纪时期的菊石化石 (© J Nemchinova/Getty Images)
+
+![](images/2026-10/20261014_AmmoniteFossils_1920x1080.jpg)
+
 #### 20261013 Plitvice Lakes National Park, Croatia (© Jan Wlodarczyk/Alamy)
 
 ![](images/2026-10/20261013_PlitviceAutumn_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20261006 Danxia landform, Zhangye National Geopark, Gansu, China (© Weiquan Lin/Getty Images)
 
 ![](images/2026-10/20261006_DanxiaLandform_1920x1080.jpg)
-
-#### 20261005 Château de Castelnaud overlooking the river Dordogne, France (© garethkirklandphotogrphy/Getty Images)
-
-![](images/2026-10/20261005_CastelnaudPatrimoine_1920x1080.jpg)
 
 
 
