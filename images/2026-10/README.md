@@ -1,3 +1,7 @@
+#### 20261014 嵯峨野トロッコ列車, 京都府京都市 (© giggsy25/Shutterstock)
+
+![](20261014_RailwayDay_1920x1080.jpg)
+
 #### 20261013 Plitvice Lakes National Park, Croatia (© Jan Wlodarczyk/Alamy)
 
 ![](20261013_PlitviceAutumn_1920x1080.jpg)

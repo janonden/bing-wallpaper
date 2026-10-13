@@ -1,3 +1,7 @@
+#### 20261014 嵯峨野トロッコ列車, 京都府京都市 (© giggsy25/Shutterstock)
+
+![](images/2026-10/20261014_RailwayDay_1920x1080.jpg)
+
 #### 20261013 Plitvice Lakes National Park, Croatia (© Jan Wlodarczyk/Alamy)
 
 ![](images/2026-10/20261013_PlitviceAutumn_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20261005 Château de Castelnaud overlooking the river Dordogne, France (© garethkirklandphotogrphy/Getty Images)
 
 ![](images/2026-10/20261005_CastelnaudPatrimoine_1920x1080.jpg)
-
-#### 20261005 Adélie penguins, Antarctica (© Otto Plantema/Minden Pictures)
-
-![](images/2026-10/20261005_AdelieTeacher_1920x1080.jpg)
 
 
 
