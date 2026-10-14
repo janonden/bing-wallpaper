@@ -46,6 +46,10 @@
 
 ![](images/2026-10/20261010_CormorantsFlight_1920x1080.jpg)
 
+#### 20261010 Fusée lunaire Artemis I au complexe de lancement 39B, Centre spatial Kennedy, Floride, 15 juin 2022 (© EVA MARIE UZCATEGUI/Getty Images)
+
+![](images/2026-10/20261010_ArtemisRocket_1920x1080.jpg)
+
 #### 20261009 View of the Sanguinaires Islands from Corsica, France (© Francesco Riccardo Iacomino/Getty Images)
 
 ![](images/2026-10/20261009_IlesSanguinaires_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20261008 Octopus in defensive posture, Mayotte, Indian Ocean (© Gabriel Barathieu/Minden Pictures)
 
 ![](images/2026-10/20261008_MayotteOctopus_1920x1080.jpg)
-
-#### 20261008 栗の実 (© y-studio/Getty Images)
-
-![](images/2026-10/20261008_Chestnut_1920x1080.jpg)
 
 
 

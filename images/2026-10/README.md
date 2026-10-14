@@ -46,6 +46,10 @@
 
 ![](20261010_CormorantsFlight_1920x1080.jpg)
 
+#### 20261010 Fusée lunaire Artemis I au complexe de lancement 39B, Centre spatial Kennedy, Floride, 15 juin 2022 (© EVA MARIE UZCATEGUI/Getty Images)
+
+![](20261010_ArtemisRocket_1920x1080.jpg)
+
 #### 20261009 View of the Sanguinaires Islands from Corsica, France (© Francesco Riccardo Iacomino/Getty Images)
 
 ![](20261009_IlesSanguinaires_1920x1080.jpg)
