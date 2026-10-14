@@ -1,3 +1,7 @@
+#### 20261015 弗罗茨瓦夫集市广场景观，摄自女巫桥，弗罗茨瓦夫，波兰 (© Piotr Mitelski/Shutterstock)
+
+![](20261015_WroclawPoland_1920x1080.jpg)
+
 #### 20261014 嵯峨野トロッコ列車, 京都府京都市 (© giggsy25/Shutterstock)
 
 ![](20261014_RailwayDay_1920x1080.jpg)

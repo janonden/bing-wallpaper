@@ -1,3 +1,7 @@
+#### 20261015 弗罗茨瓦夫集市广场景观，摄自女巫桥，弗罗茨瓦夫，波兰 (© Piotr Mitelski/Shutterstock)
+
+![](images/2026-10/20261015_WroclawPoland_1920x1080.jpg)
+
 #### 20261014 嵯峨野トロッコ列車, 京都府京都市 (© giggsy25/Shutterstock)
 
 ![](images/2026-10/20261014_RailwayDay_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20261008 栗の実 (© y-studio/Getty Images)
 
 ![](images/2026-10/20261008_Chestnut_1920x1080.jpg)
-
-#### 20261007 Moss-covered rocks in Puzzlewood, Forest of Dean, Gloucestershire, England (© Fulcanelli_AOS/Getty Images)
-
-![](images/2026-10/20261007_ForestofDean_1920x1080.jpg)
 
 
 
