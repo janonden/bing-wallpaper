@@ -2,7 +2,11 @@
 
 ![](20261014_RailwayDay_1920x1080.jpg)
 
-#### 20261014 侏罗纪时期的菊石化石 (© J Nemchinova/Getty Images)
+#### 20261014 Brown bear in Silver Salmon Creek, Lake Clark National Park and Preserve, Alaska, United States (© Danny Green/Nature Picture Library)
+
+![](20261014_GrizzlySwim_1920x1080.jpg)
+
+#### 20261014 Ammonite fossils from the Jurassic Period (© J Nemchinova/Getty Images)
 
 ![](20261014_AmmoniteFossils_1920x1080.jpg)
 
