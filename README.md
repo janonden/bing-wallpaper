@@ -6,6 +6,10 @@
 
 ![](images/2026-10/20261016_NiagaraOnt_1920x1080.jpg)
 
+#### 20261016 Kloster Andechs bei Sonnenuntergang, Andechs, Bayern (© imageBROKER/Martin Moxter)
+
+![](images/2026-10/20261016_AndechsAbbey_1920x1080.jpg)
+
 #### 20261015 View of the Wroclaw Market Square from the Witches' Bridge in Wroclaw, Poland (© Piotr Mitelski/Shutterstock)
 
 ![](images/2026-10/20261015_WroclawPoland_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20261010 Double-crested cormorants over Monterey Bay, California (© Hiroya Minakuchi/Minden Pictures)
 
 ![](images/2026-10/20261010_CormorantsFlight_1920x1080.jpg)
-
-#### 20261010 Fusée lunaire Artemis I au complexe de lancement 39B, Centre spatial Kennedy, Floride, 15 juin 2022 (© EVA MARIE UZCATEGUI/Getty Images)
-
-![](images/2026-10/20261010_ArtemisRocket_1920x1080.jpg)
 
 
 

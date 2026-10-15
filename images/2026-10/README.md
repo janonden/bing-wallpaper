@@ -6,6 +6,10 @@
 
 ![](20261016_NiagaraOnt_1920x1080.jpg)
 
+#### 20261016 Kloster Andechs bei Sonnenuntergang, Andechs, Bayern (© imageBROKER/Martin Moxter)
+
+![](20261016_AndechsAbbey_1920x1080.jpg)
+
 #### 20261015 View of the Wroclaw Market Square from the Witches' Bridge in Wroclaw, Poland (© Piotr Mitelski/Shutterstock)
 
 ![](20261015_WroclawPoland_1920x1080.jpg)
