@@ -1,3 +1,7 @@
+#### 20261016 斯奈费尔斯山，里奇韦附近的圣胡安山脉，科罗拉多州，美国 (© lightphoto/Getty Images)
+
+![](images/2026-10/20261016_SneffelsAutumn_1920x1080.jpg)
+
 #### 20261016 Horseshoe Falls illuminated at night in Niagara Falls, Ontario, Canada (© Jianmei Wang/Getty Images)
 
 ![](images/2026-10/20261016_NiagaraOnt_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20261010 Fusée lunaire Artemis I au complexe de lancement 39B, Centre spatial Kennedy, Floride, 15 juin 2022 (© EVA MARIE UZCATEGUI/Getty Images)
 
 ![](images/2026-10/20261010_ArtemisRocket_1920x1080.jpg)
-
-#### 20261009 View of the Sanguinaires Islands from Corsica, France (© Francesco Riccardo Iacomino/Getty Images)
-
-![](images/2026-10/20261009_IlesSanguinaires_1920x1080.jpg)
 
 
 
