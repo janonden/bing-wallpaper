@@ -1,4 +1,8 @@
-#### 20261015 弗罗茨瓦夫集市广场景观，摄自女巫桥，弗罗茨瓦夫，波兰 (© Piotr Mitelski/Shutterstock)
+#### 20261016 Horseshoe Falls illuminated at night in Niagara Falls, Ontario, Canada (© Jianmei Wang/Getty Images)
+
+![](20261016_NiagaraOnt_1920x1080.jpg)
+
+#### 20261015 View of the Wroclaw Market Square from the Witches' Bridge in Wroclaw, Poland (© Piotr Mitelski/Shutterstock)
 
 ![](20261015_WroclawPoland_1920x1080.jpg)
 

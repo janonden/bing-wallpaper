@@ -1,4 +1,8 @@
-#### 20261015 弗罗茨瓦夫集市广场景观，摄自女巫桥，弗罗茨瓦夫，波兰 (© Piotr Mitelski/Shutterstock)
+#### 20261016 Horseshoe Falls illuminated at night in Niagara Falls, Ontario, Canada (© Jianmei Wang/Getty Images)
+
+![](images/2026-10/20261016_NiagaraOnt_1920x1080.jpg)
+
+#### 20261015 View of the Wroclaw Market Square from the Witches' Bridge in Wroclaw, Poland (© Piotr Mitelski/Shutterstock)
 
 ![](images/2026-10/20261015_WroclawPoland_1920x1080.jpg)
 
@@ -53,10 +57,6 @@
 #### 20261009 View of the Sanguinaires Islands from Corsica, France (© Francesco Riccardo Iacomino/Getty Images)
 
 ![](images/2026-10/20261009_IlesSanguinaires_1920x1080.jpg)
-
-#### 20261008 Octopus in defensive posture, Mayotte, Indian Ocean (© Gabriel Barathieu/Minden Pictures)
-
-![](images/2026-10/20261008_MayotteOctopus_1920x1080.jpg)
 
 
 
