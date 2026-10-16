@@ -1,10 +1,14 @@
-#### 20261016 斯奈费尔斯山，里奇韦附近的圣胡安山脉，科罗拉多州，美国 (© lightphoto/Getty Images)
+#### 20261016 Mount Sneffels in the San Juan Mountains near Ridgway, Colorado (© lightphoto/Getty Images)
 
 ![](20261016_SneffelsAutumn_1920x1080.jpg)
 
 #### 20261016 Horseshoe Falls illuminated at night in Niagara Falls, Ontario, Canada (© Jianmei Wang/Getty Images)
 
 ![](20261016_NiagaraOnt_1920x1080.jpg)
+
+#### 20261016 Maligne Lake, Jasper National Park, Alberta (© Andrey Popov/Getty Images)
+
+![](20261016_MaligneFest_1920x1080.jpg)
 
 #### 20261016 Kloster Andechs bei Sonnenuntergang, Andechs, Bayern (© imageBROKER/Martin Moxter)
 
