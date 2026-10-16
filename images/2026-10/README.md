@@ -1,3 +1,11 @@
+#### 20261017 ずらりと並ぶ干し柿, 長野県 妻籠宿 (© wayfarer2020/Shutterstock)
+
+![](20261017_Persimmons_1920x1080.jpg)
+
+#### 20261017 肖维岩洞艺术作品等比例复制品，瓦隆蓬达尔克，法国 (© Audrey Poree/Alamy)
+
+![](20261017_ChauvetPaintingsFrance_1920x1080.jpg)
+
 #### 20261016 Mount Sneffels in the San Juan Mountains near Ridgway, Colorado (© lightphoto/Getty Images)
 
 ![](20261016_SneffelsAutumn_1920x1080.jpg)

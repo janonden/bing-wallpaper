@@ -1,3 +1,11 @@
+#### 20261017 ずらりと並ぶ干し柿, 長野県 妻籠宿 (© wayfarer2020/Shutterstock)
+
+![](images/2026-10/20261017_Persimmons_1920x1080.jpg)
+
+#### 20261017 肖维岩洞艺术作品等比例复制品，瓦隆蓬达尔克，法国 (© Audrey Poree/Alamy)
+
+![](images/2026-10/20261017_ChauvetPaintingsFrance_1920x1080.jpg)
+
 #### 20261016 Mount Sneffels in the San Juan Mountains near Ridgway, Colorado (© lightphoto/Getty Images)
 
 ![](images/2026-10/20261016_SneffelsAutumn_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20261012 Baker Lake near East Bolton, Quebec (© SEBASTIEN ST-JEAN/Contributor/Getty Images)
 
 ![](images/2026-10/20261012_HeartLakeTG_1920x1080.jpg)
-
-#### 20261011 Europäisches Mufflon (Widder) im Herbstwald, Bayern (© imageBROKER/David & Micha Sheldon/Getty Images)
-
-![](images/2026-10/20261011_MouflonAutumn_1920x1080.jpg)
-
-#### 20261011 Glade Creek Grist Mill, Babcock State Park, West Virginia (© dszc/Getty Images)
-
-![](images/2026-10/20261011_BabcockSP_1920x1080.jpg)
 
 
 
