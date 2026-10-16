@@ -1,3 +1,7 @@
+#### 20261017 Écureuil roux (© Cédric GUERE/Getty Images)
+
+![](20261017_SmilingSquirrel_1920x1080.jpg)
+
 #### 20261017 ずらりと並ぶ干し柿, 長野県 妻籠宿 (© wayfarer2020/Shutterstock)
 
 ![](20261017_Persimmons_1920x1080.jpg)

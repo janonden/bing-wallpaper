@@ -1,3 +1,7 @@
+#### 20261017 Écureuil roux (© Cédric GUERE/Getty Images)
+
+![](images/2026-10/20261017_SmilingSquirrel_1920x1080.jpg)
+
 #### 20261017 ずらりと並ぶ干し柿, 長野県 妻籠宿 (© wayfarer2020/Shutterstock)
 
 ![](images/2026-10/20261017_Persimmons_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20261012 曼布尔斯码头，斯旺西，威尔士 (© Helen Hotson/Shutterstock)
 
 ![](images/2026-10/20261012_MumblesSwansea_1920x1080.jpg)
-
-#### 20261012 Baker Lake near East Bolton, Quebec (© SEBASTIEN ST-JEAN/Contributor/Getty Images)
-
-![](images/2026-10/20261012_HeartLakeTG_1920x1080.jpg)
 
 
 
