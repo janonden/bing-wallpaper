@@ -2,6 +2,10 @@
 
 ![](20261018_PerugiaAqueduct_1920x1080.jpg)
 
+#### 20261018 ドルバダーン城, ウェールズ (© joe daniel price/Getty Images)
+
+![](20261018_DolbadarnWales_1920x1080.jpg)
+
 #### 20261017 Écureuil roux (© Cédric GUERE/Getty Images)
 
 ![](20261017_SmilingSquirrel_1920x1080.jpg)

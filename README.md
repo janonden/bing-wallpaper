@@ -2,6 +2,10 @@
 
 ![](images/2026-10/20261018_PerugiaAqueduct_1920x1080.jpg)
 
+#### 20261018 ドルバダーン城, ウェールズ (© joe daniel price/Getty Images)
+
+![](images/2026-10/20261018_DolbadarnWales_1920x1080.jpg)
+
 #### 20261017 Écureuil roux (© Cédric GUERE/Getty Images)
 
 ![](images/2026-10/20261017_SmilingSquirrel_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20261012 White House Ruin at Canyon de Chelly National Monument in Arizona (© Ingo Arndt/Minden Pictures)
 
 ![](images/2026-10/20261012_WhiteHouse_1920x1080.jpg)
-
-#### 20261012 ベニコンゴウインコのペア (© markes51/Getty Images)
-
-![](images/2026-10/20261012_RedMacawsFlight_1920x1080.jpg)
 
 
 
