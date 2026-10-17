@@ -1,3 +1,7 @@
+#### 20261018 Medieval Aqueduct, Perugia, Italy (© Marco Saracco/Getty Images)
+
+![](images/2026-10/20261018_PerugiaAqueduct_1920x1080.jpg)
+
 #### 20261017 Écureuil roux (© Cédric GUERE/Getty Images)
 
 ![](images/2026-10/20261017_SmilingSquirrel_1920x1080.jpg)
@@ -6,7 +10,7 @@
 
 ![](images/2026-10/20261017_Persimmons_1920x1080.jpg)
 
-#### 20261017 肖维岩洞艺术作品等比例复制品，瓦隆蓬达尔克，法国 (© Audrey Poree/Alamy)
+#### 20261017 Life-size replica of Chauvet  cave art in Vallon-Pont-d'Arc, France (© Audrey Poree/Alamy)
 
 ![](images/2026-10/20261017_ChauvetPaintingsFrance_1920x1080.jpg)
 
@@ -53,10 +57,6 @@
 #### 20261012 ベニコンゴウインコのペア (© markes51/Getty Images)
 
 ![](images/2026-10/20261012_RedMacawsFlight_1920x1080.jpg)
-
-#### 20261012 曼布尔斯码头，斯旺西，威尔士 (© Helen Hotson/Shutterstock)
-
-![](images/2026-10/20261012_MumblesSwansea_1920x1080.jpg)
 
 
 
