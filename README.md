@@ -2,7 +2,7 @@
 
 ![](images/2026-10/20261018_PerugiaAqueduct_1920x1080.jpg)
 
-#### 20261018 ドルバダーン城, ウェールズ (© joe daniel price/Getty Images)
+#### 20261018 Dolbadarn Castle, Llanberis, Eryri National Park (Snowdonia), Wales (© joe daniel price/Getty Images)
 
 ![](images/2026-10/20261018_DolbadarnWales_1920x1080.jpg)
 
