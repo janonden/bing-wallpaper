@@ -1,3 +1,7 @@
+#### 20261019 カナル・グランデ, イタリア (© Juan Romero/Cavan Images)
+
+![](20261019_VeniceSunrise_1920x1080.jpg)
+
 #### 20261018 Medieval Aqueduct, Perugia, Italy (© Marco Saracco/Getty Images)
 
 ![](20261018_PerugiaAqueduct_1920x1080.jpg)

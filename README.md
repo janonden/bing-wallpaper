@@ -1,3 +1,7 @@
+#### 20261019 カナル・グランデ, イタリア (© Juan Romero/Cavan Images)
+
+![](images/2026-10/20261019_VeniceSunrise_1920x1080.jpg)
+
 #### 20261018 Medieval Aqueduct, Perugia, Italy (© Marco Saracco/Getty Images)
 
 ![](images/2026-10/20261018_PerugiaAqueduct_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20261013 Plitvice Lakes National Park, Croatia (© Jan Wlodarczyk/Alamy)
 
 ![](images/2026-10/20261013_PlitviceAutumn_1920x1080.jpg)
-
-#### 20261012 White House Ruin at Canyon de Chelly National Monument in Arizona (© Ingo Arndt/Minden Pictures)
-
-![](images/2026-10/20261012_WhiteHouse_1920x1080.jpg)
 
 
 
