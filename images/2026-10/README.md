@@ -1,3 +1,7 @@
+#### 20261020 褐喉三趾树懒，塔拉曼卡旧港，哥斯达黎加 (© Suzi Eszterhas/Minden Pictures)
+
+![](20261020_BrownSloth_1920x1080.jpg)
+
 #### 20261019 Grand Canal in Venice, Italy (© Juan Romero/Cavan Images)
 
 ![](20261019_VeniceSunrise_1920x1080.jpg)

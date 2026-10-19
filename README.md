@@ -1,3 +1,7 @@
+#### 20261020 褐喉三趾树懒，塔拉曼卡旧港，哥斯达黎加 (© Suzi Eszterhas/Minden Pictures)
+
+![](images/2026-10/20261020_BrownSloth_1920x1080.jpg)
+
 #### 20261019 Grand Canal in Venice, Italy (© Juan Romero/Cavan Images)
 
 ![](images/2026-10/20261019_VeniceSunrise_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20261014 Ammonite fossils from the Jurassic Period (© J Nemchinova/Getty Images)
 
 ![](images/2026-10/20261014_AmmoniteFossils_1920x1080.jpg)
-
-#### 20261013 Plitvice Lakes National Park, Croatia (© Jan Wlodarczyk/Alamy)
-
-![](images/2026-10/20261013_PlitviceAutumn_1920x1080.jpg)
 
 
 
