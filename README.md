@@ -1,4 +1,4 @@
-#### 20261019 カナル・グランデ, イタリア (© Juan Romero/Cavan Images)
+#### 20261019 Grand Canal in Venice, Italy (© Juan Romero/Cavan Images)
 
 ![](images/2026-10/20261019_VeniceSunrise_1920x1080.jpg)
 
