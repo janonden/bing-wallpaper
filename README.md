@@ -1,4 +1,4 @@
-#### 20261020 褐喉三趾树懒，塔拉曼卡旧港，哥斯达黎加 (© Suzi Eszterhas/Minden Pictures)
+#### 20261020 Brown-throated sloth, Puerto Viejo de Talamanca, Costa Rica (© Suzi Eszterhas/Minden Pictures)
 
 ![](images/2026-10/20261020_BrownSloth_1920x1080.jpg)
 
