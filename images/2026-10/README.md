@@ -1,3 +1,7 @@
+#### 20261021 香江上的阮潢桥，顺化，越南 (© VU PHAM VAN/Getty Images)
+
+![](20261021_VietnamBridge_1920x1080.jpg)
+
 #### 20261020 Brown-throated sloth, Puerto Viejo de Talamanca, Costa Rica (© Suzi Eszterhas/Minden Pictures)
 
 ![](20261020_BrownSloth_1920x1080.jpg)

@@ -1,3 +1,7 @@
+#### 20261021 香江上的阮潢桥，顺化，越南 (© VU PHAM VAN/Getty Images)
+
+![](images/2026-10/20261021_VietnamBridge_1920x1080.jpg)
+
 #### 20261020 Brown-throated sloth, Puerto Viejo de Talamanca, Costa Rica (© Suzi Eszterhas/Minden Pictures)
 
 ![](images/2026-10/20261020_BrownSloth_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20261014 Brown bear in Silver Salmon Creek, Lake Clark National Park and Preserve, Alaska, United States (© Danny Green/Nature Picture Library)
 
 ![](images/2026-10/20261014_GrizzlySwim_1920x1080.jpg)
-
-#### 20261014 Ammonite fossils from the Jurassic Period (© J Nemchinova/Getty Images)
-
-![](images/2026-10/20261014_AmmoniteFossils_1920x1080.jpg)
 
 
 
