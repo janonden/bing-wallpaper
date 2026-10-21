@@ -1,3 +1,7 @@
+#### 20261022 内藏山国立公园的秋景，韩国 (© Twenty47studio/Getty Images)
+
+![](images/2026-10/20261022_NaejangsanNP_1920x1080.jpg)
+
 #### 20261021 Nguyen Hoang Bridge over the Perfume River, Hue, Vietnam (© VU PHAM VAN/Getty Images)
 
 ![](images/2026-10/20261021_VietnamBridge_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20261014 嵯峨野トロッコ列車, 京都府京都市 (© giggsy25/Shutterstock)
 
 ![](images/2026-10/20261014_RailwayDay_1920x1080.jpg)
-
-#### 20261014 Brown bear in Silver Salmon Creek, Lake Clark National Park and Preserve, Alaska, United States (© Danny Green/Nature Picture Library)
-
-![](images/2026-10/20261014_GrizzlySwim_1920x1080.jpg)
 
 
 
