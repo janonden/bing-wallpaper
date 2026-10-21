@@ -1,4 +1,4 @@
-#### 20261021 香江上的阮潢桥，顺化，越南 (© VU PHAM VAN/Getty Images)
+#### 20261021 Nguyen Hoang Bridge over the Perfume River, Hue, Vietnam (© VU PHAM VAN/Getty Images)
 
 ![](images/2026-10/20261021_VietnamBridge_1920x1080.jpg)
 
