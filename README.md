@@ -6,6 +6,10 @@
 
 ![](images/2026-10/20261023_TsutanumaMomiji_1920x1080.jpg)
 
+#### 20261023 Vignobles à Verzenay, montagne de Reims, Champagne (© Philippe TURPIN/Getty Images)
+
+![](images/2026-10/20261023_ReimsChampagne_1920x1080.jpg)
+
 #### 20261022 Autumn in Naejangsan National Park, South Korea (© Twenty47studio/Getty Images)
 
 ![](images/2026-10/20261022_NaejangsanNP_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20261016 Maligne Lake, Jasper National Park, Alberta (© Andrey Popov/Getty Images)
 
 ![](images/2026-10/20261016_MaligneFest_1920x1080.jpg)
-
-#### 20261016 Kloster Andechs bei Sonnenuntergang, Andechs, Bayern (© imageBROKER/Martin Moxter)
-
-![](images/2026-10/20261016_AndechsAbbey_1920x1080.jpg)
 
 
 

@@ -6,6 +6,10 @@
 
 ![](20261023_TsutanumaMomiji_1920x1080.jpg)
 
+#### 20261023 Vignobles à Verzenay, montagne de Reims, Champagne (© Philippe TURPIN/Getty Images)
+
+![](20261023_ReimsChampagne_1920x1080.jpg)
+
 #### 20261022 Autumn in Naejangsan National Park, South Korea (© Twenty47studio/Getty Images)
 
 ![](20261022_NaejangsanNP_1920x1080.jpg)
