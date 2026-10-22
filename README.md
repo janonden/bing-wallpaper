@@ -1,3 +1,11 @@
+#### 20261023 两只灰狼，黄石国家公园，怀俄明州，美国 (© John Morrison/Getty Images)
+
+![](images/2026-10/20261023_YellowstoneWolves_1920x1080.jpg)
+
+#### 20261023 蔦沼, 青森県 十和田市 (© MASATO SAITO/Getty Images)
+
+![](images/2026-10/20261023_TsutanumaMomiji_1920x1080.jpg)
+
 #### 20261022 Autumn in Naejangsan National Park, South Korea (© Twenty47studio/Getty Images)
 
 ![](images/2026-10/20261022_NaejangsanNP_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20261016 Kloster Andechs bei Sonnenuntergang, Andechs, Bayern (© imageBROKER/Martin Moxter)
 
 ![](images/2026-10/20261016_AndechsAbbey_1920x1080.jpg)
-
-#### 20261015 View of the Wroclaw Market Square from the Witches' Bridge in Wroclaw, Poland (© Piotr Mitelski/Shutterstock)
-
-![](images/2026-10/20261015_WroclawPoland_1920x1080.jpg)
-
-#### 20261014 嵯峨野トロッコ列車, 京都府京都市 (© giggsy25/Shutterstock)
-
-![](images/2026-10/20261014_RailwayDay_1920x1080.jpg)
 
 
 

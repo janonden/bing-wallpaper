@@ -1,3 +1,11 @@
+#### 20261023 两只灰狼，黄石国家公园，怀俄明州，美国 (© John Morrison/Getty Images)
+
+![](20261023_YellowstoneWolves_1920x1080.jpg)
+
+#### 20261023 蔦沼, 青森県 十和田市 (© MASATO SAITO/Getty Images)
+
+![](20261023_TsutanumaMomiji_1920x1080.jpg)
+
 #### 20261022 Autumn in Naejangsan National Park, South Korea (© Twenty47studio/Getty Images)
 
 ![](20261022_NaejangsanNP_1920x1080.jpg)
