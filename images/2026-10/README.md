@@ -1,4 +1,4 @@
-#### 20261022 内藏山国立公园的秋景，韩国 (© Twenty47studio/Getty Images)
+#### 20261022 Autumn in Naejangsan National Park, South Korea (© Twenty47studio/Getty Images)
 
 ![](20261022_NaejangsanNP_1920x1080.jpg)
 
