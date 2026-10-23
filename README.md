@@ -2,6 +2,10 @@
 
 ![](images/2026-10/20261024_PortugueseLibrary_1920x1080.jpg)
 
+#### 20261024 Philologische Bibliothek der Freien Universität Berlin, Berlin (© ullstein bild/Getty Images)
+
+![](images/2026-10/20261024_BerlinLibrary_1920x1080.jpg)
+
 #### 20261023 Two gray wolves, Yellowstone National Park, Wyoming (© John Morrison/Getty Images)
 
 ![](images/2026-10/20261023_YellowstoneWolves_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20261016 Mount Sneffels in the San Juan Mountains near Ridgway, Colorado (© lightphoto/Getty Images)
 
 ![](images/2026-10/20261016_SneffelsAutumn_1920x1080.jpg)
-
-#### 20261016 Horseshoe Falls illuminated at night in Niagara Falls, Ontario, Canada (© Jianmei Wang/Getty Images)
-
-![](images/2026-10/20261016_NiagaraOnt_1920x1080.jpg)
 
 
 

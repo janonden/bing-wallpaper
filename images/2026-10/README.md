@@ -2,6 +2,10 @@
 
 ![](20261024_PortugueseLibrary_1920x1080.jpg)
 
+#### 20261024 Philologische Bibliothek der Freien Universität Berlin, Berlin (© ullstein bild/Getty Images)
+
+![](20261024_BerlinLibrary_1920x1080.jpg)
+
 #### 20261023 Two gray wolves, Yellowstone National Park, Wyoming (© John Morrison/Getty Images)
 
 ![](20261023_YellowstoneWolves_1920x1080.jpg)
