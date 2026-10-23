@@ -1,3 +1,7 @@
+#### 20261024 皇家葡萄牙语阅览室，里约热内卢，巴西 (© Antonio Salaverry/Shutterstock)
+
+![](images/2026-10/20261024_PortugueseLibrary_1920x1080.jpg)
+
 #### 20261023 Two gray wolves, Yellowstone National Park, Wyoming (© John Morrison/Getty Images)
 
 ![](images/2026-10/20261023_YellowstoneWolves_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20261016 Horseshoe Falls illuminated at night in Niagara Falls, Ontario, Canada (© Jianmei Wang/Getty Images)
 
 ![](images/2026-10/20261016_NiagaraOnt_1920x1080.jpg)
-
-#### 20261016 Maligne Lake, Jasper National Park, Alberta (© Andrey Popov/Getty Images)
-
-![](images/2026-10/20261016_MaligneFest_1920x1080.jpg)
 
 
 

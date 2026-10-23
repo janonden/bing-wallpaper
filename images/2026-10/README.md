@@ -1,3 +1,7 @@
+#### 20261024 皇家葡萄牙语阅览室，里约热内卢，巴西 (© Antonio Salaverry/Shutterstock)
+
+![](20261024_PortugueseLibrary_1920x1080.jpg)
+
 #### 20261023 Two gray wolves, Yellowstone National Park, Wyoming (© John Morrison/Getty Images)
 
 ![](20261023_YellowstoneWolves_1920x1080.jpg)
