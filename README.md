@@ -1,4 +1,4 @@
-#### 20261023 两只灰狼，黄石国家公园，怀俄明州，美国 (© John Morrison/Getty Images)
+#### 20261023 Two gray wolves, Yellowstone National Park, Wyoming (© John Morrison/Getty Images)
 
 ![](images/2026-10/20261023_YellowstoneWolves_1920x1080.jpg)
 
