@@ -1,4 +1,8 @@
-#### 20261024 皇家葡萄牙语阅览室，里约热内卢，巴西 (© Antonio Salaverry/Shutterstock)
+#### 20261025 Green-headed tanager (© Juan Carlos Vindas/Getty Images)
+
+![](images/2026-10/20261025_Tanager_1920x1080.jpg)
+
+#### 20261024 Royal Portuguese Cabinet of Reading, Rio de Janeiro, Brazil (© Antonio Salaverry/Shutterstock)
 
 ![](images/2026-10/20261024_PortugueseLibrary_1920x1080.jpg)
 
@@ -53,10 +57,6 @@
 #### 20261017 Life-size replica of Chauvet  cave art in Vallon-Pont-d'Arc, France (© Audrey Poree/Alamy)
 
 ![](images/2026-10/20261017_ChauvetPaintingsFrance_1920x1080.jpg)
-
-#### 20261016 Mount Sneffels in the San Juan Mountains near Ridgway, Colorado (© lightphoto/Getty Images)
-
-![](images/2026-10/20261016_SneffelsAutumn_1920x1080.jpg)
 
 
 
