@@ -2,6 +2,10 @@
 
 ![](images/2026-10/20261025_Tanager_1920x1080.jpg)
 
+#### 20261025 Autumn waterfalls near Sitovo, Plovdiv Province, Bulgaria (© Nadya85/Getty Images)
+
+![](images/2026-10/20261025_SitovoWaterfall_1920x1080.jpg)
+
 #### 20261024 Royal Portuguese Cabinet of Reading, Rio de Janeiro, Brazil (© Antonio Salaverry/Shutterstock)
 
 ![](images/2026-10/20261024_PortugueseLibrary_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20261017 ずらりと並ぶ干し柿, 長野県 妻籠宿 (© wayfarer2020/Shutterstock)
 
 ![](images/2026-10/20261017_Persimmons_1920x1080.jpg)
-
-#### 20261017 Life-size replica of Chauvet  cave art in Vallon-Pont-d'Arc, France (© Audrey Poree/Alamy)
-
-![](images/2026-10/20261017_ChauvetPaintingsFrance_1920x1080.jpg)
 
 
 

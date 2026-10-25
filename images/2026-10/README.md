@@ -2,6 +2,10 @@
 
 ![](20261025_Tanager_1920x1080.jpg)
 
+#### 20261025 Autumn waterfalls near Sitovo, Plovdiv Province, Bulgaria (© Nadya85/Getty Images)
+
+![](20261025_SitovoWaterfall_1920x1080.jpg)
+
 #### 20261024 Royal Portuguese Cabinet of Reading, Rio de Janeiro, Brazil (© Antonio Salaverry/Shutterstock)
 
 ![](20261024_PortugueseLibrary_1920x1080.jpg)
