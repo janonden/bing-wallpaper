@@ -2,6 +2,10 @@
 
 ![](20261027_PondCypress_1920x1080.jpg)
 
+#### 20261026 Maligne Lake, Jasper National Park, Alberta, Canada (© Andrey Popov/Getty Images)
+
+![](20261026_MaligneFest_1920x1080.jpg)
+
 #### 20261026 Gray-headed flying fox, Victoria, Australia (© Doug Gimesy/Nature Picture Library)
 
 ![](20261026_HangingBat_1920x1080.jpg)
