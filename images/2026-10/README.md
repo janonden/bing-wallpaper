@@ -1,3 +1,7 @@
+#### 20261026 Gray-headed flying fox, Victoria, Australia (© Doug Gimesy/Nature Picture Library)
+
+![](20261026_HangingBat_1920x1080.jpg)
+
 #### 20261025 Green-headed tanager (© Juan Carlos Vindas/Getty Images)
 
 ![](20261025_Tanager_1920x1080.jpg)

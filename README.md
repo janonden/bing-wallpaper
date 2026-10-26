@@ -1,3 +1,7 @@
+#### 20261026 Gray-headed flying fox, Victoria, Australia (© Doug Gimesy/Nature Picture Library)
+
+![](images/2026-10/20261026_HangingBat_1920x1080.jpg)
+
 #### 20261025 Green-headed tanager (© Juan Carlos Vindas/Getty Images)
 
 ![](images/2026-10/20261025_Tanager_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20261017 Écureuil roux (© Cédric GUERE/Getty Images)
 
 ![](images/2026-10/20261017_SmilingSquirrel_1920x1080.jpg)
-
-#### 20261017 ずらりと並ぶ干し柿, 長野県 妻籠宿 (© wayfarer2020/Shutterstock)
-
-![](images/2026-10/20261017_Persimmons_1920x1080.jpg)
 
 
 
