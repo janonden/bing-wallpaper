@@ -1,3 +1,7 @@
+#### 20261027 秋叶缤纷的池杉林，乔治亚州，美国 (© Chris Moore/Getty Images)
+
+![](images/2026-10/20261027_PondCypress_1920x1080.jpg)
+
 #### 20261026 Gray-headed flying fox, Victoria, Australia (© Doug Gimesy/Nature Picture Library)
 
 ![](images/2026-10/20261026_HangingBat_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20261018 Dolbadarn Castle, Llanberis, Eryri National Park (Snowdonia), Wales (© joe daniel price/Getty Images)
 
 ![](images/2026-10/20261018_DolbadarnWales_1920x1080.jpg)
-
-#### 20261017 Écureuil roux (© Cédric GUERE/Getty Images)
-
-![](images/2026-10/20261017_SmilingSquirrel_1920x1080.jpg)
 
 
 
