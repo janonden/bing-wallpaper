@@ -1,4 +1,4 @@
-#### 20261027 秋叶缤纷的池杉林，乔治亚州，美国 (© Chris Moore/Getty Images)
+#### 20261027 A grove of pond cypress trees with fall foliage, Georgia, USA (© Chris Moore/Getty Images)
 
 ![](20261027_PondCypress_1920x1080.jpg)
 
