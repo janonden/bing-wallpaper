@@ -1,3 +1,7 @@
+#### 20261028 库涅季采山城堡，波希米亚，捷克 (© Marek Saroch/Alamy)
+
+![](images/2026-10/20261028_KuneticeCastle_1920x1080.jpg)
+
 #### 20261027 A grove of pond cypress trees with fall foliage, Georgia, USA (© Chris Moore/Getty Images)
 
 ![](images/2026-10/20261027_PondCypress_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20261019 Grand Canal in Venice, Italy (© Juan Romero/Cavan Images)
 
 ![](images/2026-10/20261019_VeniceSunrise_1920x1080.jpg)
-
-#### 20261018 Medieval Aqueduct, Perugia, Italy (© Marco Saracco/Getty Images)
-
-![](images/2026-10/20261018_PerugiaAqueduct_1920x1080.jpg)
 
 
 

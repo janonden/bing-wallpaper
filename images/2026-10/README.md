@@ -1,3 +1,7 @@
+#### 20261028 库涅季采山城堡，波希米亚，捷克 (© Marek Saroch/Alamy)
+
+![](20261028_KuneticeCastle_1920x1080.jpg)
+
 #### 20261027 A grove of pond cypress trees with fall foliage, Georgia, USA (© Chris Moore/Getty Images)
 
 ![](20261027_PondCypress_1920x1080.jpg)
