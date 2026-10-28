@@ -1,3 +1,7 @@
+#### 20261029 立石，埃夫伯里，威尔特郡，英格兰 (© George W Johnson/Getty Images)
+
+![](images/2026-10/20261029_AveburyStones_1920x1080.jpg)
+
 #### 20261028 Kunětická hora Castle, Bohemia, Czechia (© Marek Saroch/Alamy)
 
 ![](images/2026-10/20261028_KuneticeCastle_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20261021 Nguyen Hoang Bridge over the Perfume River, Hue, Vietnam (© VU PHAM VAN/Getty Images)
 
 ![](images/2026-10/20261021_VietnamBridge_1920x1080.jpg)
-
-#### 20261020 Brown-throated sloth, Puerto Viejo de Talamanca, Costa Rica (© Suzi Eszterhas/Minden Pictures)
-
-![](images/2026-10/20261020_BrownSloth_1920x1080.jpg)
 
 
 

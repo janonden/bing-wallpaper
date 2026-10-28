@@ -1,3 +1,7 @@
+#### 20261029 立石，埃夫伯里，威尔特郡，英格兰 (© George W Johnson/Getty Images)
+
+![](20261029_AveburyStones_1920x1080.jpg)
+
 #### 20261028 Kunětická hora Castle, Bohemia, Czechia (© Marek Saroch/Alamy)
 
 ![](20261028_KuneticeCastle_1920x1080.jpg)
