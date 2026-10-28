@@ -18,6 +18,10 @@
 
 ![](20261025_Tanager_1920x1080.jpg)
 
+#### 20261025 Mount Sneffels in the San Juan Mountains near Ridgway, Colorado, United States (© lightphoto/Getty Images)
+
+![](20261025_SneffelsAutumn_1920x1080.jpg)
+
 #### 20261025 Autumn waterfalls near Sitovo, Plovdiv Province, Bulgaria (© Nadya85/Getty Images)
 
 ![](20261025_SitovoWaterfall_1920x1080.jpg)

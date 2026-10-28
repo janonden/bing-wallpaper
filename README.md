@@ -18,6 +18,10 @@
 
 ![](images/2026-10/20261025_Tanager_1920x1080.jpg)
 
+#### 20261025 Mount Sneffels in the San Juan Mountains near Ridgway, Colorado, United States (© lightphoto/Getty Images)
+
+![](images/2026-10/20261025_SneffelsAutumn_1920x1080.jpg)
+
 #### 20261025 Autumn waterfalls near Sitovo, Plovdiv Province, Bulgaria (© Nadya85/Getty Images)
 
 ![](images/2026-10/20261025_SitovoWaterfall_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20261020 Brown-throated sloth, Puerto Viejo de Talamanca, Costa Rica (© Suzi Eszterhas/Minden Pictures)
 
 ![](images/2026-10/20261020_BrownSloth_1920x1080.jpg)
-
-#### 20261019 Grand Canal in Venice, Italy (© Juan Romero/Cavan Images)
-
-![](images/2026-10/20261019_VeniceSunrise_1920x1080.jpg)
 
 
 
