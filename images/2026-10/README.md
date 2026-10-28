@@ -1,4 +1,4 @@
-#### 20261028 库涅季采山城堡，波希米亚，捷克 (© Marek Saroch/Alamy)
+#### 20261028 Kunětická hora Castle, Bohemia, Czechia (© Marek Saroch/Alamy)
 
 ![](20261028_KuneticeCastle_1920x1080.jpg)
 
