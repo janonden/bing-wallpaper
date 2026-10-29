@@ -1,3 +1,7 @@
+#### 20261030 沙丘鹤，博斯克德尔阿帕奇国家野生动物保护区，新墨西哥州，美国 (© Terry St.Louis/Getty Images)
+
+![](20261030_AutumnCranes_1920x1080.jpg)
+
 #### 20261029 Standing stones at Avebury in Wiltshire, England (© George W Johnson/Getty Images)
 
 ![](20261029_AveburyStones_1920x1080.jpg)

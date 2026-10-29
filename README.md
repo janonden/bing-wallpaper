@@ -1,3 +1,7 @@
+#### 20261030 沙丘鹤，博斯克德尔阿帕奇国家野生动物保护区，新墨西哥州，美国 (© Terry St.Louis/Getty Images)
+
+![](images/2026-10/20261030_AutumnCranes_1920x1080.jpg)
+
 #### 20261029 Standing stones at Avebury in Wiltshire, England (© George W Johnson/Getty Images)
 
 ![](images/2026-10/20261029_AveburyStones_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20261022 Autumn in Naejangsan National Park, South Korea (© Twenty47studio/Getty Images)
 
 ![](images/2026-10/20261022_NaejangsanNP_1920x1080.jpg)
-
-#### 20261021 Nguyen Hoang Bridge over the Perfume River, Hue, Vietnam (© VU PHAM VAN/Getty Images)
-
-![](images/2026-10/20261021_VietnamBridge_1920x1080.jpg)
 
 
 
