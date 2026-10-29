@@ -1,4 +1,4 @@
-#### 20261029 立石，埃夫伯里，威尔特郡，英格兰 (© George W Johnson/Getty Images)
+#### 20261029 Standing stones at Avebury in Wiltshire, England (© George W Johnson/Getty Images)
 
 ![](images/2026-10/20261029_AveburyStones_1920x1080.jpg)
 
