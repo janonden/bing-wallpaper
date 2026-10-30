@@ -10,7 +10,7 @@
 
 ![](20261028_KuneticeCastle_1920x1080.jpg)
 
-#### 20261027 A grove of pond cypress trees with fall foliage, Georgia, USA (© Chris Moore/Getty Images)
+#### 20261027 A grove of pond cypress trees with autumn foliage, Georgia, United States (© Chris Moore/Getty Images)
 
 ![](20261027_PondCypress_1920x1080.jpg)
 
@@ -42,7 +42,7 @@
 
 ![](20261024_BerlinLibrary_1920x1080.jpg)
 
-#### 20261023 Two gray wolves, Yellowstone National Park, Wyoming (© John Morrison/Getty Images)
+#### 20261023 Two grey wolves, Yellowstone National Park, Wyoming, United States (© John Morrison/Getty Images)
 
 ![](20261023_YellowstoneWolves_1920x1080.jpg)
 
