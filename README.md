@@ -1,3 +1,7 @@
+#### 20261031 圣巴尔多禄茂教堂，法兰克福，德国 (© AlxeyPnferov/Getty Images)
+
+![](images/2026-10/20261031_FrankfurtHalloween_1920x1080.jpg)
+
 #### 20261030 Sandhill cranes, Bosque del Apache National Wildlife Refuge, New Mexico, USA (© Terry St.Louis/Getty Images)
 
 ![](images/2026-10/20261030_AutumnCranes_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20261023 Vignobles à Verzenay, montagne de Reims, Champagne (© Philippe TURPIN/Getty Images)
 
 ![](images/2026-10/20261023_ReimsChampagne_1920x1080.jpg)
-
-#### 20261022 Autumn in Naejangsan National Park, South Korea (© Twenty47studio/Getty Images)
-
-![](images/2026-10/20261022_NaejangsanNP_1920x1080.jpg)
 
 
 
