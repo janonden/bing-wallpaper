@@ -1,4 +1,4 @@
-#### 20261030 沙丘鹤，博斯克德尔阿帕奇国家野生动物保护区，新墨西哥州，美国 (© Terry St.Louis/Getty Images)
+#### 20261030 Sandhill cranes, Bosque del Apache National Wildlife Refuge, New Mexico, USA (© Terry St.Louis/Getty Images)
 
 ![](images/2026-10/20261030_AutumnCranes_1920x1080.jpg)
 
@@ -10,7 +10,7 @@
 
 ![](images/2026-10/20261028_KuneticeCastle_1920x1080.jpg)
 
-#### 20261027 A grove of pond cypress trees with autumn foliage, Georgia, United States (© Chris Moore/Getty Images)
+#### 20261027 A grove of pond cypress trees with fall foliage, Georgia, USA (© Chris Moore/Getty Images)
 
 ![](images/2026-10/20261027_PondCypress_1920x1080.jpg)
 
