@@ -1,4 +1,4 @@
-#### 20261031 圣巴尔多禄茂教堂，法兰克福，德国 (© AlxeyPnferov/Getty Images)
+#### 20261031 St. Bartholomew's Cathedral in Frankfurt, Germany (© AlxeyPnferov/Getty Images)
 
 ![](20261031_FrankfurtHalloween_1920x1080.jpg)
 

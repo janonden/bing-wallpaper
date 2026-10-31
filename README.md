@@ -1,4 +1,8 @@
-#### 20261031 圣巴尔多禄茂教堂，法兰克福，德国 (© AlxeyPnferov/Getty Images)
+#### 20261101 Lake Braies, Fanes‑Sennes‑Braies Nature Park, Dolomites, Italy (© leonid_tit/Getty Images)
+
+![](images/2026-11/20261101_AlpineBraies_1920x1080.jpg)
+
+#### 20261031 St. Bartholomew's Cathedral in Frankfurt, Germany (© AlxeyPnferov/Getty Images)
 
 ![](images/2026-10/20261031_FrankfurtHalloween_1920x1080.jpg)
 
@@ -54,10 +58,6 @@
 
 ![](images/2026-10/20261023_TsutanumaMomiji_1920x1080.jpg)
 
-#### 20261023 Vignobles à Verzenay, montagne de Reims, Champagne (© Philippe TURPIN/Getty Images)
-
-![](images/2026-10/20261023_ReimsChampagne_1920x1080.jpg)
-
 
 
 
@@ -66,7 +66,7 @@
 
 
 
-- 2026&emsp;&emsp;[10](images/2026-10/README.md) &emsp;&emsp;[09](images/2026-09/README.md) &emsp;&emsp;[08](images/2026-08/README.md) &emsp;&emsp;[07](images/2026-07/README.md) &emsp;&emsp;[06](images/2026-06/README.md) &emsp;&emsp;[05](images/2026-05/README.md) &emsp;&emsp;[04](images/2026-04/README.md) &emsp;&emsp;[03](images/2026-03/README.md) &emsp;&emsp;[02](images/2026-02/README.md) &emsp;&emsp;[01](images/2026-01/README.md) 
+- 2026&emsp;&emsp;[11](images/2026-11/README.md) &emsp;&emsp;[10](images/2026-10/README.md) &emsp;&emsp;[09](images/2026-09/README.md) &emsp;&emsp;[08](images/2026-08/README.md) &emsp;&emsp;[07](images/2026-07/README.md) &emsp;&emsp;[06](images/2026-06/README.md) &emsp;&emsp;[05](images/2026-05/README.md) &emsp;&emsp;[04](images/2026-04/README.md) &emsp;&emsp;[03](images/2026-03/README.md) &emsp;&emsp;[02](images/2026-02/README.md) &emsp;&emsp;[01](images/2026-01/README.md) 
 
 - 2025&emsp;&emsp;[12](https://github.com/janonden/bing-wallpaper/blob/2025/images/2025-12/README.md) &emsp;&emsp;[11](https://github.com/janonden/bing-wallpaper/blob/2025/images/2025-11/README.md) &emsp;&emsp;[10](https://github.com/janonden/bing-wallpaper/blob/2025/images/2025-10/README.md) &emsp;&emsp;[09](https://github.com/janonden/bing-wallpaper/blob/2025/images/2025-09/README.md) &emsp;&emsp;[08](https://github.com/janonden/bing-wallpaper/blob/2025/images/2025-08/README.md) &emsp;&emsp;[07](https://github.com/janonden/bing-wallpaper/blob/2025/images/2025-07/README.md) &emsp;&emsp;[06](https://github.com/janonden/bing-wallpaper/blob/2025/images/2025-06/README.md) &emsp;&emsp;[05](https://github.com/janonden/bing-wallpaper/blob/2025/images/2025-05/README.md) &emsp;&emsp;[04](https://github.com/janonden/bing-wallpaper/blob/2025/images/2025-04/README.md) &emsp;&emsp;[03](https://github.com/janonden/bing-wallpaper/blob/2025/images/2025-03/README.md) &emsp;&emsp;[02](https://github.com/janonden/bing-wallpaper/blob/2025/images/2025-02/README.md) &emsp;&emsp;[01](https://github.com/janonden/bing-wallpaper/blob/2025/images/2025-01/README.md) 
 
