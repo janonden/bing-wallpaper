@@ -2,6 +2,10 @@
 
 ![](images/2026-11/20261101_SchwarzwaldAutumn_1920x1080.jpg)
 
+#### 20261101 Handmade baskets, Santa Fe, New Mexico (© Patrick Lane/Getty Images)
+
+![](images/2026-11/20261101_NativeBaskets_1920x1080.jpg)
+
 #### 20261101 Lake Braies, Fanes‑Sennes‑Braies Nature Park, Dolomites, Italy (© leonid_tit/Getty Images)
 
 ![](images/2026-11/20261101_AlpineBraies_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20261024 Philologische Bibliothek der Freien Universität Berlin, Berlin (© ullstein bild/Getty Images)
 
 ![](images/2026-10/20261024_BerlinLibrary_1920x1080.jpg)
-
-#### 20261023 Two grey wolves, Yellowstone National Park, Wyoming, United States (© John Morrison/Getty Images)
-
-![](images/2026-10/20261023_YellowstoneWolves_1920x1080.jpg)
 
 
 
