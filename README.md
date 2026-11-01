@@ -1,3 +1,7 @@
+#### 20261102 北极熊和幼崽，哈得孙湾畔，马尼托巴省，加拿大 (© Danita Delimont/Adobe Stock)
+
+![](images/2026-11/20261102_HudsonBear_1920x1080.jpg)
+
 #### 20261101 黑森林，巴登-符腾堡州，德国 (© Britus/Getty Images)
 
 ![](images/2026-11/20261101_SchwarzwaldAutumn_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20261024 Royal Portuguese Cabinet of Reading, Rio de Janeiro, Brazil (© Antonio Salaverry/Shutterstock)
 
 ![](images/2026-10/20261024_PortugueseLibrary_1920x1080.jpg)
-
-#### 20261024 Philologische Bibliothek der Freien Universität Berlin, Berlin (© ullstein bild/Getty Images)
-
-![](images/2026-10/20261024_BerlinLibrary_1920x1080.jpg)
 
 
 
