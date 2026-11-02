@@ -1,4 +1,4 @@
-#### 20261102 北极熊和幼崽，哈得孙湾畔，马尼托巴省，加拿大 (© Danita Delimont/Adobe Stock)
+#### 20261102 Polar bear and cubs by Hudson Bay, Manitoba, Canada (© Danita Delimont/Adobe Stock)
 
 ![](20261102_HudsonBear_1920x1080.jpg)
 
