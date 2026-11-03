@@ -1,3 +1,7 @@
+#### 20261104 Taquaras Beach, Balneário Camboriú, Brazil (© MaRabelo/Getty Images)
+
+![](images/2026-11/20261104_Camburiu_1920x1080.jpg)
+
 #### 20261102 Polar bear and cubs by Hudson Bay, Manitoba, Canada (© Danita Delimont/Adobe Stock)
 
 ![](images/2026-11/20261102_HudsonBear_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20261025 Autumn waterfalls near Sitovo, Plovdiv Province, Bulgaria (© Nadya85/Getty Images)
 
 ![](images/2026-10/20261025_SitovoWaterfall_1920x1080.jpg)
-
-#### 20261024 Royal Portuguese Cabinet of Reading, Rio de Janeiro, Brazil (© Antonio Salaverry/Shutterstock)
-
-![](images/2026-10/20261024_PortugueseLibrary_1920x1080.jpg)
 
 
 

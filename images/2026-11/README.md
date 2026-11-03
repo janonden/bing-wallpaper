@@ -1,3 +1,7 @@
+#### 20261104 Taquaras Beach, Balneário Camboriú, Brazil (© MaRabelo/Getty Images)
+
+![](20261104_Camburiu_1920x1080.jpg)
+
 #### 20261102 Polar bear and cubs by Hudson Bay, Manitoba, Canada (© Danita Delimont/Adobe Stock)
 
 ![](20261102_HudsonBear_1920x1080.jpg)
