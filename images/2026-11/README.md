@@ -2,6 +2,10 @@
 
 ![](20261104_Camburiu_1920x1080.jpg)
 
+#### 20261104 五彩落羽杉间划船的人们，宣城，安徽省，中国 (© Jackal Pan/Getty Images)
+
+![](20261104_AutumnChina_1920x1080.jpg)
+
 #### 20261102 Polar bear and cubs by Hudson Bay, Manitoba, Canada (© Danita Delimont/Adobe Stock)
 
 ![](20261102_HudsonBear_1920x1080.jpg)

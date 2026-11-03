@@ -2,6 +2,10 @@
 
 ![](images/2026-11/20261104_Camburiu_1920x1080.jpg)
 
+#### 20261104 五彩落羽杉间划船的人们，宣城，安徽省，中国 (© Jackal Pan/Getty Images)
+
+![](images/2026-11/20261104_AutumnChina_1920x1080.jpg)
+
 #### 20261102 Polar bear and cubs by Hudson Bay, Manitoba, Canada (© Danita Delimont/Adobe Stock)
 
 ![](images/2026-11/20261102_HudsonBear_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20261025 Mount Sneffels in the San Juan Mountains near Ridgway, Colorado, United States (© lightphoto/Getty Images)
 
 ![](images/2026-10/20261025_SneffelsAutumn_1920x1080.jpg)
-
-#### 20261025 Autumn waterfalls near Sitovo, Plovdiv Province, Bulgaria (© Nadya85/Getty Images)
-
-![](images/2026-10/20261025_SitovoWaterfall_1920x1080.jpg)
 
 
 
