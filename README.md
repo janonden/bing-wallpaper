@@ -1,3 +1,7 @@
+#### 20261105 石墙边的木制翻越梯，黑岩，湖区，英格兰 (© Alex Treadway/Getty Images)
+
+![](images/2026-11/20261105_StileCrossing_1920x1080.jpg)
+
 #### 20261104 Taquaras Beach, Balneário Camboriú, Brazil (© MaRabelo/Getty Images)
 
 ![](images/2026-11/20261104_Camburiu_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20261025 Green-headed tanager (© Juan Carlos Vindas/Getty Images)
 
 ![](images/2026-10/20261025_Tanager_1920x1080.jpg)
-
-#### 20261025 Mount Sneffels in the San Juan Mountains near Ridgway, Colorado, United States (© lightphoto/Getty Images)
-
-![](images/2026-10/20261025_SneffelsAutumn_1920x1080.jpg)
 
 
 

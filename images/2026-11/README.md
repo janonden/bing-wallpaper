@@ -1,3 +1,7 @@
+#### 20261105 石墙边的木制翻越梯，黑岩，湖区，英格兰 (© Alex Treadway/Getty Images)
+
+![](20261105_StileCrossing_1920x1080.jpg)
+
 #### 20261104 Taquaras Beach, Balneário Camboriú, Brazil (© MaRabelo/Getty Images)
 
 ![](20261104_Camburiu_1920x1080.jpg)
