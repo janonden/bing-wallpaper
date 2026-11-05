@@ -1,3 +1,7 @@
+#### 20261106 竹林，皮皮维小径，哈莱亚卡拉国家公园，毛伊岛，夏威夷州，美国 (© MNStudio/Getty Images)
+
+![](images/2026-11/20261106_PipiwaiTrail_1920x1080.jpg)
+
 #### 20261105 Wooden stile at a stone wall, Black Crag, Lake District, England (© Alex Treadway/Getty Images)
 
 ![](images/2026-11/20261105_StileCrossing_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20261026 Gray-headed flying fox, Victoria, Australia (© Doug Gimesy/Nature Picture Library)
 
 ![](images/2026-10/20261026_HangingBat_1920x1080.jpg)
-
-#### 20261025 Green-headed tanager (© Juan Carlos Vindas/Getty Images)
-
-![](images/2026-10/20261025_Tanager_1920x1080.jpg)
 
 
 
