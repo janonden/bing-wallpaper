@@ -1,4 +1,4 @@
-#### 20261105 石墙边的木制翻越梯，黑岩，湖区，英格兰 (© Alex Treadway/Getty Images)
+#### 20261105 Wooden stile at a stone wall, Black Crag, Lake District, England (© Alex Treadway/Getty Images)
 
 ![](20261105_StileCrossing_1920x1080.jpg)
 
