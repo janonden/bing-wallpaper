@@ -1,3 +1,7 @@
+#### 20261107 草原上的一头野牛，西奥多·罗斯福国家公园，北达科他州，美国 (© Tandem Stock/Adobe Stock)
+
+![](images/2026-11/20261107_DakotaBison_1920x1080.jpg)
+
 #### 20261106 Bamboo forest, Pīpīwai Trail, Haleakalā National Park, Maui, Hawaii (© MNStudio/Getty Images)
 
 ![](images/2026-11/20261106_PipiwaiTrail_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20261026 Maligne Lake, Jasper National Park, Alberta, Canada (© Andrey Popov/Getty Images)
 
 ![](images/2026-10/20261026_MaligneFest_1920x1080.jpg)
-
-#### 20261026 Gray-headed flying fox, Victoria, Australia (© Doug Gimesy/Nature Picture Library)
-
-![](images/2026-10/20261026_HangingBat_1920x1080.jpg)
 
 
 

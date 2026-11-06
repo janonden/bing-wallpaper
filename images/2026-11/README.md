@@ -1,3 +1,7 @@
+#### 20261107 草原上的一头野牛，西奥多·罗斯福国家公园，北达科他州，美国 (© Tandem Stock/Adobe Stock)
+
+![](20261107_DakotaBison_1920x1080.jpg)
+
 #### 20261106 Bamboo forest, Pīpīwai Trail, Haleakalā National Park, Maui, Hawaii (© MNStudio/Getty Images)
 
 ![](20261106_PipiwaiTrail_1920x1080.jpg)
