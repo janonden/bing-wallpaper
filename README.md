@@ -1,4 +1,4 @@
-#### 20261106 竹林，皮皮维小径，哈莱亚卡拉国家公园，毛伊岛，夏威夷州，美国 (© MNStudio/Getty Images)
+#### 20261106 Bamboo forest, Pīpīwai Trail, Haleakalā National Park, Maui, Hawaii (© MNStudio/Getty Images)
 
 ![](images/2026-11/20261106_PipiwaiTrail_1920x1080.jpg)
 
