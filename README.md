@@ -1,4 +1,4 @@
-#### 20261107 草原上的一头野牛，西奥多·罗斯福国家公园，北达科他州，美国 (© Tandem Stock/Adobe Stock)
+#### 20261107 A bison in the grasslands of Theodore Roosevelt National Park, North Dakota (© Tandem Stock/Adobe Stock)
 
 ![](images/2026-11/20261107_DakotaBison_1920x1080.jpg)
 
