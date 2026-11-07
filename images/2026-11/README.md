@@ -1,3 +1,7 @@
+#### 20261108 排灯节灯笼，孟买，马哈拉施特拉邦，印度 (© Dinodia Photo/Getty Images)
+
+![](20261108_DiwaliLamps_1920x1080.jpg)
+
 #### 20261107 A bison in the grasslands of Theodore Roosevelt National Park, North Dakota (© Tandem Stock/Adobe Stock)
 
 ![](20261107_DakotaBison_1920x1080.jpg)

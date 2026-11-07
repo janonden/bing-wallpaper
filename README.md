@@ -1,3 +1,7 @@
+#### 20261108 排灯节灯笼，孟买，马哈拉施特拉邦，印度 (© Dinodia Photo/Getty Images)
+
+![](images/2026-11/20261108_DiwaliLamps_1920x1080.jpg)
+
 #### 20261107 A bison in the grasslands of Theodore Roosevelt National Park, North Dakota (© Tandem Stock/Adobe Stock)
 
 ![](images/2026-11/20261107_DakotaBison_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20261027 A grove of pond cypress trees with fall foliage, Georgia, USA (© Chris Moore/Getty Images)
 
 ![](images/2026-10/20261027_PondCypress_1920x1080.jpg)
-
-#### 20261026 Maligne Lake, Jasper National Park, Alberta, Canada (© Andrey Popov/Getty Images)
-
-![](images/2026-10/20261026_MaligneFest_1920x1080.jpg)
 
 
 
