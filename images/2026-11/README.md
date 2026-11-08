@@ -1,4 +1,8 @@
-#### 20261108 排灯节灯笼，孟买，马哈拉施特拉邦，印度 (© Dinodia Photo/Getty Images)
+#### 20261109 Flamingos in Ebro Delta Natural Park, Catalonia, Spain (© mafrmcfa/Getty Images)
+
+![](20261109_DeltaEbro_1920x1080.jpg)
+
+#### 20261108 Lanterns for Diwali, Mumbai, Maharashtra, India (© Dinodia Photo/Getty Images)
 
 ![](20261108_DiwaliLamps_1920x1080.jpg)
 
