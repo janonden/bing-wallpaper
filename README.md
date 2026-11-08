@@ -1,3 +1,7 @@
+#### 20261109 特里亚纳历史街区，塞维利亚，西班牙 (© Andrzej Rostek/Getty Images)
+
+![](images/2026-11/20261109_TrianaSpain_1920x1080.jpg)
+
 #### 20261109 Flamingos in Ebro Delta Natural Park, Catalonia, Spain (© mafrmcfa/Getty Images)
 
 ![](images/2026-11/20261109_DeltaEbro_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20261029 Standing stones at Avebury in Wiltshire, England (© George W Johnson/Getty Images)
 
 ![](images/2026-10/20261029_AveburyStones_1920x1080.jpg)
-
-#### 20261028 Kunětická hora Castle, Bohemia, Czechia (© Marek Saroch/Alamy)
-
-![](images/2026-10/20261028_KuneticeCastle_1920x1080.jpg)
 
 
 
