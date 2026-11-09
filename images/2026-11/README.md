@@ -2,6 +2,10 @@
 
 ![](20261109_TrianaSpain_1920x1080.jpg)
 
+#### 20261109 Schüler spähen durch einen Spalt in einem noch erhaltenen Abschnitt der Berliner Mauer (© Sean Gallup/Getty Images)
+
+![](20261109_MauerBerlin_1920x1080.jpg)
+
 #### 20261109 Flamingos in Ebro Delta Natural Park, Catalonia, Spain (© mafrmcfa/Getty Images)
 
 ![](20261109_DeltaEbro_1920x1080.jpg)

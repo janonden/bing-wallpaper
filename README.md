@@ -2,6 +2,10 @@
 
 ![](images/2026-11/20261109_TrianaSpain_1920x1080.jpg)
 
+#### 20261109 Schüler spähen durch einen Spalt in einem noch erhaltenen Abschnitt der Berliner Mauer (© Sean Gallup/Getty Images)
+
+![](images/2026-11/20261109_MauerBerlin_1920x1080.jpg)
+
 #### 20261109 Flamingos in Ebro Delta Natural Park, Catalonia, Spain (© mafrmcfa/Getty Images)
 
 ![](images/2026-11/20261109_DeltaEbro_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20261030 Sandhill cranes, Bosque del Apache National Wildlife Refuge, New Mexico, USA (© Terry St.Louis/Getty Images)
 
 ![](images/2026-10/20261030_AutumnCranes_1920x1080.jpg)
-
-#### 20261029 Standing stones at Avebury in Wiltshire, England (© George W Johnson/Getty Images)
-
-![](images/2026-10/20261029_AveburyStones_1920x1080.jpg)
 
 
 
