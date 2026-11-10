@@ -1,4 +1,4 @@
-#### 20261110 玫瑰岛航拍图，巴哈马 (© Abstract Aerial Art/Getty Images)
+#### 20261110 Aerial view of Rose Island, The Bahamas (© Abstract Aerial Art/Getty Images)
 
 ![](20261110_RoseIsland_1920x1080.jpg)
 
