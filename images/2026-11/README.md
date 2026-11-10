@@ -1,3 +1,7 @@
+#### 20261111 大西洋森林，巴西 (© FG Trade/Getty Images)
+
+![](20261111_Atlantica_1920x1080.jpg)
+
 #### 20261110 Aerial view of Rose Island, The Bahamas (© Abstract Aerial Art/Getty Images)
 
 ![](20261110_RoseIsland_1920x1080.jpg)

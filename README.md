@@ -1,3 +1,7 @@
+#### 20261111 大西洋森林，巴西 (© FG Trade/Getty Images)
+
+![](images/2026-11/20261111_Atlantica_1920x1080.jpg)
+
 #### 20261110 Aerial view of Rose Island, The Bahamas (© Abstract Aerial Art/Getty Images)
 
 ![](images/2026-11/20261110_RoseIsland_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20261101 Lake Braies, Fanes‑Sennes‑Braies Nature Park, Dolomites, Italy (© leonid_tit/Getty Images)
 
 ![](images/2026-11/20261101_AlpineBraies_1920x1080.jpg)
-
-#### 20261031 St. Bartholomew's Cathedral in Frankfurt, Germany (© AlxeyPnferov/Getty Images)
-
-![](images/2026-10/20261031_FrankfurtHalloween_1920x1080.jpg)
 
 
 
