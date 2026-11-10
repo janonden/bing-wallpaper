@@ -1,4 +1,8 @@
-#### 20261109 特里亚纳历史街区，塞维利亚，西班牙 (© Andrzej Rostek/Getty Images)
+#### 20261110 玫瑰岛航拍图，巴哈马 (© Abstract Aerial Art/Getty Images)
+
+![](20261110_RoseIsland_1920x1080.jpg)
+
+#### 20261109 Historic district of Triana, Seville, Spain (© Andrzej Rostek/Getty Images)
 
 ![](20261109_TrianaSpain_1920x1080.jpg)
 

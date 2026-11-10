@@ -1,4 +1,8 @@
-#### 20261109 特里亚纳历史街区，塞维利亚，西班牙 (© Andrzej Rostek/Getty Images)
+#### 20261110 玫瑰岛航拍图，巴哈马 (© Abstract Aerial Art/Getty Images)
+
+![](images/2026-11/20261110_RoseIsland_1920x1080.jpg)
+
+#### 20261109 Historic district of Triana, Seville, Spain (© Andrzej Rostek/Getty Images)
 
 ![](images/2026-11/20261109_TrianaSpain_1920x1080.jpg)
 
@@ -53,10 +57,6 @@
 #### 20261031 St. Bartholomew's Cathedral in Frankfurt, Germany (© AlxeyPnferov/Getty Images)
 
 ![](images/2026-10/20261031_FrankfurtHalloween_1920x1080.jpg)
-
-#### 20261030 Sandhill cranes, Bosque del Apache National Wildlife Refuge, New Mexico, USA (© Terry St.Louis/Getty Images)
-
-![](images/2026-10/20261030_AutumnCranes_1920x1080.jpg)
 
 
 
