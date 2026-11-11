@@ -2,6 +2,10 @@
 
 ![](images/2026-11/20261111_Atlantica_1920x1080.jpg)
 
+#### 20261111 Arc de Triomphe, Paris, France (© Beboy_ltd/Getty Images)
+
+![](images/2026-11/20261111_ArmisticeTriomphe_1920x1080.jpg)
+
 #### 20261110 Aerial view of Rose Island, The Bahamas (© Abstract Aerial Art/Getty Images)
 
 ![](images/2026-11/20261110_RoseIsland_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20261101 Handmade baskets, Santa Fe, New Mexico (© Patrick Lane/Getty Images)
 
 ![](images/2026-11/20261101_NativeBaskets_1920x1080.jpg)
-
-#### 20261101 Lake Braies, Fanes‑Sennes‑Braies Nature Park, Dolomites, Italy (© leonid_tit/Getty Images)
-
-![](images/2026-11/20261101_AlpineBraies_1920x1080.jpg)
 
 
 

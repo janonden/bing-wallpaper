@@ -2,6 +2,10 @@
 
 ![](20261111_Atlantica_1920x1080.jpg)
 
+#### 20261111 Arc de Triomphe, Paris, France (© Beboy_ltd/Getty Images)
+
+![](20261111_ArmisticeTriomphe_1920x1080.jpg)
+
 #### 20261110 Aerial view of Rose Island, The Bahamas (© Abstract Aerial Art/Getty Images)
 
 ![](20261110_RoseIsland_1920x1080.jpg)
