@@ -1,3 +1,11 @@
+#### 20261112 ノース・ウィンドウ、アーチーズ国立公園、モアブ、ユタ州、アメリカ (© lightphoto/Getty Images)
+
+![](20261112_NorthWindow_1920x1080.jpg)
+
+#### 20261111 American flags in a public park in upstate New York (© Matt Champlin/Getty Images)
+
+![](20261111_SunsetFlags_1920x1080.jpg)
+
 #### 20261111 大西洋森林，巴西 (© FG Trade/Getty Images)
 
 ![](20261111_Atlantica_1920x1080.jpg)

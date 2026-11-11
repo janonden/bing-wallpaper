@@ -1,3 +1,11 @@
+#### 20261112 ノース・ウィンドウ、アーチーズ国立公園、モアブ、ユタ州、アメリカ (© lightphoto/Getty Images)
+
+![](images/2026-11/20261112_NorthWindow_1920x1080.jpg)
+
+#### 20261111 American flags in a public park in upstate New York (© Matt Champlin/Getty Images)
+
+![](images/2026-11/20261111_SunsetFlags_1920x1080.jpg)
+
 #### 20261111 大西洋森林，巴西 (© FG Trade/Getty Images)
 
 ![](images/2026-11/20261111_Atlantica_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20261102 Polar bear and cubs by Hudson Bay, Manitoba, Canada (© Danita Delimont/Adobe Stock)
 
 ![](images/2026-11/20261102_HudsonBear_1920x1080.jpg)
-
-#### 20261101 黑森林，巴登-符腾堡州，德国 (© Britus/Getty Images)
-
-![](images/2026-11/20261101_SchwarzwaldAutumn_1920x1080.jpg)
-
-#### 20261101 Handmade baskets, Santa Fe, New Mexico (© Patrick Lane/Getty Images)
-
-![](images/2026-11/20261101_NativeBaskets_1920x1080.jpg)
 
 
 
