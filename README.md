@@ -1,4 +1,8 @@
-#### 20261112 ノース・ウィンドウ、アーチーズ国立公園、モアブ、ユタ州、アメリカ (© lightphoto/Getty Images)
+#### 20261113 亚伯拉罕湖，艾伯塔省，加拿大 (© Guang Cao/Getty Images)
+
+![](images/2026-11/20261113_AbrahamCanada_1920x1080.jpg)
+
+#### 20261112 North Window, Arches National Park, Moab, Utah (© lightphoto/Getty Images)
 
 ![](images/2026-11/20261112_NorthWindow_1920x1080.jpg)
 
@@ -53,10 +57,6 @@
 #### 20261104 People rowing among colorful bald cypress, Xuancheng, Anhui, China (© Jackal Pan/Getty Images)
 
 ![](images/2026-11/20261104_AutumnChina_1920x1080.jpg)
-
-#### 20261102 Polar bear and cubs by Hudson Bay, Manitoba, Canada (© Danita Delimont/Adobe Stock)
-
-![](images/2026-11/20261102_HudsonBear_1920x1080.jpg)
 
 
 

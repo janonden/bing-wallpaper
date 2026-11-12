@@ -1,4 +1,8 @@
-#### 20261112 ノース・ウィンドウ、アーチーズ国立公園、モアブ、ユタ州、アメリカ (© lightphoto/Getty Images)
+#### 20261113 亚伯拉罕湖，艾伯塔省，加拿大 (© Guang Cao/Getty Images)
+
+![](20261113_AbrahamCanada_1920x1080.jpg)
+
+#### 20261112 North Window, Arches National Park, Moab, Utah (© lightphoto/Getty Images)
 
 ![](20261112_NorthWindow_1920x1080.jpg)
 
