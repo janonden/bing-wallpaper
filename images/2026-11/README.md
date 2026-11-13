@@ -1,3 +1,7 @@
+#### 20261114 中国香港维多利亚港 (© Juan Romero/Cavan Images)
+
+![](20261114_BlueHK_1920x1080.jpg)
+
 #### 20261113 Abraham Lake in Alberta, Canada (© Guang Cao/Getty Images)
 
 ![](20261113_AbrahamCanada_1920x1080.jpg)
