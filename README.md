@@ -1,4 +1,4 @@
-#### 20261113 亚伯拉罕湖，艾伯塔省，加拿大 (© Guang Cao/Getty Images)
+#### 20261113 Abraham Lake in Alberta, Canada (© Guang Cao/Getty Images)
 
 ![](images/2026-11/20261113_AbrahamCanada_1920x1080.jpg)
 
