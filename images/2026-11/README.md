@@ -1,4 +1,4 @@
-#### 20261114 中国香港维多利亚港 (© Juan Romero/Cavan Images)
+#### 20261114 Victoria Harbour, Hong Kong, China (© Juan Romero/Cavan Images)
 
 ![](20261114_BlueHK_1920x1080.jpg)
 
