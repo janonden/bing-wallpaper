@@ -1,3 +1,7 @@
+#### 20261115 覆霜的红叶杜鹃 (© avoferten/Shutterstock)
+
+![](20261115_FirstFrost_1920x1080.jpg)
+
 #### 20261114 Victoria Harbour, Hong Kong, China (© Juan Romero/Cavan Images)
 
 ![](20261114_BlueHK_1920x1080.jpg)

@@ -1,3 +1,7 @@
+#### 20261115 覆霜的红叶杜鹃 (© avoferten/Shutterstock)
+
+![](images/2026-11/20261115_FirstFrost_1920x1080.jpg)
+
 #### 20261114 Victoria Harbour, Hong Kong, China (© Juan Romero/Cavan Images)
 
 ![](images/2026-11/20261114_BlueHK_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20261105 Wooden stile at a stone wall, Black Crag, Lake District, England (© Alex Treadway/Getty Images)
 
 ![](images/2026-11/20261105_StileCrossing_1920x1080.jpg)
-
-#### 20261104 Taquaras Beach, Balneário Camboriú, Brazil (© MaRabelo/Getty Images)
-
-![](images/2026-11/20261104_Camburiu_1920x1080.jpg)
 
 
 
