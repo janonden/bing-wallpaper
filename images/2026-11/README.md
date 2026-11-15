@@ -1,4 +1,8 @@
-#### 20261115 覆霜的红叶杜鹃 (© avoferten/Shutterstock)
+#### 20261116 ヒラ・クリフ・ドウェリングス国定記念物、ニューメキシコ州、アメリカ (© Chiara Salvadori/Getty Images)
+
+![](20261116_GilaCliff_1920x1080.jpg)
+
+#### 20261115 Frozen azalea with red leaves (© avoferten/Shutterstock)
 
 ![](20261115_FirstFrost_1920x1080.jpg)
 

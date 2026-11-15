@@ -1,4 +1,8 @@
-#### 20261115 覆霜的红叶杜鹃 (© avoferten/Shutterstock)
+#### 20261116 ヒラ・クリフ・ドウェリングス国定記念物、ニューメキシコ州、アメリカ (© Chiara Salvadori/Getty Images)
+
+![](images/2026-11/20261116_GilaCliff_1920x1080.jpg)
+
+#### 20261115 Frozen azalea with red leaves (© avoferten/Shutterstock)
 
 ![](images/2026-11/20261115_FirstFrost_1920x1080.jpg)
 
@@ -53,10 +57,6 @@
 #### 20261106 Bamboo forest, Pīpīwai Trail, Haleakalā National Park, Maui, Hawaii (© MNStudio/Getty Images)
 
 ![](images/2026-11/20261106_PipiwaiTrail_1920x1080.jpg)
-
-#### 20261105 Wooden stile at a stone wall, Black Crag, Lake District, England (© Alex Treadway/Getty Images)
-
-![](images/2026-11/20261105_StileCrossing_1920x1080.jpg)
 
 
 
