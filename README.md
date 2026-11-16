@@ -1,4 +1,8 @@
-#### 20261116 ヒラ・クリフ・ドウェリングス国定記念物、ニューメキシコ州、アメリカ (© Chiara Salvadori/Getty Images)
+#### 20261117 雪松林步道，冰川国家公园，蒙大拿州，美国 (© DBushue Photography/Getty Images)
+
+![](images/2026-11/20261117_TrailCedars_1920x1080.jpg)
+
+#### 20261116 Gila Cliff Dwellings National Monument, New Mexico (© Chiara Salvadori/Getty Images)
 
 ![](images/2026-11/20261116_GilaCliff_1920x1080.jpg)
 
@@ -53,10 +57,6 @@
 #### 20261107 A bison in the grasslands of Theodore Roosevelt National Park, North Dakota (© Tandem Stock/Adobe Stock)
 
 ![](images/2026-11/20261107_DakotaBison_1920x1080.jpg)
-
-#### 20261106 Bamboo forest, Pīpīwai Trail, Haleakalā National Park, Maui, Hawaii (© MNStudio/Getty Images)
-
-![](images/2026-11/20261106_PipiwaiTrail_1920x1080.jpg)
 
 
 

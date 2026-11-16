@@ -1,4 +1,8 @@
-#### 20261116 ヒラ・クリフ・ドウェリングス国定記念物、ニューメキシコ州、アメリカ (© Chiara Salvadori/Getty Images)
+#### 20261117 雪松林步道，冰川国家公园，蒙大拿州，美国 (© DBushue Photography/Getty Images)
+
+![](20261117_TrailCedars_1920x1080.jpg)
+
+#### 20261116 Gila Cliff Dwellings National Monument, New Mexico (© Chiara Salvadori/Getty Images)
 
 ![](20261116_GilaCliff_1920x1080.jpg)
 
