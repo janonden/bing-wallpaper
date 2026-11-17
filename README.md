@@ -1,4 +1,4 @@
-#### 20261117 雪松林步道，冰川国家公园，蒙大拿州，美国 (© DBushue Photography/Getty Images)
+#### 20261117 Trail of the Cedars, Glacier National Park, Montana (© DBushue Photography/Getty Images)
 
 ![](images/2026-11/20261117_TrailCedars_1920x1080.jpg)
 
