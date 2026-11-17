@@ -1,3 +1,7 @@
+#### 20261118 一对仓鸮 (© Zahoor Salmi/Getty Images)
+
+![](20261118_BarnOwlsUnite_1920x1080.jpg)
+
 #### 20261117 Trail of the Cedars, Glacier National Park, Montana (© DBushue Photography/Getty Images)
 
 ![](20261117_TrailCedars_1920x1080.jpg)

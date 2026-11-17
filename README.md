@@ -1,3 +1,7 @@
+#### 20261118 一对仓鸮 (© Zahoor Salmi/Getty Images)
+
+![](images/2026-11/20261118_BarnOwlsUnite_1920x1080.jpg)
+
 #### 20261117 Trail of the Cedars, Glacier National Park, Montana (© DBushue Photography/Getty Images)
 
 ![](images/2026-11/20261117_TrailCedars_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20261108 Lanterns for Diwali, Mumbai, Maharashtra, India (© Dinodia Photo/Getty Images)
 
 ![](images/2026-11/20261108_DiwaliLamps_1920x1080.jpg)
-
-#### 20261107 A bison in the grasslands of Theodore Roosevelt National Park, North Dakota (© Tandem Stock/Adobe Stock)
-
-![](images/2026-11/20261107_DakotaBison_1920x1080.jpg)
 
 
 
