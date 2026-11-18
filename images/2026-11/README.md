@@ -1,4 +1,8 @@
-#### 20261118 一对仓鸮 (© Zahoor Salmi/Getty Images)
+#### 20261119 雕塑《知识之躯》，由豪梅·普兰萨创作，位于德国法兰克福的法兰克福歌德大学 (© Todamo/Shutterstock)
+
+![](20261119_KnowledgeSculpture_1920x1080.jpg)
+
+#### 20261118 Pair of barn owls (© Zahoor Salmi/Getty Images)
 
 ![](20261118_BarnOwlsUnite_1920x1080.jpg)
 
