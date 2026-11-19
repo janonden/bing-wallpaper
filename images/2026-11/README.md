@@ -1,4 +1,8 @@
-#### 20261119 雕塑《知识之躯》，由豪梅·普兰萨创作，位于德国法兰克福的法兰克福歌德大学 (© Todamo/Shutterstock)
+#### 20261120 Coast redwoods near Melbourne, Victoria, Australia (© James Yu/Getty Images)
+
+![](20261120_MelbourneRedwoods_1920x1080.jpg)
+
+#### 20261119 The "Body of Knowledge" sculpture by Jaume Plensa at Goethe University in Frankfurt, Germany (© Todamo/Shutterstock)
 
 ![](20261119_KnowledgeSculpture_1920x1080.jpg)
 
