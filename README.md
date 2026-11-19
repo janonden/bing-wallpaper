@@ -2,6 +2,10 @@
 
 ![](images/2026-11/20261120_MelbourneRedwoods_1920x1080.jpg)
 
+#### 20261120 正在潜水的座头鲸，挪威北部特罗姆斯的克瓦尔岛 (© Espen Bergersen/Minden Pictures)
+
+![](images/2026-11/20261120_Megaptera_1920x1080.jpg)
+
 #### 20261119 The "Body of Knowledge" sculpture by Jaume Plensa at Goethe University in Frankfurt, Germany (© Todamo/Shutterstock)
 
 ![](images/2026-11/20261119_KnowledgeSculpture_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20261109 Historic district of Triana, Seville, Spain (© Andrzej Rostek/Getty Images)
 
 ![](images/2026-11/20261109_TrianaSpain_1920x1080.jpg)
-
-#### 20261109 Schüler spähen durch einen Spalt in einem noch erhaltenen Abschnitt der Berliner Mauer (© Sean Gallup/Getty Images)
-
-![](images/2026-11/20261109_MauerBerlin_1920x1080.jpg)
 
 
 
