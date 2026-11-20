@@ -1,8 +1,12 @@
+#### 20261121 法国普罗旺斯-阿尔卑斯-蔚蓝海岸大区尼斯 (© Siripong Kaewla-iad/Getty Images)
+
+![](20261121_RedNice_1920x1080.jpg)
+
 #### 20261120 Coast redwoods near Melbourne, Victoria, Australia (© James Yu/Getty Images)
 
 ![](20261120_MelbourneRedwoods_1920x1080.jpg)
 
-#### 20261120 正在潜水的座头鲸，挪威北部特罗姆斯的克瓦尔岛 (© Espen Bergersen/Minden Pictures)
+#### 20261120 Diving humpback whale, Kvaloya, Troms, Northern Norway (© Espen Bergersen/Minden Pictures)
 
 ![](20261120_Megaptera_1920x1080.jpg)
 
