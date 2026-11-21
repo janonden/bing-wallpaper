@@ -1,3 +1,7 @@
+#### 20261122 西班牙坎塔布里亚自治区的圣胡斯塔隐修院与小教堂 (© Tramont_ana/Getty Images)
+
+![](images/2026-11/20261122_JustaHermitage_1920x1080.jpg)
+
 #### 20261121 Nice, Provence-Alpes-Côte d'Azur, France (© Siripong Kaewla-iad/Getty Images)
 
 ![](images/2026-11/20261121_RedNice_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20261111 Arc de Triomphe, Paris, France (© Beboy_ltd/Getty Images)
 
 ![](images/2026-11/20261111_ArmisticeTriomphe_1920x1080.jpg)
-
-#### 20261110 Aerial view of Rose Island, The Bahamas (© Abstract Aerial Art/Getty Images)
-
-![](images/2026-11/20261110_RoseIsland_1920x1080.jpg)
 
 
 
