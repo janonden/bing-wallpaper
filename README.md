@@ -1,4 +1,4 @@
-#### 20261121 法国普罗旺斯-阿尔卑斯-蔚蓝海岸大区尼斯 (© Siripong Kaewla-iad/Getty Images)
+#### 20261121 Nice, Provence-Alpes-Côte d'Azur, France (© Siripong Kaewla-iad/Getty Images)
 
 ![](images/2026-11/20261121_RedNice_1920x1080.jpg)
 
