@@ -1,4 +1,12 @@
-#### 20261122 西班牙坎塔布里亚自治区的圣胡斯塔隐修院与小教堂 (© Tramont_ana/Getty Images)
+#### 20261123 Icebergs, Ilulissat, Greenland (© James Yu/Getty Images)
+
+![](20261123_GreenIceberg_1920x1080.jpg)
+
+#### 20261123 シダの若芽 (© Reza Saputra/Getty Images)
+
+![](20261123_FibonacciFern_1920x1080.jpg)
+
+#### 20261122 The chapel and hermitage of Santa Justa in Cantabria, Spain (© Tramont_ana/Getty Images)
 
 ![](20261122_JustaHermitage_1920x1080.jpg)
 

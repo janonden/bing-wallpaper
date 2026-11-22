@@ -1,4 +1,12 @@
-#### 20261122 西班牙坎塔布里亚自治区的圣胡斯塔隐修院与小教堂 (© Tramont_ana/Getty Images)
+#### 20261123 Icebergs, Ilulissat, Greenland (© James Yu/Getty Images)
+
+![](images/2026-11/20261123_GreenIceberg_1920x1080.jpg)
+
+#### 20261123 シダの若芽 (© Reza Saputra/Getty Images)
+
+![](images/2026-11/20261123_FibonacciFern_1920x1080.jpg)
+
+#### 20261122 The chapel and hermitage of Santa Justa in Cantabria, Spain (© Tramont_ana/Getty Images)
 
 ![](images/2026-11/20261122_JustaHermitage_1920x1080.jpg)
 
@@ -49,14 +57,6 @@
 #### 20261111 American flags in a public park in upstate New York (© Matt Champlin/Getty Images)
 
 ![](images/2026-11/20261111_SunsetFlags_1920x1080.jpg)
-
-#### 20261111 大西洋森林，巴西 (© FG Trade/Getty Images)
-
-![](images/2026-11/20261111_Atlantica_1920x1080.jpg)
-
-#### 20261111 Arc de Triomphe, Paris, France (© Beboy_ltd/Getty Images)
-
-![](images/2026-11/20261111_ArmisticeTriomphe_1920x1080.jpg)
 
 
 
