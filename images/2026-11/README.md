@@ -1,8 +1,12 @@
+#### 20261124 红松鼠，凯恩戈姆斯国家公园，苏格兰高地 (© Scotland: The Big Picture/Minden Pictures)
+
+![](20261124_CairngormsSquirrel_1920x1080.jpg)
+
 #### 20261123 Icebergs, Ilulissat, Greenland (© James Yu/Getty Images)
 
 ![](20261123_GreenIceberg_1920x1080.jpg)
 
-#### 20261123 シダの若芽 (© Reza Saputra/Getty Images)
+#### 20261123 Fiddlehead fern (© Reza Saputra/Getty Images)
 
 ![](20261123_FibonacciFern_1920x1080.jpg)
 
