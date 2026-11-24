@@ -1,4 +1,8 @@
-#### 20261124 红松鼠，凯恩戈姆斯国家公园，苏格兰高地 (© Scotland: The Big Picture/Minden Pictures)
+#### 20261125 日落观景点，布莱斯峡谷国家公园，犹他州 (© Colin D. Young/Alamy)
+
+![](images/2026-11/20261125_SunsetPoint_1920x1080.jpg)
+
+#### 20261124 Red squirrel in Cairngorms National Park, Highlands, Scotland (© Scotland: The Big Picture/Minden Pictures)
 
 ![](images/2026-11/20261124_CairngormsSquirrel_1920x1080.jpg)
 
@@ -53,10 +57,6 @@
 #### 20261113 Abraham Lake in Alberta, Canada (© Guang Cao/Getty Images)
 
 ![](images/2026-11/20261113_AbrahamCanada_1920x1080.jpg)
-
-#### 20261112 North Window, Arches National Park, Moab, Utah (© lightphoto/Getty Images)
-
-![](images/2026-11/20261112_NorthWindow_1920x1080.jpg)
 
 
 

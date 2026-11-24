@@ -1,4 +1,8 @@
-#### 20261124 红松鼠，凯恩戈姆斯国家公园，苏格兰高地 (© Scotland: The Big Picture/Minden Pictures)
+#### 20261125 日落观景点，布莱斯峡谷国家公园，犹他州 (© Colin D. Young/Alamy)
+
+![](20261125_SunsetPoint_1920x1080.jpg)
+
+#### 20261124 Red squirrel in Cairngorms National Park, Highlands, Scotland (© Scotland: The Big Picture/Minden Pictures)
 
 ![](20261124_CairngormsSquirrel_1920x1080.jpg)
 
