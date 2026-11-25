@@ -1,4 +1,4 @@
-#### 20261125 日落观景点，布莱斯峡谷国家公园，犹他州 (© Colin D. Young/Alamy)
+#### 20261125 Sunset Point, Bryce Canyon National Park, Utah (© Colin D. Young/Alamy)
 
 ![](images/2026-11/20261125_SunsetPoint_1920x1080.jpg)
 
