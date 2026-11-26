@@ -1,3 +1,11 @@
+#### 20261127 夕阳下的孤峰，鲍威尔湖脸峡谷，犹他州，美国 (© Jeff Foott/Minden)
+
+![](20261127_FaceCanyon_1920x1080.jpg)
+
+#### 20261126 Two wild tom turkeys (© davidsdodd/Getty Images)
+
+![](20261126_WildTom_1920x1080.jpg)
+
 #### 20261126 怀卢库河上的彩虹瀑布，希洛市，夏威夷州，美国 (© Peter Unger/Getty Images)
 
 ![](20261126_RFHilo_1920x1080.jpg)

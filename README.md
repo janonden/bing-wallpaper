@@ -1,3 +1,11 @@
+#### 20261127 夕阳下的孤峰，鲍威尔湖脸峡谷，犹他州，美国 (© Jeff Foott/Minden)
+
+![](images/2026-11/20261127_FaceCanyon_1920x1080.jpg)
+
+#### 20261126 Two wild tom turkeys (© davidsdodd/Getty Images)
+
+![](images/2026-11/20261126_WildTom_1920x1080.jpg)
+
 #### 20261126 怀卢库河上的彩虹瀑布，希洛市，夏威夷州，美国 (© Peter Unger/Getty Images)
 
 ![](images/2026-11/20261126_RFHilo_1920x1080.jpg)
@@ -49,14 +57,6 @@
 #### 20261116 Gila Cliff Dwellings National Monument, New Mexico (© Chiara Salvadori/Getty Images)
 
 ![](images/2026-11/20261116_GilaCliff_1920x1080.jpg)
-
-#### 20261115 Frozen azalea with red leaves (© avoferten/Shutterstock)
-
-![](images/2026-11/20261115_FirstFrost_1920x1080.jpg)
-
-#### 20261114 Victoria Harbour, Hong Kong, China (© Juan Romero/Cavan Images)
-
-![](images/2026-11/20261114_BlueHK_1920x1080.jpg)
 
 
 
