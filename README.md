@@ -1,3 +1,7 @@
+#### 20261126 怀卢库河上的彩虹瀑布，希洛市，夏威夷州，美国 (© Peter Unger/Getty Images)
+
+![](images/2026-11/20261126_RFHilo_1920x1080.jpg)
+
 #### 20261125 Sunset Point, Bryce Canyon National Park, Utah (© Colin D. Young/Alamy)
 
 ![](images/2026-11/20261125_SunsetPoint_1920x1080.jpg)
@@ -53,10 +57,6 @@
 #### 20261114 Victoria Harbour, Hong Kong, China (© Juan Romero/Cavan Images)
 
 ![](images/2026-11/20261114_BlueHK_1920x1080.jpg)
-
-#### 20261113 Abraham Lake in Alberta, Canada (© Guang Cao/Getty Images)
-
-![](images/2026-11/20261113_AbrahamCanada_1920x1080.jpg)
 
 
 
