@@ -1,3 +1,7 @@
+#### 20261128 捷克布拉格老城区与伏尔塔瓦河 (© Lara_Uhryn/Getty Images)
+
+![](20261128_VltavaPrague_1920x1080.jpg)
+
 #### 20261127 Butte at sunset, Face Canyon, Lake Powell, Utah (© Jeff Foott/Minden)
 
 ![](20261127_FaceCanyon_1920x1080.jpg)
