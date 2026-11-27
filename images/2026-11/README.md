@@ -1,4 +1,4 @@
-#### 20261127 夕阳下的孤峰，鲍威尔湖脸峡谷，犹他州，美国 (© Jeff Foott/Minden)
+#### 20261127 Butte at sunset, Face Canyon, Lake Powell, Utah (© Jeff Foott/Minden)
 
 ![](20261127_FaceCanyon_1920x1080.jpg)
 
