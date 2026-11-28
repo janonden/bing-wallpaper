@@ -1,4 +1,8 @@
-#### 20261128 捷克布拉格老城区与伏尔塔瓦河 (© Lara_Uhryn/Getty Images)
+#### 20261129 俯瞰挪威特罗姆瑟的索马若伊大桥 (© Roberto Moiola/Sysaworld/Getty Images)
+
+![](images/2026-11/20261129_SommaroyBridge_1920x1080.jpg)
+
+#### 20261128 Old town and Vltava River, Prague, Czechia (© Lara_Uhryn/Getty Images)
 
 ![](images/2026-11/20261128_VltavaPrague_1920x1080.jpg)
 
@@ -53,10 +57,6 @@
 #### 20261118 Pair of barn owls (© Zahoor Salmi/Getty Images)
 
 ![](images/2026-11/20261118_BarnOwlsUnite_1920x1080.jpg)
-
-#### 20261117 Trail of the Cedars, Glacier National Park, Montana (© DBushue Photography/Getty Images)
-
-![](images/2026-11/20261117_TrailCedars_1920x1080.jpg)
 
 
 
